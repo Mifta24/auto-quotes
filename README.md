@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words without actions are the assassins of idealism."  
-> — **Herbert Hoover**
+> "There is no absolute success in the world, only constant progress."  
+> — **Jonathan Swift**
 
 ---
 

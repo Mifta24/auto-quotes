@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Every day is an opportunity to a make a new happy ending."  
+> "There is no absolute success in the world, only constant progress."  
 > — **Jonathan Swift**
 
 ---
