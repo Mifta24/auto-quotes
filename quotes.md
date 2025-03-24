@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words without actions are the assassins of idealism."  
-> — **Herbert Hoover**
+> "Every day is an opportunity to a make a new happy ending."  
+> — **Jonathan Swift**
 
 ---
 
