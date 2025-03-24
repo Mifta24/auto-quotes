@@ -1,0 +1,34 @@
+name: Auto Update Quotes
+
+on:
+  schedule:
+    - cron: "0 */5 * * *"  # Setiap 5 jam
+
+jobs:
+  update-quotes:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repo
+        uses: actions/checkout@v3
+
+      - name: Setup Python
+        uses: actions/setup-python@v3
+        with:
+          python-version: '3.x'
+
+      - name: Install dependencies
+        run: pip install requests
+
+      - name: Fetch new quote
+        run: python fetch_quotes.py
+
+      - name: Update README.md
+        run: cp quotes.md README.md
+
+      - name: Commit and push
+        run: |
+          git config --global user.name "github-actions"
+          git config --global user.email "github-actions@github.com"
+          git add quotes.md README.md
+          git commit -m "Update quote"
+          git push

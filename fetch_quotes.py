@@ -1,18 +1,28 @@
 import requests
-import json
+import datetime
 
-API_URL = "https://zenquotes.io/api/quotes"
+# Ambil data dari API
+url = "https://zenquotes.io/api/random"
+response = requests.get(url)
+data = response.json()
 
-def get_quote():
-    response = requests.get(API_URL)
-    if response.status_code == 200:
-        data = response.json()
-        return f'> "{data[0]["q"]}"\n\n- {data[0]["a"]}'
-    return "Failed to fetch quote."
+# Ambil quote & author
+quote = data[0]["q"]
+author = data[0]["a"]
 
-if __name__ == "__main__":
-    quote = get_quote()
-    with open("quotes.md", "w") as file:
-        file.write(quote)
-        
-    print("Quote saved to quotes.md")
+# Format markdown
+timestamp = datetime.datetime.now().strftime("%d %B %Y ⏳")
+
+formatted_quote = f"""# 📜 Daily Quote
+
+> "{quote}"  
+> — **{author}**
+
+---
+
+_Last updated: {timestamp}_
+"""
+
+# Simpan ke quotes.md
+with open("quotes.md", "w", encoding="utf-8") as file:
+    file.write(formatted_quote)
