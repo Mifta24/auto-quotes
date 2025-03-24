@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no absolute success in the world, only constant progress."  
-> — **Jonathan Swift**
+> "Don't be afraid to give up the good to go for the great."  
+> — **John D. Rockefeller**
 
 ---
 
