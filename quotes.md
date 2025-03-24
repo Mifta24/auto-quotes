@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have no methods; all I do is accept people as they are."  
-> — **Joan Rivers**
+> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
+> — **Wayne Gretzky**
 
 ---
 
