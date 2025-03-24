@@ -3,6 +3,7 @@ name: Auto Update Quotes
 on:
   schedule:
     - cron: "0 */5 * * *"  # Setiap 5 jam
+  workflow_dispatch:  # Menambahkan trigger manual
 
 jobs:
   update-quotes:
