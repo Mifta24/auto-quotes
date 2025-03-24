@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no absolute success in the world, only constant progress."  
-> — **Jonathan Swift**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 
