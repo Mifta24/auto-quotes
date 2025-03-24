@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world."  
-> — **Gabor Mate**
+> "Believe you can and you will be halfway there."  
+> — **Lolly Daskal**
 
 ---
 
