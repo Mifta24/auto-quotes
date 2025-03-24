@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you will be halfway there."  
-> — **Lolly Daskal**
+> "The danger of an adventure is worth a thousand days of ease and comfort."  
+> — **Paulo Coelho**
 
 ---
 
