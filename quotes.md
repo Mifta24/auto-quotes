@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is best to begin at the beginning."  
-> — **Amelia Earhart**
+> "Words without actions are the assassins of idealism."  
+> — **Herbert Hoover**
 
 ---
 
