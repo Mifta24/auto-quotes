@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
-> — **Winston Churchill**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 

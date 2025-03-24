@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The danger of an adventure is worth a thousand days of ease and comfort."  
-> — **Paulo Coelho**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 
