@@ -24,14 +24,15 @@ jobs:
         run: python fetch_quotes.py
 
       - name: Commit and push
-        env:
-          GH_PAT: ${{ secrets.GH_PAT }}
         run: |
           git config --global user.name "github-actions"
           git config --global user.email "github-actions@github.com"
           git add quotes.md
           git commit -m "Update quote" || exit 0
-          git push https://github.com/${{ github.repository }}.git main
+          git push https://github.com/${{ github.repository }}.git HEAD:main
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      
       
 
           
