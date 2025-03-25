@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victims recite problems, leaders provide solutions."  
-> — **Robin Sharma**
+> "With the new day comes new strength and new thoughts."  
+> — **Eleanor Roosevelt**
 
 ---
 
