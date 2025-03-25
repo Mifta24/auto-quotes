@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be like a postage stamp. Stick to it until you get there."  
-> — **Bob Proctor**
+> "Perfectionism is simply putting a limit on your future."  
+> — **John Eliot**
 
 ---
 
