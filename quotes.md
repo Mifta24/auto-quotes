@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lying can never save us from another lie."  
-> — **Vaclav Havel**
+> "Whenever you find yourself on the side of the majority, it is time to reform."  
+> — **Mark Twain**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If they wrote it to make money, don't read it."  
-> — **Naval Ravikant**
+> "Whenever you find yourself on the side of the majority, it is time to reform."  
+> — **Mark Twain**
 
 ---
 
