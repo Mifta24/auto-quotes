@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Look to the beauty of this day, miracles are all around you."  
-> — **Mary Engelbreit**
+> "If you think adventure is dangerous, try routine; it is lethal."  
+> — **Paulo Coelho**
 
 ---
 
