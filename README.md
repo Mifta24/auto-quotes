@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is liking yourself, liking what you do, and liking how you do it."  
-> — **Maya Angelou**
+> "Others have seen what is and asked why. I have seen what could be and asked why not"  
+> — **Pablo Picasso**
 
 ---
 
