@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Look to the beauty of this day, miracles are all around you."  
-> — **Mary Engelbreit**
+> "Victims recite problems, leaders provide solutions."  
+> — **Robin Sharma**
 
 ---
 

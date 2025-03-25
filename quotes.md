@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think adventure is dangerous, try routine; it is lethal."  
-> — **Paulo Coelho**
+> "Victims recite problems, leaders provide solutions."  
+> — **Robin Sharma**
 
 ---
 
