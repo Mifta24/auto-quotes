@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victims recite problems, leaders provide solutions."  
-> — **Robin Sharma**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 

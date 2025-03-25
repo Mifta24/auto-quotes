@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With the new day comes new strength and new thoughts."  
-> — **Eleanor Roosevelt**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 
