@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perfectionism is simply putting a limit on your future."  
-> — **John Eliot**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 

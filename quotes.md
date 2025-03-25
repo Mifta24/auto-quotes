@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The purpose of life is the expansion of happiness."  
-> — **Deepak Chopra**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 
