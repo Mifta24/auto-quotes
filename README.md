@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "Success is liking yourself, liking what you do, and liking how you do it."  
+> — **Maya Angelou**
 
 ---
 
