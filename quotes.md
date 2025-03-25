@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success."  
-> — **Mark Manson**
+> "You live by what you thrill to, and there's the end of it."  
+> — **D. H. Lawrence**
 
 ---
 
