@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We learn to walk by falling down. If we never fell down, we would never walk."  
-> — **Robert Kiyosaki**
+> "It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose."  
+> — **Ming-Dao Deng**
 
 ---
 
