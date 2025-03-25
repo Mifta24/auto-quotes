@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "It is the power of the mind to be unconquerable."  
+> — **Seneca**
 
 ---
 
