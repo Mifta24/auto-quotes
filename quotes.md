@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "If I can stop one heart from breaking, I shall not live in vain."  
+> — **Emily Dickinson**
 
 ---
 
