@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
-> — **Eric Hoffer**
+> "The purpose of life is the expansion of happiness."  
+> — **Deepak Chopra**
 
 ---
 
