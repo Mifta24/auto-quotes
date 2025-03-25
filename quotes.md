@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today."  
-> — **Thich Nhat Hanh**
+> "If they wrote it to make money, don't read it."  
+> — **Naval Ravikant**
 
 ---
 
