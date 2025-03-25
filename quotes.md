@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever you find yourself on the side of the majority, it is time to reform."  
-> — **Mark Twain**
+> "The quicker you let go of old cheese, the sooner you find new cheese."  
+> — **Spencer Johnson**
 
 ---
 
