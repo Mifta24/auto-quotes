@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You live by what you thrill to, and there's the end of it."  
-> — **D. H. Lawrence**
+> "The primary cause of unhappiness is never the situation but your thoughts about it."  
+> — **Eckhart Tolle**
 
 ---
 
