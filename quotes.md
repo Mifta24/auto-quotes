@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good stance and posture reflect a proper state of mind."  
-> — **Morihei Ueshiba**
+> "Be like a postage stamp. Stick to it until you get there."  
+> — **Bob Proctor**
 
 ---
 
