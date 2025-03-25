@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "Look to the beauty of this day, miracles are all around you."  
+> — **Mary Engelbreit**
 
 ---
 
-_Last updated: 24 March 2025 ⏳_
+_Last updated: 25 March 2025 ⏳_
