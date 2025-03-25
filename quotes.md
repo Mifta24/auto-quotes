@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is liking yourself, liking what you do, and liking how you do it."  
-> — **Maya Angelou**
+> "You're always free to change your mind and choose a different future, or a different past."  
+> — **Richard Bach**
 
 ---
 
