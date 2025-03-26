@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn the pain into power."  
-> — **Unknown**
+> "If I can pay the bills, I'm happy."  
+> — **Morgan Wootten**
 
 ---
 

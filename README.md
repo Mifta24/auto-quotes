@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief enemy of creativity is good sense."  
-> — **Pablo Picasso**
+> "If I can pay the bills, I'm happy."  
+> — **Morgan Wootten**
 
 ---
 
