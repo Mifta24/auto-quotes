@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The quicker you let go of old cheese, the sooner you find new cheese."  
-> — **Spencer Johnson**
+> "You don't get in life what you want; you get in life what you are."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 25 March 2025 ⏳_
+_Last updated: 26 March 2025 ⏳_
