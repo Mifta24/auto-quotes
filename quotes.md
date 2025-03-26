@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams provide nourishment for the soul, just as a meal does for the body."  
-> — **Paulo Coelho**
+> "You get in life what you have the courage to ask for."  
+> — **Oprah Winfrey**
 
 ---
 
