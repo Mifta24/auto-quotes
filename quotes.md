@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "Dreams provide nourishment for the soul, just as a meal does for the body."  
+> — **Paulo Coelho**
 
 ---
 
