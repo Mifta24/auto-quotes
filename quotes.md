@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who say it cannot be done should not interrupt those who are doing it."  
-> — **George Bernard Shaw**
+> "An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head."  
+> — **Eric Hoffer**
 
 ---
 
