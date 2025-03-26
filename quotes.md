@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Doing what you love is the cornerstone of having abundance in your life. "  
-> — **Wayne Dyer**
+> "Let us rather run the risk of wearing out than rusting out."  
+> — **Theodore Roosevelt**
 
 ---
 
