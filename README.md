@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
-> — **Roy T. Bennett**
+> "There is a difference between giving directions and giving direction."  
+> — **Simon Sinek**
 
 ---
 

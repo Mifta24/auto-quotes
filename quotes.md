@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be so open-minded that your brains fall out."  
-> — **Gilbert Chesterton**
+> "There is a difference between giving directions and giving direction."  
+> — **Simon Sinek**
 
 ---
 
