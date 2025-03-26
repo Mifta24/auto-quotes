@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Doing what you love is the cornerstone of having abundance in your life. "  
-> — **Wayne Dyer**
+> "People who say it cannot be done should not interrupt those who are doing it."  
+> — **George Bernard Shaw**
 
 ---
 
