@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams provide nourishment for the soul, just as a meal does for the body."  
-> — **Paulo Coelho**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You get in life what you have the courage to ask for."  
-> — **Oprah Winfrey**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 
