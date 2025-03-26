@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I can pay the bills, I'm happy."  
-> — **Morgan Wootten**
+> "As a matter of fact is an expression that precedes many an expression that isn't."  
+> — **Laurence J. Peter**
 
 ---
 
