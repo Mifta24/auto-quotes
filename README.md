@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety."  
-> — **Sathya Sai Baba**
+> "It doesn't matter where you are, you are nowhere compared to where you can go."  
+> — **Bob Proctor**
 
 ---
 
