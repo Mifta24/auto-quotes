@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head."  
-> — **Eric Hoffer**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 
