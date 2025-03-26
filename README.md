@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a difference between giving directions and giving direction."  
-> — **Simon Sinek**
+> "Doing what you love is the cornerstone of having abundance in your life. "  
+> — **Wayne Dyer**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "Doing what you love is the cornerstone of having abundance in your life. "  
+> — **Wayne Dyer**
 
 ---
 
