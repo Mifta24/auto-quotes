@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As a matter of fact is an expression that precedes many an expression that isn't."  
-> — **Laurence J. Peter**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 

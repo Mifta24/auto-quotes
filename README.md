@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I can pay the bills, I'm happy."  
-> — **Morgan Wootten**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 
