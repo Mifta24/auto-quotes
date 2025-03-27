@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be as fluid as water, do not give your enemies anything solid to attack."  
-> — **Robert Greene**
+> "Keep your dreams, you never know when you might need them."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
