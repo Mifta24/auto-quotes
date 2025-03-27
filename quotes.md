@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever is begun in anger, ends in shame."  
-> — **Benjamin Franklin**
+> "Fear, uncertainty, and discomfort are your compasses toward growth."  
+> — **Celestine Chua**
 
 ---
 
