@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief cause of failure and unhappiness is trading what you want most for what you want right now."  
-> — **Zig Ziglar**
+> "If you cannot understand something, then you have understood it incorrectly."  
+> — **Kabir**
 
 ---
 
