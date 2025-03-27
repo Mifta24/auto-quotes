@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "The chief cause of failure and unhappiness is trading what you want most for what you want right now."  
+> — **Zig Ziglar**
 
 ---
 
