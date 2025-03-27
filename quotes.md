@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul is neither born, and nor does it die."  
-> — **Bhagavad Gita**
+> "The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty."  
+> — **Winston Churchill**
 
 ---
 
