@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who attain the middle Dominate the whole."  
-> — **Ming-Dao Deng**
+> "The goal is not to be perfect by the end, the goal is to be better today."  
+> — **Simon Sinek**
 
 ---
 
