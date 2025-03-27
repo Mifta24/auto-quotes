@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always forgive your enemies - nothing annoys them so much. "  
-> — **Oscar Wilde**
+> "No one can hurt you without your consent."  
+> — **Eleanor Roosevelt**
 
 ---
 

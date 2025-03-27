@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others have seen what is and asked why. I have seen what could be and asked why not"  
-> — **Pablo Picasso**
+> "No one can hurt you without your consent."  
+> — **Eleanor Roosevelt**
 
 ---
 
