@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
-> — **James Matthew Barrie**
+> "Where we fall are the stepping-stones for our journey."  
+> — **Lolly Daskal**
 
 ---
 
-_Last updated: 26 March 2025 ⏳_
+_Last updated: 27 March 2025 ⏳_
