@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where we fall are the stepping-stones for our journey."  
-> — **Lolly Daskal**
+> "Whatever is begun in anger, ends in shame."  
+> — **Benjamin Franklin**
 
 ---
 
