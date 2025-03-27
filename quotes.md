@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your world is a living expression of how you are using and have used your mind."  
-> — **Earl Nightingale**
+> "Those who attain the middle Dominate the whole."  
+> — **Ming-Dao Deng**
 
 ---
 
