@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
+> — **Les Brown**
 
 ---
 
