@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you cannot understand something, then you have understood it incorrectly."  
-> — **Kabir**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 

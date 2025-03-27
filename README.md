@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief cause of failure and unhappiness is trading what you want most for what you want right now."  
-> — **Zig Ziglar**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 
