@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty."  
-> — **Winston Churchill**
+> "By words the mind is winged."  
+> — **Aristophanes**
 
 ---
 
