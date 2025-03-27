@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear, uncertainty, and discomfort are your compasses toward growth."  
-> — **Celestine Chua**
+> "The soul is neither born, and nor does it die."  
+> — **Bhagavad Gita**
 
 ---
 
