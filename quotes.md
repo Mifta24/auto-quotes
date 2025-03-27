@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one can hurt you without your consent."  
-> — **Eleanor Roosevelt**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 
