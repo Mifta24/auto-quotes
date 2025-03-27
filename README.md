@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "Others have seen what is and asked why. I have seen what could be and asked why not"  
+> — **Pablo Picasso**
 
 ---
 

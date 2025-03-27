@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
-> — **Les Brown**
+> "Others have seen what is and asked why. I have seen what could be and asked why not"  
+> — **Pablo Picasso**
 
 ---
 
