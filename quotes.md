@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your dreams, you never know when you might need them."  
-> — **Carlos Ruiz Zafon**
+> "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain."  
+> — **Josh Waitzkin**
 
 ---
 

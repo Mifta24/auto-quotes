@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be as fluid as water, do not give your enemies anything solid to attack."  
-> — **Robert Greene**
+> "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain."  
+> — **Josh Waitzkin**
 
 ---
 
