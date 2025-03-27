@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one can hurt you without your consent."  
-> — **Eleanor Roosevelt**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
