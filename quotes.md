@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain."  
-> — **Josh Waitzkin**
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
+> — **Maxime Lagace**
 
 ---
 
