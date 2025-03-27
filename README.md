@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who attain the middle Dominate the whole."  
-> — **Ming-Dao Deng**
+> "Be as fluid as water, do not give your enemies anything solid to attack."  
+> — **Robert Greene**
 
 ---
 
