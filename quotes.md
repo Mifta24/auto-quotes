@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not a goal...it's a by-product of a life well lived."  
-> — **Eleanor Roosevelt**
+> "You can easily judge the character of a man by how he treats those who can do nothing for him."  
+> — **Simon Sinek**
 
 ---
 

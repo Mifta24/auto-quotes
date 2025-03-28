@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
-> — **Steve Maraboli**
+> "You can easily judge the character of a man by how he treats those who can do nothing for him."  
+> — **Simon Sinek**
 
 ---
 
