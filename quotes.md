@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is far easier to start something than it is to finish it."  
-> — **Amelia Earhart**
+> "Take away love and our earth is a tomb."  
+> — **Robert Browning**
 
 ---
 
