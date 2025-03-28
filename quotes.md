@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throughout this life, you can never be certain of living long enough to take another breath."  
-> — **Zen Proverb**
+> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
+> — **James Allen**
 
 ---
 
