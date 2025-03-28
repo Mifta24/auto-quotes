@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you always do what you've always done, you'll always get what you've always got. "  
-> — **Henry Ford**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 

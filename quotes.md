@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 
