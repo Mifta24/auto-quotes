@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
-> — **Rumi**
+> "If you always do what you've always done, you'll always get what you've always got. "  
+> — **Henry Ford**
 
 ---
 
