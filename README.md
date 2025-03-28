@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to change an opinion than to persist in a wrong one."  
-> — **Socrates**
+> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
+> — **Rumi**
 
 ---
 

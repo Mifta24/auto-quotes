@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I do not seek. I find."  
-> — **Pablo Picasso**
+> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
+> — **Rumi**
 
 ---
 
