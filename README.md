@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
-> — **Eckhart Tolle**
+> "It is far easier to start something than it is to finish it."  
+> — **Amelia Earhart**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I think self-awareness is probably the most important thing towards being a champion. "  
-> — **Billie Jean King**
+> "It is far easier to start something than it is to finish it."  
+> — **Amelia Earhart**
 
 ---
 
