@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
-> — **James Allen**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 

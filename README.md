@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throughout this life, you can never be certain of living long enough to take another breath."  
-> — **Zen Proverb**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
