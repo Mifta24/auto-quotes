@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you can imagine is real."  
-> — **Pablo Picasso**
+> "To forgive means pardoning the unpardonable."  
+> — **Gilbert Chesterton**
 
 ---
 
