@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you want to be honored by others, you learn to honor them first."  
-> — **Sathya Sai Baba**
+> "Excellence is not an exception, it is a prevailing attitude."  
+> — **Colin Powell**
 
 ---
 
