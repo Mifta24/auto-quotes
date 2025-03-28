@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wheels of justice grind slow but grind fine."  
-> — **Sun Tzu**
+> "It is better to change an opinion than to persist in a wrong one."  
+> — **Socrates**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."  
-> — **Pema Chodron**
+> "It is better to change an opinion than to persist in a wrong one."  
+> — **Socrates**
 
 ---
 
