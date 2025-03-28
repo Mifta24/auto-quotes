@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you want to be honored by others, you learn to honor them first."  
-> — **Sathya Sai Baba**
+> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
+> — **Steve Maraboli**
 
 ---
 

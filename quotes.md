@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Excellence is not an exception, it is a prevailing attitude."  
-> — **Colin Powell**
+> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
+> — **Steve Maraboli**
 
 ---
 
