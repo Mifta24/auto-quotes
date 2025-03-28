@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain."  
-> — **Josh Waitzkin**
+> "Wheels of justice grind slow but grind fine."  
+> — **Sun Tzu**
 
 ---
 
-_Last updated: 27 March 2025 ⏳_
+_Last updated: 28 March 2025 ⏳_

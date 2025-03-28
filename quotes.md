@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "Wheels of justice grind slow but grind fine."  
+> — **Sun Tzu**
 
 ---
 
-_Last updated: 27 March 2025 ⏳_
+_Last updated: 28 March 2025 ⏳_
