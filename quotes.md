@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
-> — **Rumi**
+> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
+> — **Steve Harvey**
 
 ---
 
