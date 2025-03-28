@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's much better to do good in a way that no one knows anything about it."  
-> — **Leo Tolstoy**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 

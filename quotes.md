@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The final mystery is oneself."  
-> — **Oscar Wilde**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 
