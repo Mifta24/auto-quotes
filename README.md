@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is far easier to start something than it is to finish it."  
-> — **Amelia Earhart**
+> "When you want to be honored by others, you learn to honor them first."  
+> — **Sathya Sai Baba**
 
 ---
 
