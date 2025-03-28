@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wheels of justice grind slow but grind fine."  
-> — **Sun Tzu**
+> "To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."  
+> — **Pema Chodron**
 
 ---
 
