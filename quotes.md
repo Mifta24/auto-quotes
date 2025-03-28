@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To forgive means pardoning the unpardonable."  
-> — **Gilbert Chesterton**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
