@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to change an opinion than to persist in a wrong one."  
-> — **Socrates**
+> "I do not seek. I find."  
+> — **Pablo Picasso**
 
 ---
 
