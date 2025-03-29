@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
-> — **Stephen King**
+> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
+> — **Paramahansa Yogananda**
 
 ---
 
