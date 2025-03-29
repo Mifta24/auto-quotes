@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
-> — **C. Sean McGee**
+> "Just try to be the best you can be; never cease trying to be the best you can be. That's in your power."  
+> — **John Wooden**
 
 ---
 
