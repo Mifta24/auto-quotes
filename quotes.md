@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
-> — **Dan Millman**
+> "Remember, hope is a good thing, maybe the best of things."  
+> — **Stephen King**
 
 ---
 
