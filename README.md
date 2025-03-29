@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
-> — **C. Sean McGee**
+> "Information changes your mind. Action changes your circumstances."  
+> — **Jack Butcher**
 
 ---
 

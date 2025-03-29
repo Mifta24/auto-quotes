@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just try to be the best you can be; never cease trying to be the best you can be. That's in your power."  
-> — **John Wooden**
+> "Information changes your mind. Action changes your circumstances."  
+> — **Jack Butcher**
 
 ---
 
