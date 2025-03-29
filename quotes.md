@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Information changes your mind. Action changes your circumstances."  
-> — **Jack Butcher**
+> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
+> — **Osho**
 
 ---
 
