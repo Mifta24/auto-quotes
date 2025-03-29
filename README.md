@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
-> — **Robert Greene**
+> "A man who cannot tolerate small misfortunes can never accomplish great things."  
+> — **Chinese Proverb**
 
 ---
 
