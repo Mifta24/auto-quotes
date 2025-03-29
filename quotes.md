@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "Stay away from people who makes you feel like you are wasting their time."  
+> — **Paulo Coelho**
 
 ---
 
