@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take care of your cents: dollars will take care of themselves."  
-> — **Thomas Jefferson**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 
