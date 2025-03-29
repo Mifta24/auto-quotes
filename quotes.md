@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stay away from people who makes you feel like you are wasting their time."  
-> — **Paulo Coelho**
+> "You live by what you thrill to, and there's the end of it."  
+> — **D. H. Lawrence**
 
 ---
 

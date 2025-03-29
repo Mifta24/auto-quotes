@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "You live by what you thrill to, and there's the end of it."  
+> — **D. H. Lawrence**
 
 ---
 
