@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man who cannot tolerate small misfortunes can never accomplish great things."  
-> — **Chinese Proverb**
+> "We can see through others only when we can see through ourselves."  
+> — **Bruce Lee**
 
 ---
 
