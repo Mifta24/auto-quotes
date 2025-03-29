@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
-> — **Stephen King**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 

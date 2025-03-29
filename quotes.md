@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
-> — **Paramahansa Yogananda**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 
