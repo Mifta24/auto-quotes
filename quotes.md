@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
-> — **Robert Greene**
+> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
+> — **Leonardo da Vinci**
 
 ---
 
