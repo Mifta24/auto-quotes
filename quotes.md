@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can see through others only when we can see through ourselves."  
-> — **Bruce Lee**
+> "We're responsible for everything that happens to us."  
+> — **Yanni**
 
 ---
 
