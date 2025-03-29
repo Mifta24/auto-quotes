@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be confident, not certain."  
-> — **Eleanor Roosevelt**
+> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
+> — **Robert Greene**
 
 ---
 

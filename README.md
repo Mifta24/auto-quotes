@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You live by what you thrill to, and there's the end of it."  
-> — **D. H. Lawrence**
+> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
+> — **Robert Greene**
 
 ---
 
