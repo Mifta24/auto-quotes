@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
+> — **C. Sean McGee**
 
 ---
 
