@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can easily judge the character of a man by how he treats those who can do nothing for him."  
-> — **Simon Sinek**
+> "Take care of your cents: dollars will take care of themselves."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 28 March 2025 ⏳_
+_Last updated: 29 March 2025 ⏳_
