@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember, hope is a good thing, maybe the best of things."  
-> — **Stephen King**
+> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
+> — **Zig Ziglar**
 
 ---
 

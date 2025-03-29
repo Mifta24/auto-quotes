@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
-> — **Dan Millman**
+> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
+> — **Zig Ziglar**
 
 ---
 
