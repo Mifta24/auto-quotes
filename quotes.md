@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
-> — **Osho**
+> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
+> — **Stephen King**
 
 ---
 

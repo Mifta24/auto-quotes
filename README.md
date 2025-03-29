@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Information changes your mind. Action changes your circumstances."  
-> — **Jack Butcher**
+> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
+> — **Stephen King**
 
 ---
 
