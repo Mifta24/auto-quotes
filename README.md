@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can see through others only when we can see through ourselves."  
-> — **Bruce Lee**
+> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
+> — **Dan Millman**
 
 ---
 
