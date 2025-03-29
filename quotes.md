@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is difficult to free fools from the chains they revere. "  
-> — **Voltaire**
+> "Always turn a negative situation into a positive situation."  
+> — **Michael Jordan**
 
 ---
 

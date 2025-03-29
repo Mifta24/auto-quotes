@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
-> — **Zig Ziglar**
+> "Always turn a negative situation into a positive situation."  
+> — **Michael Jordan**
 
 ---
 
