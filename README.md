@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Always turn a negative situation into a positive situation."  
-> — **Michael Jordan**
+> "He that can have patience can have what he will."  
+> — **Benjamin Franklin**
 
 ---
 
-_Last updated: 29 March 2025 ⏳_
+_Last updated: 30 March 2025 ⏳_

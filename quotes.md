@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's OK to have your eggs in one basket as long as you control what happens to that basket."  
-> — **Elon Musk**
+> "He that can have patience can have what he will."  
+> — **Benjamin Franklin**
 
 ---
 
-_Last updated: 29 March 2025 ⏳_
+_Last updated: 30 March 2025 ⏳_
