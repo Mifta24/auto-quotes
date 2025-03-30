@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Living life in style also means living a life of balance."  
-> — **Jim Rohn**
+> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."  
+> — **Thich Nhat Hanh**
 
 ---
 
