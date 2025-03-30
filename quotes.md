@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is startling to realize how much unbelief is necessary to make belief possible."  
-> — **Eric Hoffer**
+> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
+> — **Rumi**
 
 ---
 
