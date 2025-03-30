@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "  
-> — **Lao Tzu**
+> "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration. "  
+> — **Nikola Tesla**
 
 ---
 
