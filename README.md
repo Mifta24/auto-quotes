@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul without imagination is what an observatory would be without a telescope."  
-> — **Henry Ward Beecher**
+> "Life is about not knowing and then doing something anyway."  
+> — **Mark Manson**
 
 ---
 

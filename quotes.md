@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."  
-> — **Gurbaksh Chahal**
+> "Life is about not knowing and then doing something anyway."  
+> — **Mark Manson**
 
 ---
 
