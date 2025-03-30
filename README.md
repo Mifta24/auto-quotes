@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is startling to realize how much unbelief is necessary to make belief possible."  
-> — **Eric Hoffer**
+> "Living life in style also means living a life of balance."  
+> — **Jim Rohn**
 
 ---
 
