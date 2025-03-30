@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather be hated for who I am than loved for who I'm not.  "  
-> — **Wayne Dyer**
+> "Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "  
+> — **Lao Tzu**
 
 ---
 

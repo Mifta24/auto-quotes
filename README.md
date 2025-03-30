@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The question isn't who is going to let me; it's who is going to stop me."  
-> — **Ayn Rand**
+> "Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "  
+> — **Lao Tzu**
 
 ---
 
