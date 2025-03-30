@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our greatest glory is not in never falling, but in rising every time we fall. "  
-> — **Confucius**
+> "Don't wish it were easier, wish you were better."  
+> — **Jim Rohn**
 
 ---
 
