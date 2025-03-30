@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way round is through."  
-> — **Robert Frost**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 
