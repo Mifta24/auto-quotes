@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
-> — **Paulo Coelho**
+> "Our happiness depends on the habit of mind we cultivate."  
+> — **Norman Vincent Peale**
 
 ---
 
