@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way round is through."  
-> — **Robert Frost**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 

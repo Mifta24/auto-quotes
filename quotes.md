@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 
