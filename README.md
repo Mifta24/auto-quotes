@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "  
-> — **Lao Tzu**
+> "The only way round is through."  
+> — **Robert Frost**
 
 ---
 
