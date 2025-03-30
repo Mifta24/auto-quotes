@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Living life in style also means living a life of balance."  
-> — **Jim Rohn**
+> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."  
+> — **Dr. Seuss**
 
 ---
 
