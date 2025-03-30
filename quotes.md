@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is contagious. So is lack of confidence."  
-> — **Vince Lombardi**
+> "The health of nations is more important than the wealth of nations."  
+> — **Will Rogers**
 
 ---
 
