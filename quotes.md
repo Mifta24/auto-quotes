@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The health of nations is more important than the wealth of nations."  
-> — **Will Rogers**
+> "The soul without imagination is what an observatory would be without a telescope."  
+> — **Henry Ward Beecher**
 
 ---
 

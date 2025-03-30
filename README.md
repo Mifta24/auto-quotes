@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is contagious. So is lack of confidence."  
-> — **Vince Lombardi**
+> "The soul without imagination is what an observatory would be without a telescope."  
+> — **Henry Ward Beecher**
 
 ---
 
