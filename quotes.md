@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about not knowing and then doing something anyway."  
-> — **Mark Manson**
+> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
+> — **C. Sean McGee**
 
 ---
 
