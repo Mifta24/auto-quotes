@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our happiness depends on the habit of mind we cultivate."  
-> — **Norman Vincent Peale**
+> "Confidence is contagious. So is lack of confidence."  
+> — **Vince Lombardi**
 
 ---
 

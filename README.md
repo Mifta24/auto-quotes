@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
-> — **Paulo Coelho**
+> "Confidence is contagious. So is lack of confidence."  
+> — **Vince Lombardi**
 
 ---
 
