@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about not knowing and then doing something anyway."  
-> — **Mark Manson**
+> "It is startling to realize how much unbelief is necessary to make belief possible."  
+> — **Eric Hoffer**
 
 ---
 
