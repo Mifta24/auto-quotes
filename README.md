@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He that can have patience can have what he will."  
-> — **Benjamin Franklin**
+> "The question isn't who is going to let me; it's who is going to stop me."  
+> — **Ayn Rand**
 
 ---
 
