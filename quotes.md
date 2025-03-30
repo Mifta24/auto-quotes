@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wish it were easier, wish you were better."  
-> — **Jim Rohn**
+> "Unhappiness enters through a door that has been left open."  
+> — **Zen Proverb**
 
 ---
 
