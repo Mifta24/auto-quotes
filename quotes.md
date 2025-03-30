@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He that can have patience can have what he will."  
-> — **Benjamin Franklin**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 
