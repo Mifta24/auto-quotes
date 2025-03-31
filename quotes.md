@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
-> — **Charles Dickens**
+> "If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes."  
+> — **Andrew Carnegie**
 
 ---
 
