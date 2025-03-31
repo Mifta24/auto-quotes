@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just get out and do it. You will be very, very glad that you did."  
-> — **Christopher McCandless**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 

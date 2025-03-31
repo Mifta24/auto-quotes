@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't learn to do, but learn in doing."  
-> — **Samuel Butler**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 
