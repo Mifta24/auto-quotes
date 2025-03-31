@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
-> — **Henry Ward Beecher**
+> "Play your part in life, but never forget that it is only a role."  
+> — **Paramahansa Yogananda**
 
 ---
 

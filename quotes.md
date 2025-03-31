@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "Play your part in life, but never forget that it is only a role."  
+> — **Paramahansa Yogananda**
 
 ---
 
