@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
-> — **Dan Millman**
+> "Just get out and do it. You will be very, very glad that you did."  
+> — **Christopher McCandless**
 
 ---
 

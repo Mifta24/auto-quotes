@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success comes from knowing that you did your best to become the best that you are capable of becoming."  
-> — **John Wooden**
+> "Just get out and do it. You will be very, very glad that you did."  
+> — **Christopher McCandless**
 
 ---
 
