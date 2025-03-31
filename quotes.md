@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
-> — **Dan Millman**
+> "Success comes from knowing that you did your best to become the best that you are capable of becoming."  
+> — **John Wooden**
 
 ---
 
