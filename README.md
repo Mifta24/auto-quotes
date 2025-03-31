@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your spirit is the true shield."  
-> — **Morihei Ueshiba**
+> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
+> — **Tony Robbins**
 
 ---
 

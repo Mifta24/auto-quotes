@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Numbing the pain for a while will only make it worse when you finally feel it."  
-> — **Albus Dumbledore**
+> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
+> — **Tony Robbins**
 
 ---
 
