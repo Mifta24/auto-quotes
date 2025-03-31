@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter."  
-> — **Celestine Chua**
+> "Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on."  
+> — **Criss Jami**
 
 ---
 
