@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
-> — **Tony Robbins**
+> "Keep others in suspense, cultivate an air of unpredictability."  
+> — **Robert Greene**
 
 ---
 

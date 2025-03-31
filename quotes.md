@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people feel the rain. Others just get wet. "  
-> — **Bob Dylan**
+> "Keep others in suspense, cultivate an air of unpredictability."  
+> — **Robert Greene**
 
 ---
 
