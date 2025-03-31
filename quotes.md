@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
-> — **Tony Robbins**
+> "Some people feel the rain. Others just get wet. "  
+> — **Bob Dylan**
 
 ---
 
