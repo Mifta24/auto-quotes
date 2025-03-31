@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt."  
-> — **Jack London**
+> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
+> — **Dan Millman**
 
 ---
 
