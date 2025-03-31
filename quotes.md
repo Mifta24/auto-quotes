@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends."  
-> — **Deepak Chopra**
+> "Your spirit is the true shield."  
+> — **Morihei Ueshiba**
 
 ---
 

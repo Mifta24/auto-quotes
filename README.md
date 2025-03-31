@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
-> — **Jack London**
+> "Your spirit is the true shield."  
+> — **Morihei Ueshiba**
 
 ---
 
