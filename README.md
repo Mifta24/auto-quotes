@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
-> — **Charles Dickens**
+> "The goal of an artist is to create the definitive work that cannot be surpassed."  
+> — **George Bernard Shaw**
 
 ---
 
