@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
-> — **Jack London**
+> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends."  
+> — **Deepak Chopra**
 
 ---
 
