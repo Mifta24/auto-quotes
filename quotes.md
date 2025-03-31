@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Play your part in life, but never forget that it is only a role."  
-> — **Paramahansa Yogananda**
+> "You're never too old for anything."  
+> — **Betty White**
 
 ---
 
