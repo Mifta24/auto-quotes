@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt."  
+> — **Jack London**
 
 ---
 
