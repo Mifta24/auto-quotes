@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence breeds beauty.  "  
-> — **Estee Lauder**
+> "In the middle of difficulty lies opportunity."  
+> — **Albert Einstein**
 
 ---
 
