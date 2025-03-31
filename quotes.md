@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just get out and do it. You will be very, very glad that you did."  
-> — **Christopher McCandless**
+> "Don't learn to do, but learn in doing."  
+> — **Samuel Butler**
 
 ---
 
