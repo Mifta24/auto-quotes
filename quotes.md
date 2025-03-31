@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your spirit is the true shield."  
-> — **Morihei Ueshiba**
+> "Numbing the pain for a while will only make it worse when you finally feel it."  
+> — **Albus Dumbledore**
 
 ---
 
