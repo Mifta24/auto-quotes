@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The goal of an artist is to create the definitive work that cannot be surpassed."  
-> — **George Bernard Shaw**
+> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
+> — **Henry Ward Beecher**
 
 ---
 

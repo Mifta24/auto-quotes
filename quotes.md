@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To know even one life has breathed easier because you have lived. This is to have succeeded."  
-> — **Ralph Waldo Emerson**
+> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
+> — **Henry Ward Beecher**
 
 ---
 
