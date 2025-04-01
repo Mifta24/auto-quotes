@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always focus on the front windshield and not the rear view mirror."  
-> — **Colin Powell**
+> "Fiction is the truth inside the lie."  
+> — **Stephen King**
 
 ---
 

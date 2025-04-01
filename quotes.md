@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only limits in your life are those that you set yourself."  
-> — **Celestine Chua**
+> "Fiction is the truth inside the lie."  
+> — **Stephen King**
 
 ---
 
