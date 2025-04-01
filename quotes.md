@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
-> — **Josh Waitzkin**
+> "I would rather be a little nobody, then to be an evil somebody."  
+> — **Abraham Lincoln**
 
 ---
 
