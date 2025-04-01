@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."  
-> — **Elbert Hubbard**
+> "You use a glass mirror to see your face; you use works of art to see your soul."  
+> — **George Bernard Shaw**
 
 ---
 
