@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be kind, for everyone you meet is fighting a harder battle."  
-> — **Plato**
+> "Life is like a beautiful melody, only the lyrics are messed up."  
+> — **Hans Christian Andersen**
 
 ---
 
