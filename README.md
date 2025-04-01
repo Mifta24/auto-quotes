@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
-> — **Josh Waitzkin**
+> "Heroes don't need to talk about what they did."  
+> — **W.P. Kinsella**
 
 ---
 
