@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "Never take your position for granted and never let any favors you receive go to your head."  
+> — **Robert Greene**
 
 ---
 
