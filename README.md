@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone is a moon, and has a dark side which he never shows to anybody."  
-> — **Mark Twain**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 
