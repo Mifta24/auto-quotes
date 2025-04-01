@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no absolute success in the world, only constant progress."  
-> — **Jonathan Swift**
+> "It matters not what someone is born, but what they grow to be."  
+> — **Albus Dumbledore**
 
 ---
 
