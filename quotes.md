@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You're never too old for anything."  
-> — **Betty White**
+> "Be kind, for everyone you meet is fighting a harder battle."  
+> — **Plato**
 
 ---
 
-_Last updated: 31 March 2025 ⏳_
+_Last updated: 01 April 2025 ⏳_
