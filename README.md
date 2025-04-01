@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "Progress lies not in enhancing what is, but in advancing toward what will be."  
+> — **Kahlil Gibran**
 
 ---
 
