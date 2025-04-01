@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fiction is the truth inside the lie."  
-> — **Stephen King**
+> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."  
+> — **Elbert Hubbard**
 
 ---
 
