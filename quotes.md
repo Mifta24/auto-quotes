@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always focus on the front windshield and not the rear view mirror."  
-> — **Colin Powell**
+> "The only limits in your life are those that you set yourself."  
+> — **Celestine Chua**
 
 ---
 
