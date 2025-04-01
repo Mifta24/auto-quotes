@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heroes don't need to talk about what they did."  
-> — **W.P. Kinsella**
+> "Small men think they are small; great men never know they are great. "  
+> — **Chinese Proverb**
 
 ---
 
