@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
-> — **Robert Frost**
+> "Truth is like the sun. You can shut it out for a time, but it ain't going away."  
+> — **Elvis Presley**
 
 ---
 
