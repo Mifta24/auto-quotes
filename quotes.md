@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Small men think they are small; great men never know they are great. "  
-> — **Chinese Proverb**
+> "Always focus on the front windshield and not the rear view mirror."  
+> — **Colin Powell**
 
 ---
 

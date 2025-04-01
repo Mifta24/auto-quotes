@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heroes don't need to talk about what they did."  
-> — **W.P. Kinsella**
+> "Always focus on the front windshield and not the rear view mirror."  
+> — **Colin Powell**
 
 ---
 
