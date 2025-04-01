@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress lies not in enhancing what is, but in advancing toward what will be."  
-> — **Kahlil Gibran**
+> "A golden cage is still just a cage."  
+> — **Anita Krizzan**
 
 ---
 

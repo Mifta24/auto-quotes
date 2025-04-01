@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever you are is the entry point."  
-> — **Kabir**
+> "A golden cage is still just a cage."  
+> — **Anita Krizzan**
 
 ---
 
