@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no absolute success in the world, only constant progress."  
-> — **Jonathan Swift**
+> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
+> — **Josh Waitzkin**
 
 ---
 

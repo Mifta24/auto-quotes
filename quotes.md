@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It matters not what someone is born, but what they grow to be."  
-> — **Albus Dumbledore**
+> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
+> — **Josh Waitzkin**
 
 ---
 
