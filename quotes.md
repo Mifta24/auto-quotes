@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fiction is the truth inside the lie."  
-> — **Stephen King**
+> "We must be free not because we claim freedom, but because we practice it."  
+> — **William Faulkner**
 
 ---
 
