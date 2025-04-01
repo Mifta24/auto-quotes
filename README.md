@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be kind, for everyone you meet is fighting a harder battle."  
-> — **Plato**
+> "Everyone is a moon, and has a dark side which he never shows to anybody."  
+> — **Mark Twain**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a beautiful melody, only the lyrics are messed up."  
-> — **Hans Christian Andersen**
+> "Everyone is a moon, and has a dark side which he never shows to anybody."  
+> — **Mark Twain**
 
 ---
 
