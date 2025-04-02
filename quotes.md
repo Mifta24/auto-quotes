@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When the time is gone, you can never get it back."  
-> — **Stephen King**
+> "Imagination is the true magic carpet."  
+> — **Norman Vincent Peale**
 
 ---
 

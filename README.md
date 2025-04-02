@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is a bitter plant, but its fruit is sweet."  
-> — **Chinese Proverb**
+> "Imagination is the true magic carpet."  
+> — **Norman Vincent Peale**
 
 ---
 
