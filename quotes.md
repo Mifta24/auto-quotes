@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
-> — **Lolly Daskal**
+> "Charms strike the sight, but merit wins the soul."  
+> — **Alexander Pope**
 
 ---
 
