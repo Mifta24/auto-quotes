@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What keeps life fascinating is the constant creativity of the soul."  
-> — **Deepak Chopra**
+> "It is well known that those who do not trust themselves never trust others."  
+> — **Alfred Adler**
 
 ---
 

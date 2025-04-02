@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To become what you are not, behave as you do not."  
-> — **T.S. Eliot**
+> "It is well known that those who do not trust themselves never trust others."  
+> — **Alfred Adler**
 
 ---
 
