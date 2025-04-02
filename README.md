@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "Talk sense to a fool and he calls you foolish."  
+> — **Euripides**
 
 ---
 

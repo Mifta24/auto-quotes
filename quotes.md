@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "Talk sense to a fool and he calls you foolish."  
+> — **Euripides**
 
 ---
 
