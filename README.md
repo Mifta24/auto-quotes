@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
-> — **Lolly Daskal**
+> "Do you want to know who you are? Don't ask. Act! Action will delineate and define you."  
+> — **Thomas Jefferson**
 
 ---
 
