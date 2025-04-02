@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is a bitter plant, but its fruit is sweet."  
-> — **Chinese Proverb**
+> "When the time is gone, you can never get it back."  
+> — **Stephen King**
 
 ---
 
