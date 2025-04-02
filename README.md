@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A golden cage is still just a cage."  
-> — **Anita Krizzan**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
-_Last updated: 01 April 2025 ⏳_
+_Last updated: 02 April 2025 ⏳_
