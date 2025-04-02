@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your purpose will be clear only when you listen to your heart."  
-> — **Lolly Daskal**
+> "Patience is a bitter plant, but its fruit is sweet."  
+> — **Chinese Proverb**
 
 ---
 

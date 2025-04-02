@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results."  
-> — **James Allen**
+> "Patience is a bitter plant, but its fruit is sweet."  
+> — **Chinese Proverb**
 
 ---
 
