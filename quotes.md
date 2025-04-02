@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is well known that those who do not trust themselves never trust others."  
-> — **Alfred Adler**
+> "It isn't what you do, but how you do it."  
+> — **John Wooden**
 
 ---
 
