@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To become what you are not, behave as you do not."  
-> — **T.S. Eliot**
+> "What keeps life fascinating is the constant creativity of the soul."  
+> — **Deepak Chopra**
 
 ---
 
