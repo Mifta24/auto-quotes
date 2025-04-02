@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never give way to laziness."  
-> — **Bhagavad Gita**
+> "The best answer to anger is silence."  
+> — **Marcus Aurelius**
 
 ---
 
