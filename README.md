@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results."  
+> — **James Allen**
 
 ---
 
