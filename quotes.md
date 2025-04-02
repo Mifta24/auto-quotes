@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is your attitude, not your aptitude, that determines your altitude."  
-> — **Zig Ziglar**
+> "To become what you are not, behave as you do not."  
+> — **T.S. Eliot**
 
 ---
 
