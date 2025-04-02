@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
-> — **Gilbert Chesterton**
+> "If you let your head get too big, it'll break your neck."  
+> — **Elvis Presley**
 
 ---
 
