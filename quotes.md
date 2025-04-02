@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't gain the world and lose your soul. Wisdom is better than silver and gold."  
-> — **Bob Marley**
+> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
+> — **Gilbert Chesterton**
 
 ---
 

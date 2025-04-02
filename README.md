@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best answer to anger is silence."  
-> — **Marcus Aurelius**
+> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
+> — **Gilbert Chesterton**
 
 ---
 
