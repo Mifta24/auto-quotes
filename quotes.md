@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the true magic carpet."  
-> — **Norman Vincent Peale**
+> "We are all born ignorant, but one must work hard to remain stupid."  
+> — **Benjamin Franklin**
 
 ---
 
