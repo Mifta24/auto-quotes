@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talk sense to a fool and he calls you foolish."  
-> — **Euripides**
+> "Never give way to laziness."  
+> — **Bhagavad Gita**
 
 ---
 
