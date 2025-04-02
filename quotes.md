@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best answer to anger is silence."  
-> — **Marcus Aurelius**
+> "Don't gain the world and lose your soul. Wisdom is better than silver and gold."  
+> — **Bob Marley**
 
 ---
 
