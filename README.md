@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the true magic carpet."  
-> — **Norman Vincent Peale**
+> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
+> — **Lolly Daskal**
 
 ---
 

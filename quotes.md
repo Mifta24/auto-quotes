@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all born ignorant, but one must work hard to remain stupid."  
-> — **Benjamin Franklin**
+> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
+> — **Lolly Daskal**
 
 ---
 
