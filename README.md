@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
-> — **Arnold Schwarzenegger**
+> "Who looks outside, dreams; who looks inside, awakes."  
+> — **Lolly Daskal**
 
 ---
 
