@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
-> — **Arnold Schwarzenegger**
+> "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves."  
+> — **Steve Maraboli**
 
 ---
 
