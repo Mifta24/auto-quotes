@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What the mind can conceive, it can achieve."  
-> — **Napoleon Hill**
+> "Discontent is the first necessity of progress."  
+> — **Thomas Edison**
 
 ---
 

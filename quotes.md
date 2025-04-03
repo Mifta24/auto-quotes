@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect was invented to cover the empty place where love should be."  
-> — **Leo Tolstoy**
+> "Discontent is the first necessity of progress."  
+> — **Thomas Edison**
 
 ---
 
