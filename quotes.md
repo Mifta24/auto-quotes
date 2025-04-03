@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated."  
-> — **Albus Dumbledore**
+> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. "  
+> — **Lao Tzu**
 
 ---
 

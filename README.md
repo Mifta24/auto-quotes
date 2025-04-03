@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. "  
+> — **Lao Tzu**
 
 ---
 
