@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored."  
-> — **Earl Nightingale**
+> "If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."  
+> — **Robert Kiyosaki**
 
 ---
 
