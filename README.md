@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Discontent is the first necessity of progress."  
-> — **Thomas Edison**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 

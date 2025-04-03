@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune. "  
-> — **Charles Swindoll**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 
