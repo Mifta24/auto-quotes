@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is well known that those who do not trust themselves never trust others."  
-> — **Alfred Adler**
+> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
+> — **Eleanor Roosevelt**
 
 ---
 
-_Last updated: 02 April 2025 ⏳_
+_Last updated: 03 April 2025 ⏳_

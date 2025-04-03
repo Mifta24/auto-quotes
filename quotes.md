@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It isn't what you do, but how you do it."  
-> — **John Wooden**
+> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
+> — **Eleanor Roosevelt**
 
 ---
 
-_Last updated: 02 April 2025 ⏳_
+_Last updated: 03 April 2025 ⏳_
