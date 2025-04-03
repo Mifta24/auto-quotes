@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever satisfies the soul is truth."  
-> — **Walt Whitman**
+> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored."  
+> — **Earl Nightingale**
 
 ---
 
