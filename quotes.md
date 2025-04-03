@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Treat everyone with politeness and kindness, not because they are nice, but because you are."  
-> — **Roy T. Bennett**
+> "What the mind can conceive, it can achieve."  
+> — **Napoleon Hill**
 
 ---
 

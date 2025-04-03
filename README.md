@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "What the mind can conceive, it can achieve."  
+> — **Napoleon Hill**
 
 ---
 
