@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
-> — **Eleanor Roosevelt**
+> "Man suffers only because he takes seriously what the gods made for fun."  
+> — **Alan Watts**
 
 ---
 
