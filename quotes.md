@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."  
-> — **Robert Kiyosaki**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
