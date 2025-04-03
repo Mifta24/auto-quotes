@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. "  
-> — **Lao Tzu**
+> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
+> — **Arnold Schwarzenegger**
 
 ---
 

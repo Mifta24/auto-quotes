@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Create with the heart; build with the mind."  
-> — **Criss Jami**
+> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
+> — **Arnold Schwarzenegger**
 
 ---
 
