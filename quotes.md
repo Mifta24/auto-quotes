@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. "  
-> — **Lao Tzu**
+> "Create with the heart; build with the mind."  
+> — **Criss Jami**
 
 ---
 
