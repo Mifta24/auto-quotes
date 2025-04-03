@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conquer the devils with a little thing called love."  
-> — **Bob Marley**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 

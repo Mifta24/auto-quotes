@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great discovery was ever made without a bold guess. "  
-> — **Isaac Newton**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 
