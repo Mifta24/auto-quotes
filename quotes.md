@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the midst of movement and chaos, keep stillness inside of you."  
-> — **Deepak Chopra**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 

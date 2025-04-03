@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Zen insists that the whole trouble is just our failure to realize that there is no problem."  
-> — **Bruce Lee**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
