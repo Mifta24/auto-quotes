@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
-> — **Eleanor Roosevelt**
+> "No great discovery was ever made without a bold guess. "  
+> — **Isaac Newton**
 
 ---
 

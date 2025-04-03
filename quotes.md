@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man suffers only because he takes seriously what the gods made for fun."  
-> — **Alan Watts**
+> "No great discovery was ever made without a bold guess. "  
+> — **Isaac Newton**
 
 ---
 
