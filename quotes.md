@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Zen insists that the whole trouble is just our failure to realize that there is no problem."  
-> — **Bruce Lee**
+> "In the midst of movement and chaos, keep stillness inside of you."  
+> — **Deepak Chopra**
 
 ---
 
