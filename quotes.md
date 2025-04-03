@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 
