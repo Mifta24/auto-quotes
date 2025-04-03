@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember to look up at the stars and not down at your feet."  
-> — **Stephen Hawking**
+> "Zen insists that the whole trouble is just our failure to realize that there is no problem."  
+> — **Bruce Lee**
 
 ---
 

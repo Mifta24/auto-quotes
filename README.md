@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "Zen insists that the whole trouble is just our failure to realize that there is no problem."  
+> — **Bruce Lee**
 
 ---
 
