@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great discovery was ever made without a bold guess. "  
-> — **Isaac Newton**
+> "Conquer the devils with a little thing called love."  
+> — **Bob Marley**
 
 ---
 
