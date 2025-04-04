@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No problem can be solved from the same level of consciousness that created it."  
-> — **Albert Einstein**
+> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
+> — **James Allen**
 
 ---
 

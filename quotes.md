@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "A person is only by the thoughts that he chooses."  
+> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
 > — **James Allen**
 
 ---
