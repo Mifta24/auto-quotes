@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."  
-> — **Eleanor Roosevelt**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 

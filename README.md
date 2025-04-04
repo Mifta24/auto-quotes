@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
