@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To become what you are not, behave as you do not."  
-> — **T.S. Eliot**
+> "We need never be ashamed of our tears."  
+> — **Charles Dickens**
 
 ---
 
