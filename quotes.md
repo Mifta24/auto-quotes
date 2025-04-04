@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "Do not regret the past. Look to the future."  
+> — **Soyen Shaku**
 
 ---
 
