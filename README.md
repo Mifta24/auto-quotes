@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can have more than we've got because we can become more than we are."  
-> — **Jim Rohn**
+> "Genius is the ability to act rightly without precedent - the power to do the right thing the first time."  
+> — **Elbert Hubbard**
 
 ---
 

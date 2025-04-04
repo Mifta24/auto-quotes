@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To handle yourself, use your head; to handle others, use your heart."  
-> — **Eleanor Roosevelt**
+> "Genius is the ability to act rightly without precedent - the power to do the right thing the first time."  
+> — **Elbert Hubbard**
 
 ---
 
