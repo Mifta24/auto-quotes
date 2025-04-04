@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not regret the past. Look to the future."  
-> — **Soyen Shaku**
+> "We're kept from our goal not by obstacles, but by a clear path to a lesser goal."  
+> — **Bhagavad Gita**
 
 ---
 
