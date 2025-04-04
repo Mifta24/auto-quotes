@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's much better to do good in a way that no one knows anything about it."  
-> — **Leo Tolstoy**
+> "Happiness is not the absence of problems, it's the ability to deal with them."  
+> — **Steve Maraboli**
 
 ---
 
