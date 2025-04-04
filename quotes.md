@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
-> — **Dan Millman**
+> "If you don't like something change it; if you can't change it, change the way you think about it."  
+> — **Mary Engelbreit**
 
 ---
 
