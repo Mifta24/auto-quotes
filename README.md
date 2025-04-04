@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take care of your body. It's the only place you have to live."  
-> — **Jim Rohn**
+> "No problem can be solved from the same level of consciousness that created it."  
+> — **Albert Einstein**
 
 ---
 

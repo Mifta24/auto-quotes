@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To forgive means pardoning the unpardonable."  
-> — **Gilbert Chesterton**
+> "No problem can be solved from the same level of consciousness that created it."  
+> — **Albert Einstein**
 
 ---
 
