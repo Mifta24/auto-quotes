@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We're kept from our goal not by obstacles, but by a clear path to a lesser goal."  
-> — **Bhagavad Gita**
+> "To become what you are not, behave as you do not."  
+> — **T.S. Eliot**
 
 ---
 

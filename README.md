@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not regret the past. Look to the future."  
-> — **Soyen Shaku**
+> "To become what you are not, behave as you do not."  
+> — **T.S. Eliot**
 
 ---
 
