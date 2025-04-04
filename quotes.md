@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can have more than we've got because we can become more than we are."  
-> — **Jim Rohn**
+> "To handle yourself, use your head; to handle others, use your heart."  
+> — **Eleanor Roosevelt**
 
 ---
 
