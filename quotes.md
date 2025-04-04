@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not the absence of problems, it's the ability to deal with them."  
-> — **Steve Maraboli**
+> "Some people want it to happen, some wish it would happen, others make it happen."  
+> — **Michael Jordan**
 
 ---
 
