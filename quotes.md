@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is the greatest friend."  
-> — **Lao Tzu**
+> "You are not the drop in the ocean, but the ocean in the drop."  
+> — **Deepak Chopra**
 
 ---
 
