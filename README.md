@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
-> — **James Allen**
+> "Honesty is the first chapter in the book of wisdom."  
+> — **Thomas Jefferson**
 
 ---
 

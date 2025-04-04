@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
-> — **Bhagavad Gita**
+> "Honesty is the first chapter in the book of wisdom."  
+> — **Thomas Jefferson**
 
 ---
 
