@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not the drop in the ocean, but the ocean in the drop."  
-> — **Deepak Chopra**
+> "Take care of your body. It's the only place you have to live."  
+> — **Jim Rohn**
 
 ---
 
