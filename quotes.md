@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."  
+> — **Eleanor Roosevelt**
 
 ---
 
