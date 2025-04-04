@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 03 April 2025 ⏳_
+_Last updated: 04 April 2025 ⏳_

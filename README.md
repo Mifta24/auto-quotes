@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."  
-> — **Robert Kiyosaki**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 03 April 2025 ⏳_
+_Last updated: 04 April 2025 ⏳_
