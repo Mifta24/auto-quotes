@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
-> — **Dan Millman**
+> "We can have more than we've got because we can become more than we are."  
+> — **Jim Rohn**
 
 ---
 

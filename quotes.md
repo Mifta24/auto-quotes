@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't like something change it; if you can't change it, change the way you think about it."  
-> — **Mary Engelbreit**
+> "We can have more than we've got because we can become more than we are."  
+> — **Jim Rohn**
 
 ---
 
