@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We need never be ashamed of our tears."  
-> — **Charles Dickens**
+> "Confidence is the greatest friend."  
+> — **Lao Tzu**
 
 ---
 

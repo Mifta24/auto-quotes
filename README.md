@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To become what you are not, behave as you do not."  
-> — **T.S. Eliot**
+> "Confidence is the greatest friend."  
+> — **Lao Tzu**
 
 ---
 
