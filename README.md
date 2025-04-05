@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
-> — **Gilbert Chesterton**
+> "Never do to others what you would not like them to do to you. "  
+> — **Confucius**
 
 ---
 
