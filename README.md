@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All we have to decide is what to do with the time that is given to us."  
-> — **J.R.R. Tolkien**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We build too many walls and not enough bridges."  
-> — **Isaac Newton**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 
