@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never do to others what you would not like them to do to you. "  
-> — **Confucius**
+> "There's more to life than being a passenger."  
+> — **Amelia Earhart**
 
 ---
 

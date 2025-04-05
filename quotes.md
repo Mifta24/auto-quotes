@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you live all the days of your life."  
-> — **Jonathan Swift**
+> "There's more to life than being a passenger."  
+> — **Amelia Earhart**
 
 ---
 
