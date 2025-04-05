@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is not having the strength to go on; it is going on when you don't have the strength."  
-> — **Theodore Roosevelt**
+> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
+> — **Gilbert Chesterton**
 
 ---
 

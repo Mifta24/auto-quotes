@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be approximately right rather than exactly wrong."  
-> — **John Tukey**
+> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
+> — **Gilbert Chesterton**
 
 ---
 
