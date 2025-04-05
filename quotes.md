@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best time to plant a tree was 20 years ago. The second best time is now."  
-> — **Zen Proverb**
+> "Stress happens when the mind resists what is."  
+> — **Dan Millman**
 
 ---
 
