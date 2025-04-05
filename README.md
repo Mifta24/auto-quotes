@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
-> — **Eckhart Tolle**
+> "You miss 100% of the shots you don't take."  
+> — **Wayne Gretzky**
 
 ---
 

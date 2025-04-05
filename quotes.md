@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We love the things we love for what they are."  
-> — **Robert Frost**
+> "You miss 100% of the shots you don't take."  
+> — **Wayne Gretzky**
 
 ---
 
