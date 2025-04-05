@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not absentminded. It is the presence of mind that makes me unaware of everything else."  
-> — **Gilbert Chesterton**
+> "You purchase pain with all that joy can give and die of nothing but a rage to live."  
+> — **Alexander Pope**
 
 ---
 
