@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time."  
-> — **Thomas Jefferson**
+> "The best time to plant a tree was 20 years ago. The second best time is now."  
+> — **Zen Proverb**
 
 ---
 
-_Last updated: 04 April 2025 ⏳_
+_Last updated: 05 April 2025 ⏳_

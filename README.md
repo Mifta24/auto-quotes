@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Genius is the ability to act rightly without precedent - the power to do the right thing the first time."  
-> — **Elbert Hubbard**
+> "The best time to plant a tree was 20 years ago. The second best time is now."  
+> — **Zen Proverb**
 
 ---
 
-_Last updated: 04 April 2025 ⏳_
+_Last updated: 05 April 2025 ⏳_
