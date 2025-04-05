@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's more to life than being a passenger."  
-> — **Amelia Earhart**
+> "Many a man has failed because he had his wishbone where his backbone should have been."  
+> — **Ronald Reagan**
 
 ---
 
