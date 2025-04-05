@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's more to life than being a passenger."  
-> — **Amelia Earhart**
+> "The meaning of life is that it stops."  
+> — **Franz Kafka**
 
 ---
 

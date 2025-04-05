@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many a man has failed because he had his wishbone where his backbone should have been."  
-> — **Ronald Reagan**
+> "The meaning of life is that it stops."  
+> — **Franz Kafka**
 
 ---
 
