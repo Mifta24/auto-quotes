@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The meaning of life is that it stops."  
-> — **Franz Kafka**
+> "The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time."  
+> — **Mark Twain**
 
 ---
 

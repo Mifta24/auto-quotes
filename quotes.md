@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
-> — **Deepak Chopra**
+> "The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time."  
+> — **Mark Twain**
 
 ---
 
