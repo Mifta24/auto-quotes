@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest adventure is what lies ahead."  
-> — **J.R.R. Tolkien**
+> "Everything eaten is killed. Every meal is a sacrifice."  
+> — **Adi Da Samraj**
 
 ---
 
