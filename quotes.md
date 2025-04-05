@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You miss 100% of the shots you don't take."  
-> — **Wayne Gretzky**
+> "Happiness can be found, even in the darkest of times, if one only remembers to turn on the light."  
+> — **Albus Dumbledore**
 
 ---
 
