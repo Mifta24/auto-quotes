@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The educated differ from the uneducated as much as the living differ from the dead."  
-> — **Aristotle**
+> "The person who cannot control his words shows that he cannot control himself."  
+> — **Robert Greene**
 
 ---
 
