@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stress happens when the mind resists what is."  
-> — **Dan Millman**
+> "The educated differ from the uneducated as much as the living differ from the dead."  
+> — **Aristotle**
 
 ---
 
