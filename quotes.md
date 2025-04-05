@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything eaten is killed. Every meal is a sacrifice."  
-> — **Adi Da Samraj**
+> "Life is too short to waste your time on people who don't respect, appreciate, and value you."  
+> — **Roy T. Bennett**
 
 ---
 
