@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
-> — **Eckhart Tolle**
+> "We love the things we love for what they are."  
+> — **Robert Frost**
 
 ---
 
