@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop acting so small. You are the universe in ecstatic motion."  
-> — **Rumi**
+> "The pain of parting is nothing to the joy of meeting again."  
+> — **Charles Dickens**
 
 ---
 
