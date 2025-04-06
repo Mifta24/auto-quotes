@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 
