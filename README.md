@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have to make a choice and don't make it, that is in itself a choice."  
-> — **William James**
+> "A fall into a ditch makes you wiser."  
+> — **Chinese Proverb**
 
 ---
 

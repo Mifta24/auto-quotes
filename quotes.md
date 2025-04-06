@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are as many opinions as there are experts."  
-> — **Franklin D. Roosevelt**
+> "A fall into a ditch makes you wiser."  
+> — **Chinese Proverb**
 
 ---
 
