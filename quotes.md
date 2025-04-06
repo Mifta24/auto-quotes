@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being wrong brings the opportunity for growth."  
-> — **Mark Manson**
+> "The primary point of this existence is to live, and all living things move and grow."  
+> — **Ming-Dao Deng**
 
 ---
 

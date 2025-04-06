@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no differences but differences of degree between different degrees of difference and no difference."  
-> — **William James**
+> "The primary point of this existence is to live, and all living things move and grow."  
+> — **Ming-Dao Deng**
 
 ---
 
