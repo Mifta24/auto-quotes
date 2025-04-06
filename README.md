@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present."  
-> — **Lao Tzu**
+> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
+> — **Steve Jobs**
 
 ---
 
