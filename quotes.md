@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone sees what you appear to be, few experience what you really are."  
-> — **Niccolo Machiavelli**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 

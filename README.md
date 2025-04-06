@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 
