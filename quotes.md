@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no differences but differences of degree between different degrees of difference and no difference."  
-> — **William James**
+> "Being wrong brings the opportunity for growth."  
+> — **Mark Manson**
 
 ---
 
