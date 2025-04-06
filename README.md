@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Embrace the life you have and stop wishing that you could be someone else."  
-> — **Joyce Meyer**
+> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."  
+> — **Voltaire**
 
 ---
 
