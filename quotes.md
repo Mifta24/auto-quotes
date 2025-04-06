@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more often a stupidity is repeated, the more it gets the appearance of wisdom."  
-> — **Voltaire**
+> "Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through."  
+> — **Jonathan Swift**
 
 ---
 
