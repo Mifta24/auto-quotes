@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop acting so small. You are the universe in ecstatic motion."  
-> — **Rumi**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 
