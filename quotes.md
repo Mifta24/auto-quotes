@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is too short to waste your time on people who don't respect, appreciate, and value you."  
-> — **Roy T. Bennett**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 
-_Last updated: 05 April 2025 ⏳_
+_Last updated: 06 April 2025 ⏳_
