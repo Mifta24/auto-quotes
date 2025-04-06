@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't just sit there. Do something. The answers will follow."  
-> — **Mark Manson**
+> "Stop acting so small. You are the universe in ecstatic motion."  
+> — **Rumi**
 
 ---
 

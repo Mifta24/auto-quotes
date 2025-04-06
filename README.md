@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary point of this existence is to live, and all living things move and grow."  
-> — **Ming-Dao Deng**
+> "Stop acting so small. You are the universe in ecstatic motion."  
+> — **Rumi**
 
 ---
 
