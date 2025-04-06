@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fall into a ditch makes you wiser."  
-> — **Chinese Proverb**
+> "Embrace the life you have and stop wishing that you could be someone else."  
+> — **Joyce Meyer**
 
 ---
 
