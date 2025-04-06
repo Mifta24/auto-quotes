@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary point of this existence is to live, and all living things move and grow."  
-> — **Ming-Dao Deng**
+> "Don't just sit there. Do something. The answers will follow."  
+> — **Mark Manson**
 
 ---
 
