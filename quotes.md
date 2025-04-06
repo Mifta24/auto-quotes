@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "When you have to make a choice and don't make it, that is in itself a choice."  
+> — **William James**
 
 ---
 

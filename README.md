@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."  
-> — **Maxime Lagace**
+> "When you have to make a choice and don't make it, that is in itself a choice."  
+> — **William James**
 
 ---
 
