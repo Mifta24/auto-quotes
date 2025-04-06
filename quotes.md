@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Embrace the life you have and stop wishing that you could be someone else."  
-> — **Joyce Meyer**
+> "If your mind is empty, it is always ready for anything, it is open to everything."  
+> — **Shunryu Suzuki**
 
 ---
 
