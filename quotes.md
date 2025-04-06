@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
-> — **Steve Jobs**
+> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
+> — **Brian Tracy**
 
 ---
 
