@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
-> — **Brian Tracy**
+> "There are no differences but differences of degree between different degrees of difference and no difference."  
+> — **William James**
 
 ---
 
