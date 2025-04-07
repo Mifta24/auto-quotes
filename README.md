@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No idea, no matter how good, will work if it doesn't get used."  
-> — **Peter A. Cohen**
+> "To find yourself, think for yourself."  
+> — **Socrates**
 
 ---
 
