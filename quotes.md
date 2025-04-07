@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be totally at leisure for one day is to be immortal for one day. "  
-> — **Chinese Proverb**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
