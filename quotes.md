@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No snowflake ever falls in the wrong place."  
-> — **Zen Proverb**
+> "We must be free not because we claim freedom, but because we practice it."  
+> — **William Faulkner**
 
 ---
 
