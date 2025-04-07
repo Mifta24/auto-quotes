@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the plan doesn't work, change the plan, but never the goal."  
-> — **Unknown**
+> "To be totally at leisure for one day is to be immortal for one day. "  
+> — **Chinese Proverb**
 
 ---
 

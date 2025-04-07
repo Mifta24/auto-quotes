@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dreamers are the saviors of the worlds."  
-> — **James Allen**
+> "To be totally at leisure for one day is to be immortal for one day. "  
+> — **Chinese Proverb**
 
 ---
 
