@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No snowflake ever falls in the wrong place."  
-> — **Zen Proverb**
+> "When you've got nothing, you've got nothing to lose."  
+> — **Bob Dylan**
 
 ---
 
