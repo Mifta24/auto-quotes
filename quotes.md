@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It takes half your life before you discover life is a do-it-yourself project."  
-> — **Napoleon Hill**
+> "No idea, no matter how good, will work if it doesn't get used."  
+> — **Peter A. Cohen**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "No idea, no matter how good, will work if it doesn't get used."  
+> — **Peter A. Cohen**
 
 ---
 
