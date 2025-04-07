@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To find yourself, think for yourself."  
-> — **Socrates**
+> "If the plan doesn't work, change the plan, but never the goal."  
+> — **Unknown**
 
 ---
 
