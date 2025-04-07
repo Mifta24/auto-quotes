@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To a mind that is still, the entire universe surrenders."  
-> — **Zhuangzi**
+> "No matter what happens in life, never lose sight of who you are."  
+> — **Yanni**
 
 ---
 
