@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The goal is not to be perfect by the end, the goal is to be better today."  
-> — **Simon Sinek**
+> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
+> — **Mark Twain**
 
 ---
 

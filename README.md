@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you've got nothing, you've got nothing to lose."  
-> — **Bob Dylan**
+> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
+> — **Mark Twain**
 
 ---
 
