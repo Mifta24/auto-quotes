@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
-> — **Christopher Reeve**
+> "There is no self-discovery without pain and loss."  
+> — **Anita Krizzan**
 
 ---
 
