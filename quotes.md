@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
-> — **Mark Twain**
+> "In three words I can sum up everything I've learned about life: it goes on."  
+> — **Robert Frost**
 
 ---
 
