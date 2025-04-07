@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 

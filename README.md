@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To a mind that is still, the entire universe surrenders."  
-> — **Zhuangzi**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 
