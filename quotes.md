@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To find yourself, think for yourself."  
-> — **Socrates**
+> "Do not wait for leaders; do it alone, person to person."  
+> — **Mother Teresa**
 
 ---
 
