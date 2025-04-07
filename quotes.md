@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the plan doesn't work, change the plan, but never the goal."  
-> — **Unknown**
+> "The dreamers are the saviors of the worlds."  
+> — **James Allen**
 
 ---
 
