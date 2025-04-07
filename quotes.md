@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do the work you get rewarded. There are no shortcuts in life."  
-> — **Michael Jordan**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 

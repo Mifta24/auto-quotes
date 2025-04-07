@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no self-discovery without pain and loss."  
-> — **Anita Krizzan**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 
