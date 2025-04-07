@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No idea, no matter how good, will work if it doesn't get used."  
-> — **Peter A. Cohen**
+> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."  
+> — **Samuel Butler**
 
 ---
 
