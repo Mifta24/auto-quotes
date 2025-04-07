@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
-> — **Og Mandino**
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
+> — **Christopher Reeve**
 
 ---
 
