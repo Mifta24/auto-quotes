@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you've got nothing, you've got nothing to lose."  
-> — **Bob Dylan**
+> "The goal is not to be perfect by the end, the goal is to be better today."  
+> — **Simon Sinek**
 
 ---
 
