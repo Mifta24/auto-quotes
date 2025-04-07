@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-knowledge is the beginning of self-correction."  
-> — **Norman Vincent Peale**
+> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
+> — **Og Mandino**
 
 ---
 
