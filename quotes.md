@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "It takes half your life before you discover life is a do-it-yourself project."  
+> — **Napoleon Hill**
 
 ---
 
