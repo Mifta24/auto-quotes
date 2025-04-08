@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time we liberate a woman, we liberate a man. "  
-> — **Margaret Mead**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You just can't beat the person who never gives up. "  
-> — **Babe Ruth**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 
