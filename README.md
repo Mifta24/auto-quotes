@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
-> — **Bhagavad Gita**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 
