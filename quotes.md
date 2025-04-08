@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The question isn't who is going to let me; it's who is going to stop me."  
-> — **Ayn Rand**
+> "Life has no limitations except the ones you make."  
+> — **Les Brown**
 
 ---
 

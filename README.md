@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "Life has no limitations except the ones you make."  
+> — **Les Brown**
 
 ---
 
