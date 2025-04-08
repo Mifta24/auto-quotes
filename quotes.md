@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."  
-> — **Roy T. Bennett**
+> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
+> — **Ming-Dao Deng**
 
 ---
 
