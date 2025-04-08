@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who can, does."  
-> — **George Bernard Shaw**
+> "In the middle of chaos lies opportunity.  "  
+> — **Bruce Lee**
 
 ---
 

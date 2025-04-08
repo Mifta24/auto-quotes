@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one has ever become poor by giving."  
-> — **Anne Frank**
+> "In the middle of chaos lies opportunity.  "  
+> — **Bruce Lee**
 
 ---
 
