@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
-> — **Bhagavad Gita**
+> "If you're waiting until you feel talented enough to make it, you'll never make it."  
+> — **Criss Jami**
 
 ---
 
