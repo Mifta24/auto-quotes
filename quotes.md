@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has no limitations except the ones you make."  
-> — **Les Brown**
+> "No idea, no matter how good, will work if it doesn't get used."  
+> — **Peter A. Cohen**
 
 ---
 
