@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be happy we need something to solve. Happiness is therefore a form of action."  
-> — **Mark Manson**
+> "You are not stuck where you are unless you decide to be.  "  
+> — **Wayne Dyer**
 
 ---
 
