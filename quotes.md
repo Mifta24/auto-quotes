@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the middle of chaos lies opportunity.  "  
-> — **Bruce Lee**
+> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
+> — **Jim Rohn**
 
 ---
 
