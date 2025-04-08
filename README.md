@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love your enemies, for they tell you your faults."  
-> — **Benjamin Franklin**
+> "Every time we liberate a woman, we liberate a man. "  
+> — **Margaret Mead**
 
 ---
 
