@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the middle of chaos lies opportunity.  "  
-> — **Bruce Lee**
+> "Love your enemies, for they tell you your faults."  
+> — **Benjamin Franklin**
 
 ---
 
