@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."  
-> — **Roy T. Bennett**
+> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
+> — **Bhagavad Gita**
 
 ---
 

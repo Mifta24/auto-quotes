@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
-> — **Ming-Dao Deng**
+> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
+> — **Bhagavad Gita**
 
 ---
 
