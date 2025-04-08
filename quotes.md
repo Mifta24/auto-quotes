@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "The question isn't who is going to let me; it's who is going to stop me."  
+> — **Ayn Rand**
 
 ---
 
