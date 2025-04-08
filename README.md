@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be happy we need something to solve. Happiness is therefore a form of action."  
-> — **Mark Manson**
+> "If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month."  
+> — **Theodore Roosevelt**
 
 ---
 

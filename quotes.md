@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not stuck where you are unless you decide to be.  "  
-> — **Wayne Dyer**
+> "If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month."  
+> — **Theodore Roosevelt**
 
 ---
 
