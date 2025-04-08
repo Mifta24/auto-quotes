@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one has ever become poor by giving."  
-> — **Anne Frank**
+> "He who can, does."  
+> — **George Bernard Shaw**
 
 ---
 
