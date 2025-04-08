@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The few who do are the envy of the many who only watch."  
-> — **Jim Rohn**
+> "To the mind that is still, the whole universe surrenders."  
+> — **Lao Tzu**
 
 ---
 
