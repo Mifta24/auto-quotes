@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We will now discuss in a little more detail the Struggle for Existence."  
-> — **Charles Darwin**
+> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
+> — **Brian Tracy**
 
 ---
 
