@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has no limitations except the ones you make."  
-> — **Les Brown**
+> "The few who do are the envy of the many who only watch."  
+> — **Jim Rohn**
 
 ---
 

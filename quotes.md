@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No idea, no matter how good, will work if it doesn't get used."  
-> — **Peter A. Cohen**
+> "The few who do are the envy of the many who only watch."  
+> — **Jim Rohn**
 
 ---
 
