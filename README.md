@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We will now discuss in a little more detail the Struggle for Existence."  
-> — **Charles Darwin**
+> "To be happy we need something to solve. Happiness is therefore a form of action."  
+> — **Mark Manson**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
-> — **Brian Tracy**
+> "To be happy we need something to solve. Happiness is therefore a form of action."  
+> — **Mark Manson**
 
 ---
 
