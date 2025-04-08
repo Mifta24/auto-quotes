@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To the mind that is still, the whole universe surrenders."  
-> — **Lao Tzu**
+> "If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."  
+> — **Roy T. Bennett**
 
 ---
 

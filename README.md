@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The few who do are the envy of the many who only watch."  
-> — **Jim Rohn**
+> "If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present."  
+> — **Roy T. Bennett**
 
 ---
 
