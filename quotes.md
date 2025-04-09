@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Projecting your mind into a successful situation is the most powerful means to achieve goals.  "  
-> — **Estee Lauder**
+> "I don't ever give up. I'd have to be dead or completely incapacitated."  
+> — **Elon Musk**
 
 ---
 
