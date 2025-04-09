@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to make time, even for something as universal as staring at the stars."  
-> — **W.P. Kinsella**
+> "Failure is feedback. Learn from it and move on."  
+> — **Jack Butcher**
 
 ---
 
