@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Projecting your mind into a successful situation is the most powerful means to achieve goals.  "  
-> — **Estee Lauder**
+> "In the midst of chaos, there is also opportunity."  
+> — **Sun Tzu**
 
 ---
 

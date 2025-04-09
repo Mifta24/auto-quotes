@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I don't ever give up. I'd have to be dead or completely incapacitated."  
-> — **Elon Musk**
+> "In the midst of chaos, there is also opportunity."  
+> — **Sun Tzu**
 
 ---
 
