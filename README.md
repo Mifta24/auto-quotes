@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month."  
-> — **Theodore Roosevelt**
+> "Projecting your mind into a successful situation is the most powerful means to achieve goals.  "  
+> — **Estee Lauder**
 
 ---
 
-_Last updated: 08 April 2025 ⏳_
+_Last updated: 09 April 2025 ⏳_
