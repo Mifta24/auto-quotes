@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At the end of the day, let there be no excuses, no explanations, no regrets."  
-> — **Steve Maraboli**
+> "Greatest success comes just one step beyond the point at which defeat overtakes you."  
+> — **Unknown**
 
 ---
 
