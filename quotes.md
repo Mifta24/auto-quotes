@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
-> — **Lin Yutang**
+> "But better die than live mechanically a life that is a repetition of repetitions."  
+> — **D. H. Lawrence**
 
 ---
 
