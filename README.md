@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more we value things, the less we value ourselves.  "  
-> — **Bruce Lee**
+> "A person hears only what they understand."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
