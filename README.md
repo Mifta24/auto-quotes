@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.  "  
-> — **Jack Kerouac**
+> "At the end of the day, let there be no excuses, no explanations, no regrets."  
+> — **Steve Maraboli**
 
 ---
 

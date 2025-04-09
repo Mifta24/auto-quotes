@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is ours to be spent, not to be saved. "  
-> — **D. H. Lawrence**
+> "At the end of the day, let there be no excuses, no explanations, no regrets."  
+> — **Steve Maraboli**
 
 ---
 
