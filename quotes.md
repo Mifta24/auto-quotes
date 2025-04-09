@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is feedback. Learn from it and move on."  
-> — **Jack Butcher**
+> "The more we value things, the less we value ourselves.  "  
+> — **Bruce Lee**
 
 ---
 
