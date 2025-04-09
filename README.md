@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the midst of chaos, there is also opportunity."  
-> — **Sun Tzu**
+> "Everything has its beauty, but not everyone sees it. "  
+> — **Confucius**
 
 ---
 
