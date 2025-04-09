@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
-> — **Jack London**
+> "Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.  "  
+> — **Jack Kerouac**
 
 ---
 
