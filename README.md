@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it. "  
-> — **Confucius**
+> "You will not do incredible things without an incredible dream."  
+> — **John Eliot**
 
 ---
 

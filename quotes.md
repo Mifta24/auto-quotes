@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No amount of regretting can change the past, and no amount of worrying can change the future."  
-> — **Roy T. Bennett**
+> "You will not do incredible things without an incredible dream."  
+> — **John Eliot**
 
 ---
 
