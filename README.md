@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
-> — **Lin Yutang**
+> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."  
+> — **Elbert Hubbard**
 
 ---
 

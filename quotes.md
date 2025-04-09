@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "But better die than live mechanically a life that is a repetition of repetitions."  
-> — **D. H. Lawrence**
+> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."  
+> — **Elbert Hubbard**
 
 ---
 
