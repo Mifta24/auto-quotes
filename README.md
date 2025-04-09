@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great acts are made up of small deeds."  
-> — **Lao Tzu**
+> "You have to make time, even for something as universal as staring at the stars."  
+> — **W.P. Kinsella**
 
 ---
 

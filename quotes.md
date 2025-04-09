@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Making your mark on the world is hard. If it were easy, everybody would do it."  
-> — **Barack Obama**
+> "You have to make time, even for something as universal as staring at the stars."  
+> — **W.P. Kinsella**
 
 ---
 
