@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more we value things, the less we value ourselves.  "  
-> — **Bruce Lee**
+> "When you know what you want, and you want it bad enough, you will find a way to get it."  
+> — **Jim Rohn**
 
 ---
 
