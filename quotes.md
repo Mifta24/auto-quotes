@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it. "  
-> — **Confucius**
+> "No amount of regretting can change the past, and no amount of worrying can change the future."  
+> — **Roy T. Bennett**
 
 ---
 
