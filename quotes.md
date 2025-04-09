@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Greatest success comes just one step beyond the point at which defeat overtakes you."  
-> — **Unknown**
+> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
+> — **Lin Yutang**
 
 ---
 
