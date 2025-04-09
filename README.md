@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will not do incredible things without an incredible dream."  
-> — **John Eliot**
+> "Great acts are made up of small deeds."  
+> — **Lao Tzu**
 
 ---
 

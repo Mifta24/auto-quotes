@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cleverness is not wisdom."  
-> — **Euripides**
+> "Great acts are made up of small deeds."  
+> — **Lao Tzu**
 
 ---
 
