@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great acts are made up of small deeds."  
-> — **Lao Tzu**
+> "Making your mark on the world is hard. If it were easy, everybody would do it."  
+> — **Barack Obama**
 
 ---
 
