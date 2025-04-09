@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person hears only what they understand."  
-> — **Johann Wolfgang von Goethe**
+> "You can't wait for inspiration. You have to go after it with a club. "  
+> — **Jack London**
 
 ---
 
