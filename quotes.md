@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is the sum of small efforts, repeated day in and day out."  
-> — **Robert Collier**
+> "You may be one person in this world, but to one person you may mean the world."  
+> — **Unknown**
 
 ---
 

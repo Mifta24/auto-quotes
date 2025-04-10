@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All know that the drop merges into the ocean, but few know that the ocean merges into the drop."  
-> — **Kabir**
+> "You may be one person in this world, but to one person you may mean the world."  
+> — **Unknown**
 
 ---
 
