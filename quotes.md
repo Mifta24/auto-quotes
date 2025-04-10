@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."  
-> — **John Carmack**
+> "Today is the oldest you've ever been, and the youngest you'll ever be again."  
+> — **Eleanor Roosevelt**
 
 ---
 
