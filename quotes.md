@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What people say, what people do, and what they say they do are entirely different things. "  
-> — **Margaret Mead**
+> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
+> — **Napoleon Hill**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may forget with whom you laughed, but you will never forget with whom you wept.  "  
-> — **Kahlil Gibran**
+> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
+> — **Napoleon Hill**
 
 ---
 
