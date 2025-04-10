@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to offer no excuse than a bad one. "  
-> — **George Washington**
+> "Simplicity is a difficult thing to achieve.  "  
+> — **Charlie Chaplin**
 
 ---
 
