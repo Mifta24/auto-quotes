@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may forget with whom you laughed, but you will never forget with whom you wept.  "  
-> — **Kahlil Gibran**
+> "What people say, what people do, and what they say they do are entirely different things. "  
+> — **Margaret Mead**
 
 ---
 
