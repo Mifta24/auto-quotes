@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "What most people need to learn in life is how to love people and use things instead of using people and loving things."  
+> — **Unknown**
 
 ---
 
