@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to offer no excuse than a bad one. "  
-> — **George Washington**
+> "Trust, like the soul, never returns once it is gone."  
+> — **Publilius Syrus**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simplicity is a difficult thing to achieve.  "  
-> — **Charlie Chaplin**
+> "Trust, like the soul, never returns once it is gone."  
+> — **Publilius Syrus**
 
 ---
 
