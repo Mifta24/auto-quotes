@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."  
-> — **John Carmack**
+> "You have as much laughter as you have faith."  
+> — **Martin Luther**
 
 ---
 

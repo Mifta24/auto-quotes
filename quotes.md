@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Today is the oldest you've ever been, and the youngest you'll ever be again."  
-> — **Eleanor Roosevelt**
+> "You have as much laughter as you have faith."  
+> — **Martin Luther**
 
 ---
 
