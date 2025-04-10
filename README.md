@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
-> — **Napoleon Hill**
+> "Love and compassion are necessities, not luxuries. Without them, humanity cannot survive."  
+> — **Dalai Lama**
 
 ---
 

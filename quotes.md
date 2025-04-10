@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men do not attract which they want but that which they are."  
-> — **James Allen**
+> "Love and compassion are necessities, not luxuries. Without them, humanity cannot survive."  
+> — **Dalai Lama**
 
 ---
 
