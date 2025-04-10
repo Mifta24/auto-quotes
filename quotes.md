@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Weeds are flowers too, once you get to know them."  
-> — **A.A. Milne**
+> "All know that the drop merges into the ocean, but few know that the ocean merges into the drop."  
+> — **Kabir**
 
 ---
 
-_Last updated: 09 April 2025 ⏳_
+_Last updated: 10 April 2025 ⏳_

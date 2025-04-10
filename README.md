@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination."  
-> — **Elbert Hubbard**
+> "All know that the drop merges into the ocean, but few know that the ocean merges into the drop."  
+> — **Kabir**
 
 ---
 
-_Last updated: 09 April 2025 ⏳_
+_Last updated: 10 April 2025 ⏳_
