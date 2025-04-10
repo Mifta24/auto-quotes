@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All know that the drop merges into the ocean, but few know that the ocean merges into the drop."  
-> — **Kabir**
+> "Success is the sum of small efforts, repeated day in and day out."  
+> — **Robert Collier**
 
 ---
 
