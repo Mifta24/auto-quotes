@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust, like the soul, never returns once it is gone."  
-> — **Publilius Syrus**
+> "Everyone you admire was once a beginner."  
+> — **Jack Butcher**
 
 ---
 
