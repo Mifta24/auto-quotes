@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What most people need to learn in life is how to love people and use things instead of using people and loving things."  
-> — **Unknown**
+> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."  
+> — **Tony Robbins**
 
 ---
 
