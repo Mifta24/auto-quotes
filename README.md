@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have as much laughter as you have faith."  
-> — **Martin Luther**
+> "It is better to offer no excuse than a bad one. "  
+> — **George Washington**
 
 ---
 
