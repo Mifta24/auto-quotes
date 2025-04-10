@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love and compassion are necessities, not luxuries. Without them, humanity cannot survive."  
-> — **Dalai Lama**
+> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
+> — **Aristotle**
 
 ---
 
