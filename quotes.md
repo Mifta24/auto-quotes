@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone you admire was once a beginner."  
-> — **Jack Butcher**
+> "You may forget with whom you laughed, but you will never forget with whom you wept.  "  
+> — **Kahlil Gibran**
 
 ---
 

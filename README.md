@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust, like the soul, never returns once it is gone."  
-> — **Publilius Syrus**
+> "You may forget with whom you laughed, but you will never forget with whom you wept.  "  
+> — **Kahlil Gibran**
 
 ---
 
