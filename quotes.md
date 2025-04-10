@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to shut your eyes, so you can see the real beauty."  
-> — **Kilian Jornet**
+> "Focus is a matter of deciding what things you're not going to do."  
+> — **John Carmack**
 
 ---
 
