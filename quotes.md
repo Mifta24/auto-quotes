@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have as much laughter as you have faith."  
-> — **Martin Luther**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 
