@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even when a friend does something you do not like, he continues to be your friend. "  
-> — **Genghis Khan**
+> "Debt is the slavery of the free."  
+> — **Publilius Syrus**
 
 ---
 
