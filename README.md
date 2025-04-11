@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "  
-> — **George Washington**
+> "New beginnings are disguised as painful endings."  
+> — **Lao Tzu**
 
 ---
 
