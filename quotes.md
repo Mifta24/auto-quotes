@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything."  
+> — **Paramahansa Yogananda**
 
 ---
 
