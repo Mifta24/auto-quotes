@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You never know when a moment and a few sincere words can have an impact on a life.  "  
-> — **Zig Ziglar**
+> "The greatest value of a picture is when it forces us to notice what we never expected to see."  
+> — **John Tukey**
 
 ---
 
