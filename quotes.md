@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with."  
+> — **Woody Allen**
 
 ---
 
