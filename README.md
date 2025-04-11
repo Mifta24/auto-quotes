@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is not a lover who does not love forever."  
-> — **Euripides**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 

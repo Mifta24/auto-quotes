@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone is a moon, and has a dark side which he never shows to anybody."  
-> — **Mark Twain**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 
