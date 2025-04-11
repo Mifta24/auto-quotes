@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faults are yours to fix, not to curse."  
-> — **Colin Powell**
+> "Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you."  
+> — **Dale Carnegie**
 
 ---
 
