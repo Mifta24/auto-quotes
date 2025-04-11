@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can start changing our world for the better daily, no matter how small the action."  
-> — **Nelson Mandela**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 
