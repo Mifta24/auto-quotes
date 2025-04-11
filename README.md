@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "  
+> — **George Washington**
 
 ---
 

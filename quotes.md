@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything."  
-> — **Paramahansa Yogananda**
+> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "  
+> — **George Washington**
 
 ---
 
