@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "  
-> — **George Washington**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
