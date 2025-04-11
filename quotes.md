@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you."  
-> — **Dale Carnegie**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 

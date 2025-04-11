@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faults are yours to fix, not to curse."  
-> — **Colin Powell**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 
