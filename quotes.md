@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is not a lover who does not love forever."  
-> — **Euripides**
+> "Everyone is a moon, and has a dark side which he never shows to anybody."  
+> — **Mark Twain**
 
 ---
 
