@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
-> — **Aristotle**
+> "Even when a friend does something you do not like, he continues to be your friend. "  
+> — **Genghis Khan**
 
 ---
 
-_Last updated: 10 April 2025 ⏳_
+_Last updated: 11 April 2025 ⏳_
