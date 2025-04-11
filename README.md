@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "New beginnings are disguised as painful endings."  
-> — **Lao Tzu**
+> "You can start changing our world for the better daily, no matter how small the action."  
+> — **Nelson Mandela**
 
 ---
 

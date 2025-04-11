@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Generosity is giving more than you can, and pride is taking less than you need."  
-> — **Kahlil Gibran**
+> "You can start changing our world for the better daily, no matter how small the action."  
+> — **Nelson Mandela**
 
 ---
 
