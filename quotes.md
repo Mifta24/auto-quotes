@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "New beginnings are disguised as painful endings."  
-> — **Lao Tzu**
+> "Generosity is giving more than you can, and pride is taking less than you need."  
+> — **Kahlil Gibran**
 
 ---
 
