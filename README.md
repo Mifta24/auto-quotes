@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest value of a picture is when it forces us to notice what we never expected to see."  
-> — **John Tukey**
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
+> — **Henry Ward Beecher**
 
 ---
 
