@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The art of being wise is knowing what to overlook."  
-> — **William James**
+> "Faults are yours to fix, not to curse."  
+> — **Colin Powell**
 
 ---
 
