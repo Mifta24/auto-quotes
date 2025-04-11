@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Debt is the slavery of the free."  
-> — **Publilius Syrus**
+> "Today you are you, that is truer than true. There is no one alive who is you-er than you."  
+> — **Dr. Seuss**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even when a friend does something you do not like, he continues to be your friend. "  
-> — **Genghis Khan**
+> "Today you are you, that is truer than true. There is no one alive who is you-er than you."  
+> — **Dr. Seuss**
 
 ---
 
