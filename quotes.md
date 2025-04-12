@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The single most powerful asset we all have is our mind."  
-> — **Robert Kiyosaki**
+> "Peace is not the absence of conflict, but the ability to cope with it."  
+> — **Unknown**
 
 ---
 
