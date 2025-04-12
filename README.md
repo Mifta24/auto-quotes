@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever people agree with me I always feel I must be wrong."  
-> — **Oscar Wilde**
+> "Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim."  
+> — **John D. Rockefeller**
 
 ---
 
