@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
-> — **Jack London**
+> "If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you."  
+> — **T.S. Eliot**
 
 ---
 
