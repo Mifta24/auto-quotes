@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All things come into being by conflict of opposites."  
-> — **Heraclitus**
+> "When at last you are come to the ocean of happiness, do not go back thirsty."  
+> — **Kabir**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Once you learn to quit, it becomes a habit."  
-> — **Vince Lombardi**
+> "When at last you are come to the ocean of happiness, do not go back thirsty."  
+> — **Kabir**
 
 ---
 
