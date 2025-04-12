@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."  
-> — **Heraclitus**
+> "Do your duty and a little more and the future will take care of itself."  
+> — **Andrew Carnegie**
 
 ---
 
