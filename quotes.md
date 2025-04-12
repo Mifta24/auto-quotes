@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the midst of chaos, there is also opportunity."  
-> — **Sun Tzu**
+> "Always remember that you are absolutely unique. Just like everyone else. "  
+> — **Margaret Mead**
 
 ---
 
