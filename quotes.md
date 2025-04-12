@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do your duty and a little more and the future will take care of itself."  
-> — **Andrew Carnegie**
+> "Life has more imagination than we carry in our dreams."  
+> — **Christopher Columbus**
 
 ---
 
