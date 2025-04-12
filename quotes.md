@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Once you learn to quit, it becomes a habit."  
-> — **Vince Lombardi**
+> "All things come into being by conflict of opposites."  
+> — **Heraclitus**
 
 ---
 
