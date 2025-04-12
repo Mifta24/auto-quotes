@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the power of thought that gives man power over nature."  
-> — **Hans Christian Andersen**
+> "Every saint has a past, and every sinner has a future."  
+> — **Oscar Wilde**
 
 ---
 
