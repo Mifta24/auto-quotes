@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every saint has a past, and every sinner has a future."  
-> — **Oscar Wilde**
+> "Talent is luck. The important thing in life is courage."  
+> — **Woody Allen**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the power of thought that gives man power over nature."  
-> — **Hans Christian Andersen**
+> "Talent is luck. The important thing in life is courage."  
+> — **Woody Allen**
 
 ---
 
