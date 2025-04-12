@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When at last you are come to the ocean of happiness, do not go back thirsty."  
-> — **Kabir**
+> "It is dangerous to be right in matters on which the established authorities are wrong."  
+> — **Voltaire**
 
 ---
 
