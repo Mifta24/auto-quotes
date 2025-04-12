@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't tell big dreams to small minded people."  
-> — **Steve Harvey**
+> "The single most powerful asset we all have is our mind."  
+> — **Robert Kiyosaki**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "The single most powerful asset we all have is our mind."  
+> — **Robert Kiyosaki**
 
 ---
 
