@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you."  
-> — **T.S. Eliot**
+> "By seeking and blundering we learn."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
