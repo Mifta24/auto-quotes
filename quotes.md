@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is dangerous to be right in matters on which the established authorities are wrong."  
-> — **Voltaire**
+> "Whenever people agree with me I always feel I must be wrong."  
+> — **Oscar Wilde**
 
 ---
 

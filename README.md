@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When at last you are come to the ocean of happiness, do not go back thirsty."  
-> — **Kabir**
+> "Whenever people agree with me I always feel I must be wrong."  
+> — **Oscar Wilde**
 
 ---
 
