@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."  
-> — **Heraclitus**
+> "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars."  
+> — **Og Mandino**
 
 ---
 
