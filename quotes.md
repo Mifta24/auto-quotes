@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not the absence of conflict, but the ability to cope with it."  
-> — **Unknown**
+> "It is the power of thought that gives man power over nature."  
+> — **Hans Christian Andersen**
 
 ---
 
