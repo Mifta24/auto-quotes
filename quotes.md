@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "You can't tell big dreams to small minded people."  
+> — **Steve Harvey**
 
 ---
 
