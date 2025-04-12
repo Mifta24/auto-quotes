@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
-> — **Napoleon Hill**
+> "In the midst of chaos, there is also opportunity."  
+> — **Sun Tzu**
 
 ---
 
