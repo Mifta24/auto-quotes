@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talent is luck. The important thing in life is courage."  
-> — **Woody Allen**
+> "Abundance of knowledge does not teach men to be wise."  
+> — **Heraclitus**
 
 ---
 
