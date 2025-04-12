@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can start changing our world for the better daily, no matter how small the action."  
-> — **Nelson Mandela**
+> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
+> — **Jack London**
 
 ---
 
-_Last updated: 11 April 2025 ⏳_
+_Last updated: 12 April 2025 ⏳_
