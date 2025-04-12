@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talent is luck. The important thing in life is courage."  
-> — **Woody Allen**
+> "Any idea, plan, or purpose may be placed in the mind through repetition of thought."  
+> — **Napoleon Hill**
 
 ---
 
