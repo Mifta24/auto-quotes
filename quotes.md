@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has more imagination than we carry in our dreams."  
-> — **Christopher Columbus**
+> "Once you learn to quit, it becomes a habit."  
+> — **Vince Lombardi**
 
 ---
 

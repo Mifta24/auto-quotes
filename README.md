@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do your duty and a little more and the future will take care of itself."  
-> — **Andrew Carnegie**
+> "Once you learn to quit, it becomes a habit."  
+> — **Vince Lombardi**
 
 ---
 
