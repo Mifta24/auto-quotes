@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do it with passion, or not at all."  
-> — **Rosa Nouchette Carey**
+> "Success is nothing more than a few simple disciplines practiced every day."  
+> — **Jim Rohn**
 
 ---
 
