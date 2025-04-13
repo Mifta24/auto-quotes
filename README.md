@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."  
-> — **Elon Musk**
+> "Do it with passion, or not at all."  
+> — **Rosa Nouchette Carey**
 
 ---
 

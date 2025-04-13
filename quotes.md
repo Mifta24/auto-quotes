@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
-> — **Socrates**
+> "Do it with passion, or not at all."  
+> — **Rosa Nouchette Carey**
 
 ---
 
