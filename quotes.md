@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-knowledge is the beginning of self-correction."  
-> — **Norman Vincent Peale**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 
