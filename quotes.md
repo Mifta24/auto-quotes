@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In nature there is no alienation. Everything belongs."  
-> — **Ming-Dao Deng**
+> "The opposite of courage in our society is not cowardice... it is conformity."  
+> — **Earl Nightingale**
 
 ---
 
