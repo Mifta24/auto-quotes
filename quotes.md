@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."  
-> — **Elon Musk**
+> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
+> — **Socrates**
 
 ---
 
