@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opposite of courage in our society is not cowardice... it is conformity."  
-> — **Earl Nightingale**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 

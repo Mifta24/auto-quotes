@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In nature there is no alienation. Everything belongs."  
-> — **Ming-Dao Deng**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 
