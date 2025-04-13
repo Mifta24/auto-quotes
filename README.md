@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
-> — **Deepak Chopra**
+> "Success is like reaching an important birthday and finding you're exactly the same."  
+> — **Audrey Hepburn**
 
 ---
 

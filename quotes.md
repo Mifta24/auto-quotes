@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather die on my feet than live on my knees."  
-> — **Euripides**
+> "Success is like reaching an important birthday and finding you're exactly the same."  
+> — **Audrey Hepburn**
 
 ---
 
