@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more perfect a person is on the outside, the more demons they have on the inside."  
-> — **Sigmund Freud**
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
+> — **Zig Ziglar**
 
 ---
 

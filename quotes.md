@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We will outstretch the hand if you unclench your fist."  
-> — **Barack Obama**
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
+> — **Zig Ziglar**
 
 ---
 
