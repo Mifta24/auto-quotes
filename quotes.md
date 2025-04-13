@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
-> — **Deepak Chopra**
+> "I would rather die on my feet than live on my knees."  
+> — **Euripides**
 
 ---
 
