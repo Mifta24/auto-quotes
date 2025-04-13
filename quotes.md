@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
-> — **Robert Collier**
+> "In nature there is no alienation. Everything belongs."  
+> — **Ming-Dao Deng**
 
 ---
 
