@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more perfect a person is on the outside, the more demons they have on the inside."  
-> — **Sigmund Freud**
+> "We will outstretch the hand if you unclench your fist."  
+> — **Barack Obama**
 
 ---
 
