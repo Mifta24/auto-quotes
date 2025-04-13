@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "In the midst of chaos, there is also opportunity."  
-> — **Sun Tzu**
+> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 12 April 2025 ⏳_
+_Last updated: 13 April 2025 ⏳_
