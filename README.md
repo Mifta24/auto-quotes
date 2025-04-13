@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do it with passion, or not at all."  
-> — **Rosa Nouchette Carey**
+> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
+> — **Og Mandino**
 
 ---
 
