@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a poor teacher."  
-> — **Robert Kiyosaki**
+> "When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head."  
+> — **Stephen King**
 
 ---
 

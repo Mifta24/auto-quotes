@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
-> — **Zig Ziglar**
+> "When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head."  
+> — **Stephen King**
 
 ---
 
