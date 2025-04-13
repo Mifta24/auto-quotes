@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is like reaching an important birthday and finding you're exactly the same."  
-> — **Audrey Hepburn**
+> "It is far easier to start something than it is to finish it."  
+> — **Amelia Earhart**
 
 ---
 
