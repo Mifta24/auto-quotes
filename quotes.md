@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confuse them with your silence and amaze them with your actions."  
-> — **Unknown**
+> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
+> — **Josh Waitzkin**
 
 ---
 
