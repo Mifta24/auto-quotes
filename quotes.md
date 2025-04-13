@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is far easier to start something than it is to finish it."  
-> — **Amelia Earhart**
+> "The more perfect a person is on the outside, the more demons they have on the inside."  
+> — **Sigmund Freud**
 
 ---
 

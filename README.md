@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is like reaching an important birthday and finding you're exactly the same."  
-> — **Audrey Hepburn**
+> "The more perfect a person is on the outside, the more demons they have on the inside."  
+> — **Sigmund Freud**
 
 ---
 
