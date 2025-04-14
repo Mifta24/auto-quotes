@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
-> — **Dogen**
+> "If you want to know what God thinks about money just look at the people He gives it to."  
+> — **Alexander Pope**
 
 ---
 

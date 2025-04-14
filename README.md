@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "If you want to know what God thinks about money just look at the people He gives it to."  
+> — **Alexander Pope**
 
 ---
 
