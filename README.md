@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fall into a ditch makes you wiser."  
-> — **Chinese Proverb**
+> "We are all different. Don't judge, understand instead."  
+> — **Roy T. Bennett**
 
 ---
 

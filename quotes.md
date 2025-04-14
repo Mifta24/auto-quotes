@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
-> — **George Bernard Shaw**
+> "We are all different. Don't judge, understand instead."  
+> — **Roy T. Bennett**
 
 ---
 
