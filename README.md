@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure will never overtake me if my determination to succeed is strong enough."  
-> — **Og Mandino**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 

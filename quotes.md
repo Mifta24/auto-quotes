@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is the offspring of silence and meditation."  
-> — **Isaac Newton**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 
