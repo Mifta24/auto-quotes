@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "Remember, hope is a good thing, maybe the best of things."  
+> — **Stephen King**
 
 ---
 
