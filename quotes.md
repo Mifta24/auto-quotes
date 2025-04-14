@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all different. Don't judge, understand instead."  
-> — **Roy T. Bennett**
+> "Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim."  
+> — **John D. Rockefeller**
 
 ---
 
