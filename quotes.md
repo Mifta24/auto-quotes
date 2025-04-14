@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The purpose of life is the expansion of happiness."  
-> — **Deepak Chopra**
+> "It will never rain roses: when we want to have more roses, we must plant more roses."  
+> — **George Eliot**
 
 ---
 
