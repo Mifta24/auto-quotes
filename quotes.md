@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who have goals succeed because they know where they're going. It's that simple."  
-> — **Earl Nightingale**
+> "A fall into a ditch makes you wiser."  
+> — **Chinese Proverb**
 
 ---
 

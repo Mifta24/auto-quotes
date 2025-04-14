@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul. "  
-> — **Herodotus**
+> "A fall into a ditch makes you wiser."  
+> — **Chinese Proverb**
 
 ---
 
