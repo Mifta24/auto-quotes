@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It will never rain roses: when we want to have more roses, we must plant more roses."  
-> — **George Eliot**
+> "No grand idea was ever born in a conference, but a lot of foolish ideas have died there."  
+> — **F. Scott Fitzgerald**
 
 ---
 
