@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cleverness is not wisdom."  
-> — **Euripides**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 
