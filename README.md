@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember, hope is a good thing, maybe the best of things."  
-> — **Stephen King**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 
