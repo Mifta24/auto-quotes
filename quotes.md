@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "The only way to make sense out of change is to plunge into it, move with it, and join the dance."  
+> — **Alan Watts**
 
 ---
 
