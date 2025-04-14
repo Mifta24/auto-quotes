@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing ever goes away until it has taught us what we need to know."  
-> — **Pema Chodron**
+> "I would rather die on my feet than live on my knees."  
+> — **Euripides**
 
 ---
 
