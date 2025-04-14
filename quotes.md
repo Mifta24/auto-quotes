@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul. "  
-> — **Herodotus**
+> "People who have goals succeed because they know where they're going. It's that simple."  
+> — **Earl Nightingale**
 
 ---
 
