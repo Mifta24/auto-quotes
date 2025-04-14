@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is failure."  
-> — **Michael Jordan**
+> "The purpose of life is the expansion of happiness."  
+> — **Deepak Chopra**
 
 ---
 
