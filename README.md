@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
-> — **Josh Waitzkin**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 13 April 2025 ⏳_
+_Last updated: 14 April 2025 ⏳_

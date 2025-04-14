@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
-> — **Audrey Hepburn**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 13 April 2025 ⏳_
+_Last updated: 14 April 2025 ⏳_
