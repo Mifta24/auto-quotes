@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cleverness is not wisdom."  
-> — **Euripides**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 

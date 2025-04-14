@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 
