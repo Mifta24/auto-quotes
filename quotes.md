@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most virtuous are those who content themselves with being virtuous without seeking to appear so."  
-> — **Plato**
+> "Reality is the leading cause of stress among those in touch with it."  
+> — **Lily Tomlin**
 
 ---
 
