@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have a choice everyday regarding the attitude we will embrace for that day."  
-> — **Charles Swindoll**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 
