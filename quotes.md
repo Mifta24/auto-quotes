@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With self-discipline, almost anything is possible."  
-> — **Theodore Roosevelt**
+> "Many roads lead to the path, but basically there are only two: reason and practice. "  
+> — **Bodhidharma**
 
 ---
 
