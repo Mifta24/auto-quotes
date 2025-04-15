@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. "  
-> — **Charles Swindoll**
+> "TEAMWORK: the fuel that allows common people attain uncommon results."  
+> — **Andrew Carnegie**
 
 ---
 
