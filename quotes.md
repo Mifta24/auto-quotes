@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
-> — **Lolly Daskal**
+> "We have a choice everyday regarding the attitude we will embrace for that day."  
+> — **Charles Swindoll**
 
 ---
 

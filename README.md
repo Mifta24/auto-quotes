@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings believe just as they breathe - in order to survive."  
-> — **Carlos Ruiz Zafon**
+> "We have a choice everyday regarding the attitude we will embrace for that day."  
+> — **Charles Swindoll**
 
 ---
 
