@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
-> — **Lao Tzu**
+> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 14 April 2025 ⏳_
+_Last updated: 15 April 2025 ⏳_
