@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Passion creates, addiction consumes."  
-> — **Gabor Mate**
+> "The most virtuous are those who content themselves with being virtuous without seeking to appear so."  
+> — **Plato**
 
 ---
 
