@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "Passion creates, addiction consumes."  
+> — **Gabor Mate**
 
 ---
 
