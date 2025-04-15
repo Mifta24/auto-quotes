@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every strike brings me closer to the next home run. "  
-> — **Babe Ruth**
+> "Real learning comes about when the competitive spirit has ceased."  
+> — **Jiddu Krishnamurti**
 
 ---
 
