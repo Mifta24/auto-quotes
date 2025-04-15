@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reality is the leading cause of stress among those in touch with it."  
-> — **Lily Tomlin**
+> "With self-discipline, almost anything is possible."  
+> — **Theodore Roosevelt**
 
 ---
 
