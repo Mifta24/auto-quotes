@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
-> — **Brian Tracy**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 
