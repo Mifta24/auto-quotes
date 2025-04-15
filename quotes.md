@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is like reaching an important birthday and finding you're exactly the same."  
-> — **Audrey Hepburn**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
