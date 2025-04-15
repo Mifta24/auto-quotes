@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "Your heart is the size of an ocean. Go find yourself in its hidden depths."  
+> — **Rumi**
 
 ---
 
