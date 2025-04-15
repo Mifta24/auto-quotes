@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real learning comes about when the competitive spirit has ceased."  
-> — **Jiddu Krishnamurti**
+> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. "  
+> — **Charles Swindoll**
 
 ---
 

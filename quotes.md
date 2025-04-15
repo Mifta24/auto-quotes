@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek is to suffer. To seek nothing is bliss."  
-> — **Bodhidharma**
+> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. "  
+> — **Charles Swindoll**
 
 ---
 
