@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your heart is the size of an ocean. Go find yourself in its hidden depths."  
-> — **Rumi**
+> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
+> — **Norman Vincent Peale**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
+> — **Norman Vincent Peale**
 
 ---
 
