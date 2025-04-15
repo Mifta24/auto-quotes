@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
-> — **Brian Tracy**
+> "What keeps life fascinating is the constant creativity of the soul."  
+> — **Deepak Chopra**
 
 ---
 
