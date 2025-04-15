@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings believe just as they breathe - in order to survive."  
-> — **Carlos Ruiz Zafon**
+> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
+> — **Lolly Daskal**
 
 ---
 
