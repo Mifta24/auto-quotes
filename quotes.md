@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "An intelligence test sometimes shows a man how smart he would have been not to have taken it."  
+> — **Laurence J. Peter**
 
 ---
 
