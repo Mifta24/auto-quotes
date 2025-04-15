@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many roads lead to the path, but basically there are only two: reason and practice. "  
-> — **Bodhidharma**
+> "Human beings believe just as they breathe - in order to survive."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

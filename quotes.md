@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It takes half your life before you discover life is a do-it-yourself project."  
-> — **Napoleon Hill**
+> "Human beings believe just as they breathe - in order to survive."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
