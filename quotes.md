@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The roots of education are bitter, but the fruit is sweet."  
-> — **Aristotle**
+> "Everything great that has ever happened to humanity has begun as a single thought in someone's mind."  
+> — **Yanni**
 
 ---
 
