@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "You are your best thing."  
+> — **Toni Morrison**
 
 ---
 
