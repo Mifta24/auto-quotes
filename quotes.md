@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
-> — **Hans Christian Andersen**
+> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
+> — **Robert Greene**
 
 ---
 
