@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is not for all men, but for those who seek it."  
-> — **Ayn Rand**
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
+> — **Steve Harvey**
 
 ---
 

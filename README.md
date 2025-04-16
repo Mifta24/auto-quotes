@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heart is what separates the good from the great."  
-> — **Michael Jordan**
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
+> — **Steve Harvey**
 
 ---
 
