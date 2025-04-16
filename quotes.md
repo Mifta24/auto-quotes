@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is stupid. So are regrets."  
-> — **Marilyn Monroe**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 

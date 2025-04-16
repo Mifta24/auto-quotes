@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything great that has ever happened to humanity has begun as a single thought in someone's mind."  
-> — **Yanni**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 
