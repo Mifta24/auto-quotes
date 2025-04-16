@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what is right, not what is easy, nor what is popular."  
-> — **Roy T. Bennett**
+> "Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner."  
+> — **Arnold Schwarzenegger**
 
 ---
 

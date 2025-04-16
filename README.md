@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
-> — **Steve Harvey**
+> "Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner."  
+> — **Arnold Schwarzenegger**
 
 ---
 
