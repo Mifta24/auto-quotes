@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything great that has ever happened to humanity has begun as a single thought in someone's mind."  
-> — **Yanni**
+> "Fear is stupid. So are regrets."  
+> — **Marilyn Monroe**
 
 ---
 
