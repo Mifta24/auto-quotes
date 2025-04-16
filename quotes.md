@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are possessed by nothing possess everything."  
-> — **Morihei Ueshiba**
+> "The more you like yourself, the less you are like anyone else, which makes you unique."  
+> — **Walt Disney**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No need to hurry. No need to sparkle. No need to be anybody but oneself."  
-> — **Virginia Woolf**
+> "The more you like yourself, the less you are like anyone else, which makes you unique."  
+> — **Walt Disney**
 
 ---
 
