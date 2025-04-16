@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
+> — **Hans Christian Andersen**
 
 ---
 
