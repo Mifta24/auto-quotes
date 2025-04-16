@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
-> — **Steve Harvey**
+> "Do what is right, not what is easy, nor what is popular."  
+> — **Roy T. Bennett**
 
 ---
 
