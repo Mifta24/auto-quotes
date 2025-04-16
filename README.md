@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
-> — **Hans Christian Andersen**
+> "No need to hurry. No need to sparkle. No need to be anybody but oneself."  
+> — **Virginia Woolf**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
-> — **Robert Greene**
+> "No need to hurry. No need to sparkle. No need to be anybody but oneself."  
+> — **Virginia Woolf**
 
 ---
 
