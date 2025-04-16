@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A poet should be so crafty with words that he is envied even for his pains."  
-> — **Criss Jami**
+> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
+> — **Ayn Rand**
 
 ---
 

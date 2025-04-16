@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner."  
-> — **Arnold Schwarzenegger**
+> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
+> — **Ayn Rand**
 
 ---
 
