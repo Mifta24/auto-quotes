@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is ignorance that causes most mistakes."  
-> — **Harry S. Truman**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 

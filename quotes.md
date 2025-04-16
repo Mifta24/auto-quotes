@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable."  
-> — **Earl Nightingale**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 
