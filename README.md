@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. "  
-> — **Charles Swindoll**
+> "Heart is what separates the good from the great."  
+> — **Michael Jordan**
 
 ---
 
-_Last updated: 15 April 2025 ⏳_
+_Last updated: 16 April 2025 ⏳_
