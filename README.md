@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you like yourself, the less you are like anyone else, which makes you unique."  
-> — **Walt Disney**
+> "May you live all the days of your life."  
+> — **Jonathan Swift**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listen to the secret sound, the real sound, which is inside you."  
-> — **Kabir**
+> "May you live all the days of your life."  
+> — **Jonathan Swift**
 
 ---
 
