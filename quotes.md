@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "What you seek is seeking you."  
+> — **Rumi**
 
 ---
 
