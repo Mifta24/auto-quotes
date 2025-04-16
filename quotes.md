@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heart is what separates the good from the great."  
-> — **Michael Jordan**
+> "The truth is not for all men, but for those who seek it."  
+> — **Ayn Rand**
 
 ---
 
