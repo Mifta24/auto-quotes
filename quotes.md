@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner."  
-> — **Arnold Schwarzenegger**
+> "A poet should be so crafty with words that he is envied even for his pains."  
+> — **Criss Jami**
 
 ---
 
