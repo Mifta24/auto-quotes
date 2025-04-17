@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your worth consists in what you are and not in what you have."  
-> — **Thomas Edison**
+> "You don't have to be great to start, but you have to start to be great.  "  
+> — **Zig Ziglar**
 
 ---
 

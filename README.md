@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the love you make. It's the love you give. "  
-> — **Nikola Tesla**
+> "You don't have to be great to start, but you have to start to be great.  "  
+> — **Zig Ziglar**
 
 ---
 
