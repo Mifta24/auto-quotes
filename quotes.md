@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong."  
-> — **Elon Musk**
+> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
+> — **Orison Swett Marden**
 
 ---
 
