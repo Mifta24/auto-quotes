@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistake is a mistake only if you make it twice."  
-> — **Robin Sharma**
+> "It's not the love you make. It's the love you give. "  
+> — **Nikola Tesla**
 
 ---
 
