@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Chop your own wood and it will warm you twice. "  
-> — **Henry Ford**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
