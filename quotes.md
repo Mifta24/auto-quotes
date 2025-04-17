@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "The quality, not the longevity, of one's life is what is important."  
+> — **Martin Luther King, Jr.**
 
 ---
 
