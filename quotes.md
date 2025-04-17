@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
-> — **Eckhart Tolle**
+> "As you love yourself, life loves you back."  
+> — **Kamal Ravikant**
 
 ---
 
