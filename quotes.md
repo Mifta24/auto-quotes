@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "Each path to knowledge involves different rules and these rules are not interchangeable."  
+> — **Barack Obama**
 
 ---
 
