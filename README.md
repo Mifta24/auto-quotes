@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your wounds into wisdom. "  
-> — **Oprah Winfrey**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 

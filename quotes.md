@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
-> — **Napoleon Hill**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 
