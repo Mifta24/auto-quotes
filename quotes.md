@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
-> — **Eleanor Roosevelt**
+> "It is not uncommon for people to spend their whole life waiting to start living."  
+> — **Eckhart Tolle**
 
 ---
 
