@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
-> — **Orison Swett Marden**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong."  
-> — **Elon Musk**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 
