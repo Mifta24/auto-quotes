@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the power of the mind to be unconquerable."  
-> — **Seneca**
+> "Success is an iceberg."  
+> — **Unknown**
 
 ---
 
