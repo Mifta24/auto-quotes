@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't have to be great to start, but you have to start to be great.  "  
-> — **Zig Ziglar**
+> "It's the possibility of having a dream come true that makes life interesting."  
+> — **Paulo Coelho**
 
 ---
 

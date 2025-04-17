@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In life you need either inspiration or desperation."  
-> — **Tony Robbins**
+> "It's the possibility of having a dream come true that makes life interesting."  
+> — **Paulo Coelho**
 
 ---
 
