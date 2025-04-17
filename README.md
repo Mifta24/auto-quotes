@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the possibility of having a dream come true that makes life interesting."  
-> — **Paulo Coelho**
+> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
+> — **Eckhart Tolle**
 
 ---
 

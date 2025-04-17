@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is only real, when shared."  
-> — **Christopher McCandless**
+> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
+> — **Eckhart Tolle**
 
 ---
 
