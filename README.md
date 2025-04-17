@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "Turn your wounds into wisdom. "  
+> — **Oprah Winfrey**
 
 ---
 

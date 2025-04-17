@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality, not the longevity, of one's life is what is important."  
-> — **Martin Luther King, Jr.**
+> "Turn your wounds into wisdom. "  
+> — **Oprah Winfrey**
 
 ---
 
