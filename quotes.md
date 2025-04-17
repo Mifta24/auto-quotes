@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the possibility of having a dream come true that makes life interesting."  
-> — **Paulo Coelho**
+> "Happiness is only real, when shared."  
+> — **Christopher McCandless**
 
 ---
 
