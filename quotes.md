@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lust, anger and greed are the three gates to self-destructive hell."  
-> — **Bhagavad Gita**
+> "It is the power of the mind to be unconquerable."  
+> — **Seneca**
 
 ---
 
