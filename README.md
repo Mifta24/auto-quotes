@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the mistakes of others. You can't live long enough to make them all yourself."  
-> — **Eleanor Roosevelt**
+> "I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong."  
+> — **Elon Musk**
 
 ---
 

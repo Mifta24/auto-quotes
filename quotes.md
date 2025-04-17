@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not uncommon for people to spend their whole life waiting to start living."  
-> — **Eckhart Tolle**
+> "I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong."  
+> — **Elon Musk**
 
 ---
 
