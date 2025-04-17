@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you love yourself, life loves you back."  
-> — **Kamal Ravikant**
+> "Chop your own wood and it will warm you twice. "  
+> — **Henry Ford**
 
 ---
 
