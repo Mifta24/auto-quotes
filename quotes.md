@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't have to be great to start, but you have to start to be great.  "  
-> — **Zig Ziglar**
+> "In life you need either inspiration or desperation."  
+> — **Tony Robbins**
 
 ---
 
