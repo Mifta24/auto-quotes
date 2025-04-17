@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the love you make. It's the love you give. "  
-> — **Nikola Tesla**
+> "Your worth consists in what you are and not in what you have."  
+> — **Thomas Edison**
 
 ---
 
