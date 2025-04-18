@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
-> — **Naval Ravikant**
+> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
+> — **Unknown**
 
 ---
 

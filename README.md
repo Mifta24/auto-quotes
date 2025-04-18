@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Passion is born deaf and dumb."  
-> — **Honore de Balzac**
+> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
+> — **Unknown**
 
 ---
 
