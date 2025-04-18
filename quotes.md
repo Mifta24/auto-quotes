@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "The future belongs to those who believe in the beauty of their dreams."  
+> "With the new day comes new strength and new thoughts."  
 > — **Eleanor Roosevelt**
 
 ---

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All has not been said and never will be."  
-> — **Samuel Beckett**
+> "With the new day comes new strength and new thoughts."  
+> — **Eleanor Roosevelt**
 
 ---
 
