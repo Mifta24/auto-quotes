@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."  
-> — **Steve Harvey**
+> "The most creative act you will ever undertake is the act of creating yourself."  
+> — **Deepak Chopra**
 
 ---
 
