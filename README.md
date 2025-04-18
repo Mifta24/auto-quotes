@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
-> — **Estee Lauder**
+> "Don't talk about what you have done or what you are going to do."  
+> — **Thomas Jefferson**
 
 ---
 

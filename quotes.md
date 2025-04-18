@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are for dreamers. Goals are for achievers."  
-> — **Arnold Schwarzenegger**
+> "Don't talk about what you have done or what you are going to do."  
+> — **Thomas Jefferson**
 
 ---
 
