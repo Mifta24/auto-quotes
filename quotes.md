@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ponder and deliberate before you make a move."  
-> — **Sun Tzu**
+> "To perceive is to suffer."  
+> — **Aristotle**
 
 ---
 
