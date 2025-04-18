@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With the new day comes new strength and new thoughts."  
-> — **Eleanor Roosevelt**
+> "There is no truth. There is only perception."  
+> — **Gustave Flaubert**
 
 ---
 
