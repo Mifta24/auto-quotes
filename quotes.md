@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
-> — **Unknown**
+> "From a certain point onward there is no longer any turning back. That is the point that must be reached."  
+> — **Franz Kafka**
 
 ---
 
