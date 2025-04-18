@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better late than never."  
-> — **Spencer Johnson**
+> "Growth is in a series of mistakes. That's the only way you learn."  
+> — **Steve Harvey**
 
 ---
 
