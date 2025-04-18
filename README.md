@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To perceive is to suffer."  
-> — **Aristotle**
+> "Always forgive your enemies - nothing annoys them so much. "  
+> — **Oscar Wilde**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find your Light; They can't love you if they can't see you."  
-> — **Bette Midler**
+> "Always forgive your enemies - nothing annoys them so much. "  
+> — **Oscar Wilde**
 
 ---
 
