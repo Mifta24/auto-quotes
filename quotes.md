@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better late than never."  
-> — **Spencer Johnson**
+> "Deliberately seek the company of people who influence you to think and act on building the life you desire."  
+> — **Napoleon Hill**
 
 ---
 
