@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your past does not equal your future."  
-> — **Tony Robbins**
+> "Passion is born deaf and dumb."  
+> — **Honore de Balzac**
 
 ---
 

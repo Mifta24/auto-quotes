@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always forgive your enemies - nothing annoys them so much. "  
-> — **Oscar Wilde**
+> "Passion is born deaf and dumb."  
+> — **Honore de Balzac**
 
 ---
 
