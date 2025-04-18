@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always forgive your enemies - nothing annoys them so much. "  
-> — **Oscar Wilde**
+> "Your past does not equal your future."  
+> — **Tony Robbins**
 
 ---
 
