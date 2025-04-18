@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no truth. There is only perception."  
-> — **Gustave Flaubert**
+> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."  
+> — **Sydney Smith**
 
 ---
 
