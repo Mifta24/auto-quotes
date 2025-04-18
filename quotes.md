@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To perceive is to suffer."  
-> — **Aristotle**
+> "Find your Light; They can't love you if they can't see you."  
+> — **Bette Midler**
 
 ---
 
