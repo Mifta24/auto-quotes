@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All has not been said and never will be."  
-> — **Samuel Beckett**
+> "The future belongs to those who believe in the beauty of their dreams."  
+> — **Eleanor Roosevelt**
 
 ---
 
