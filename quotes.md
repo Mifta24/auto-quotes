@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 17 April 2025 ⏳_
+_Last updated: 18 April 2025 ⏳_

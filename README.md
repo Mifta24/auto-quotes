@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Chop your own wood and it will warm you twice. "  
-> — **Henry Ford**
+> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 17 April 2025 ⏳_
+_Last updated: 18 April 2025 ⏳_
