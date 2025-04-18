@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't talk about what you have done or what you are going to do."  
-> — **Thomas Jefferson**
+> "Ponder and deliberate before you make a move."  
+> — **Sun Tzu**
 
 ---
 
