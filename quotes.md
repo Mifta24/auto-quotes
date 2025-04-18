@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
-> — **Estee Lauder**
+> "Dreams are for dreamers. Goals are for achievers."  
+> — **Arnold Schwarzenegger**
 
 ---
 
