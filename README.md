@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."  
-> — **Steve Harvey**
+> "All has not been said and never will be."  
+> — **Samuel Beckett**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most creative act you will ever undertake is the act of creating yourself."  
-> — **Deepak Chopra**
+> "All has not been said and never will be."  
+> — **Samuel Beckett**
 
 ---
 
