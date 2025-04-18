@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Passion is born deaf and dumb."  
-> — **Honore de Balzac**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 
