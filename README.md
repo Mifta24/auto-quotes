@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
-> — **Jon Kabat-Zinn**
+> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
+> — **Estee Lauder**
 
 ---
 

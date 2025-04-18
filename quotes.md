@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All life is an experiment. The more experiments you make, the better."  
-> — **Ralph Waldo Emerson**
+> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
+> — **Estee Lauder**
 
 ---
 
