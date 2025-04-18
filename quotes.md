@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."  
-> — **Sydney Smith**
+> "Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do."  
+> — **Nelson Mandela**
 
 ---
 
