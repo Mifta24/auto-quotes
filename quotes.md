@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Age is a very high price to pay for maturity."  
-> — **William James**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 
