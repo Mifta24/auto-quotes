@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who have goals succeed because they know where they're going. It's that simple."  
-> — **Earl Nightingale**
+> "Just do the best you can. No one can do more than that."  
+> — **John Wooden**
 
 ---
 
