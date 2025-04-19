@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words, once they are printed, have a life of their own."  
-> — **Carol Burnett**
+> "The river that flows in you also flows in me."  
+> — **Kabir**
 
 ---
 

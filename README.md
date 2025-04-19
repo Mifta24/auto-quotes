@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who wishes to be obeyed must know how to command."  
-> — **Niccolo Machiavelli**
+> "The river that flows in you also flows in me."  
+> — **Kabir**
 
 ---
 
