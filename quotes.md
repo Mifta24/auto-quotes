@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it."  
-> — **Gary Keller**
+> "Small men think they are small; great men never know they are great. "  
+> — **Chinese Proverb**
 
 ---
 
