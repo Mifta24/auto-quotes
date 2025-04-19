@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A golden cage is still just a cage."  
-> — **Anita Krizzan**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 
