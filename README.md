@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone you admire was once a beginner."  
-> — **Jack Butcher**
+> "He who wishes to be obeyed must know how to command."  
+> — **Niccolo Machiavelli**
 
 ---
 

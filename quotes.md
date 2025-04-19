@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A change is brought about because ordinary people do extraordinary things."  
-> — **Barack Obama**
+> "He who wishes to be obeyed must know how to command."  
+> — **Niccolo Machiavelli**
 
 ---
 
