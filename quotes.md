@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stress happens when the mind resists what is."  
-> — **Dan Millman**
+> "It's your life-but only if you make it so."  
+> — **Eleanor Roosevelt**
 
 ---
 
