@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do."  
-> — **Nelson Mandela**
+> "Everyone you admire was once a beginner."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 18 April 2025 ⏳_
+_Last updated: 19 April 2025 ⏳_
