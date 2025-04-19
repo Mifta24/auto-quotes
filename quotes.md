@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
-> — **Jon Kabat-Zinn**
+> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
+> — **Thomas Edison**
 
 ---
 
