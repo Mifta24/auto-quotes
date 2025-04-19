@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The river that flows in you also flows in me."  
-> — **Kabir**
+> "Nothing has more strength than dire necessity."  
+> — **Euripides**
 
 ---
 
