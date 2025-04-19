@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Age is a very high price to pay for maturity."  
-> — **William James**
+> "Stress happens when the mind resists what is."  
+> — **Dan Millman**
 
 ---
 

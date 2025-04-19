@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The search for happiness is one of the chief sources of unhappiness."  
-> — **Eric Hoffer**
+> "Stress happens when the mind resists what is."  
+> — **Dan Millman**
 
 ---
 
