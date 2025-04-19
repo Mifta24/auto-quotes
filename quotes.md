@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who wishes to be obeyed must know how to command."  
-> — **Niccolo Machiavelli**
+> "Words, once they are printed, have a life of their own."  
+> — **Carol Burnett**
 
 ---
 
