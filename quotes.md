@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing has more strength than dire necessity."  
-> — **Euripides**
+> "At the center of your being you have the answer; you know who you are and you know what you want."  
+> — **Lao Tzu**
 
 ---
 
