@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Small men think they are small; great men never know they are great. "  
-> — **Chinese Proverb**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
+> — **Jon Kabat-Zinn**
 
 ---
 

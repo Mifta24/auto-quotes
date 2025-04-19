@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it."  
-> — **Gary Keller**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
+> — **Jon Kabat-Zinn**
 
 ---
 
