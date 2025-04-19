@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
-> — **Thomas Edison**
+> "The past has no power over the present moment. "  
+> — **Eckhart Tolle**
 
 ---
 

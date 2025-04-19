@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
-> — **Jon Kabat-Zinn**
+> "The past has no power over the present moment. "  
+> — **Eckhart Tolle**
 
 ---
 
