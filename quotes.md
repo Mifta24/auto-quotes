@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
-> — **Sathya Sai Baba**
+> "The secret of success lies not in doing your own work, but in recognizing the right man to do it."  
+> — **Andrew Carnegie**
 
 ---
 
