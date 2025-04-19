@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A golden cage is still just a cage."  
-> — **Anita Krizzan**
+> "Age is a very high price to pay for maturity."  
+> — **William James**
 
 ---
 

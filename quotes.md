@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "Age is a very high price to pay for maturity."  
+> — **William James**
 
 ---
 
