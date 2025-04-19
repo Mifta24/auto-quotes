@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone you admire was once a beginner."  
-> — **Jack Butcher**
+> "A change is brought about because ordinary people do extraordinary things."  
+> — **Barack Obama**
 
 ---
 
