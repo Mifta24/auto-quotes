@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing has more strength than dire necessity."  
-> — **Euripides**
+> "A golden cage is still just a cage."  
+> — **Anita Krizzan**
 
 ---
 
