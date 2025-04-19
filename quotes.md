@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The river that flows in you also flows in me."  
-> — **Kabir**
+> "It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated."  
+> — **Albus Dumbledore**
 
 ---
 
