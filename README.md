@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stress happens when the mind resists what is."  
-> — **Dan Millman**
+> "People who have goals succeed because they know where they're going. It's that simple."  
+> — **Earl Nightingale**
 
 ---
 
