@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
-> — **Sathya Sai Baba**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 19 April 2025 ⏳_
+_Last updated: 20 April 2025 ⏳_

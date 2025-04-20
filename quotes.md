@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The secret of success lies not in doing your own work, but in recognizing the right man to do it."  
-> — **Andrew Carnegie**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 19 April 2025 ⏳_
+_Last updated: 20 April 2025 ⏳_
