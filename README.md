@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The significance of life is living."  
-> — **Jiddu Krishnamurti**
+> "Every one of us is the sum total of his own thoughts."  
+> — **Earl Nightingale**
 
 ---
 
