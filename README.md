@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
-> — **Epictetus**
+> "Life is what happens to you while you're busy making other plans."  
+> — **John Lennon**
 
 ---
 
