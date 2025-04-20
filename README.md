@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you love yourself, life loves you back."  
-> — **Kamal Ravikant**
+> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
+> — **Sathya Sai Baba**
 
 ---
 
