@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your past does not equal your future."  
-> — **Tony Robbins**
+> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
+> — **Margaret Mead**
 
 ---
 
