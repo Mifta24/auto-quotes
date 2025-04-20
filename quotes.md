@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom itself demands discomfort."  
-> — **Mark Manson**
+> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy."  
+> — **Sun Tzu**
 
 ---
 
