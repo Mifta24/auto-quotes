@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our truest life is when we are in dreams awake."  
-> — **Henry David Thoreau**
+> "The most creative act you will ever undertake is the act of creating yourself."  
+> — **Deepak Chopra**
 
 ---
 
