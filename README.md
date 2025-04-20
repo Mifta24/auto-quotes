@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom itself demands discomfort."  
-> — **Mark Manson**
+> "The impossible can always be broken down into possibilities."  
+> — **Unknown**
 
 ---
 

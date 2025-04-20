@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy."  
-> — **Sun Tzu**
+> "The impossible can always be broken down into possibilities."  
+> — **Unknown**
 
 ---
 
