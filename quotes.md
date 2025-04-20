@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you love yourself, life loves you back."  
-> — **Kamal Ravikant**
+> "To a mind that is still, the entire universe surrenders."  
+> — **Zhuangzi**
 
 ---
 
