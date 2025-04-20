@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every one of us is the sum total of his own thoughts."  
-> — **Earl Nightingale**
+> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
+> — **Andrew Carnegie**
 
 ---
 
