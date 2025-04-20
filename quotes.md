@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
-> — **Sathya Sai Baba**
+> "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves."  
+> — **Steve Maraboli**
 
 ---
 
