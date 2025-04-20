@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your past does not equal your future."  
-> — **Tony Robbins**
+> "There is no excuse for not trying."  
+> — **Barack Obama**
 
 ---
 
