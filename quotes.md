@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
-> — **Les Brown**
+> "Freedom itself demands discomfort."  
+> — **Mark Manson**
 
 ---
 
