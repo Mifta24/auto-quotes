@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
-> — **Andrew Carnegie**
+> "Our truest life is when we are in dreams awake."  
+> — **Henry David Thoreau**
 
 ---
 

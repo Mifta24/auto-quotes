@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every one of us is the sum total of his own thoughts."  
-> — **Earl Nightingale**
+> "Our truest life is when we are in dreams awake."  
+> — **Henry David Thoreau**
 
 ---
 
