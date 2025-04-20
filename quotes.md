@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The impossible can always be broken down into possibilities."  
-> — **Unknown**
+> "Behind every beautiful thing, there's some kind of pain."  
+> — **Bob Dylan**
 
 ---
 
