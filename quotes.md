@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what happens to you while you're busy making other plans."  
-> — **John Lennon**
+> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
+> — **Les Brown**
 
 ---
 
