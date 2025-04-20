@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Excellence is not an exception, it is a prevailing attitude."  
-> — **Colin Powell**
+> "As you love yourself, life loves you back."  
+> — **Kamal Ravikant**
 
 ---
 

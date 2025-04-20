@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most creative act you will ever undertake is the act of creating yourself."  
-> — **Deepak Chopra**
+> "As you love yourself, life loves you back."  
+> — **Kamal Ravikant**
 
 ---
 
