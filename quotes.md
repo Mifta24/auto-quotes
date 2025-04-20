@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most creative act you will ever undertake is the act of creating yourself."  
-> — **Deepak Chopra**
+> "Excellence is not an exception, it is a prevailing attitude."  
+> — **Colin Powell**
 
 ---
 
