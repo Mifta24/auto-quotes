@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The impossible can always be broken down into possibilities."  
-> — **Unknown**
+> "The significance of life is living."  
+> — **Jiddu Krishnamurti**
 
 ---
 

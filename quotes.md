@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Behind every beautiful thing, there's some kind of pain."  
-> — **Bob Dylan**
+> "The significance of life is living."  
+> — **Jiddu Krishnamurti**
 
 ---
 
