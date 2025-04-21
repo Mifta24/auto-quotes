@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
-> — **Kabir**
+> "The way to love anything is to realize that it may be lost."  
+> — **Gilbert Chesterton**
 
 ---
 

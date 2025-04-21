@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lost friends, some by death...others by sheer inability to cross the street."  
-> — **Virginia Woolf**
+> "The way to love anything is to realize that it may be lost."  
+> — **Gilbert Chesterton**
 
 ---
 
