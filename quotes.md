@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make your mind your own business."  
-> — **Jack Butcher**
+> "Few things are more deceptive than memories."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
