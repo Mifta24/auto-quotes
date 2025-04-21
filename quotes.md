@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind."  
-> — **Eckhart Tolle**
+> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
+> — **Bruce Lee**
 
 ---
 

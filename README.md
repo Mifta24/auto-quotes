@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You only live once, but if you do it right, once is enough."  
-> — **Mae West**
+> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
+> — **Bruce Lee**
 
 ---
 
