@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. "  
-> — **Orison Swett Marden**
+> "I have lost friends, some by death...others by sheer inability to cross the street."  
+> — **Virginia Woolf**
 
 ---
 

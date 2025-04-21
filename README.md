@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "I have lost friends, some by death...others by sheer inability to cross the street."  
+> — **Virginia Woolf**
 
 ---
 
