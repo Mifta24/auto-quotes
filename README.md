@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "Success is often achieved by those who don't know that failure is inevitable."  
+> — **Coco Chanel**
 
 ---
 

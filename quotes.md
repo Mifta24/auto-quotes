@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind is the limit."  
-> — **Arnold Schwarzenegger**
+> "Success is often achieved by those who don't know that failure is inevitable."  
+> — **Coco Chanel**
 
 ---
 
