@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way to love anything is to realize that it may be lost."  
-> — **Gilbert Chesterton**
+> "Don't hate the player. Change the game."  
+> — **Steve Harvey**
 
 ---
 
