@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may be disappointed if you fail, but you are doomed if you don't try. "  
-> — **Beverly Sills**
+> "To the world you may be one person; but to one person you may be the world."  
+> — **Dr. Seuss**
 
 ---
 
