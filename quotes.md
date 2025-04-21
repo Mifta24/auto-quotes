@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To the world you may be one person; but to one person you may be the world."  
-> — **Dr. Seuss**
+> "You only live once, but if you do it right, once is enough."  
+> — **Mae West**
 
 ---
 
