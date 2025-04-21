@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be alive - is Power."  
-> — **Emily Dickinson**
+> "You use a glass mirror to see your face; you use works of art to see your soul."  
+> — **George Bernard Shaw**
 
 ---
 
