@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like underwear, should be changed twice a day.  "  
-> — **Ray Bradbury**
+> "The single biggest problem in communication is the illusion that it has taken place."  
+> — **George Bernard Shaw**
 
 ---
 
