@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
-> — **Margaret Mead**
+> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
+> — **Robert Collier**
 
 ---
 
-_Last updated: 20 April 2025 ⏳_
+_Last updated: 21 April 2025 ⏳_
