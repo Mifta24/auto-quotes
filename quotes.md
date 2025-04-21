@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "Life is like underwear, should be changed twice a day.  "  
+> — **Ray Bradbury**
 
 ---
 

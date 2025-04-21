@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way to love anything is to realize that it may be lost."  
-> — **Gilbert Chesterton**
+> "Life is like underwear, should be changed twice a day.  "  
+> — **Ray Bradbury**
 
 ---
 
