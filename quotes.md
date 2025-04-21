@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A self that goes on changing is a self that goes on living."  
-> — **Virginia Woolf**
+> "Life is a journey, not a destination."  
+> — **Dan Millman**
 
 ---
 
