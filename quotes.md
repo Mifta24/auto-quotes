@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "The mind is the limit."  
+> — **Arnold Schwarzenegger**
 
 ---
 
