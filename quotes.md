@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The single biggest problem in communication is the illusion that it has taken place."  
-> — **George Bernard Shaw**
+> "Make your mind your own business."  
+> — **Jack Butcher**
 
 ---
 
