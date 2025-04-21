@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
-> — **Bruce Lee**
+> "Greatness lies not in being strong, but in the right use of strength."  
+> — **Henry Ward Beecher**
 
 ---
 
