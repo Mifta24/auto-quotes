@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You only live once, but if you do it right, once is enough."  
-> — **Mae West**
+> "People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind."  
+> — **Eckhart Tolle**
 
 ---
 
