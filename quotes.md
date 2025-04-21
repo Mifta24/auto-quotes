@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest form of ignorance is when you reject something you don't know anything about. "  
-> — **Wayne Dyer**
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."  
+> — **Charles Darwin**
 
 ---
 

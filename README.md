@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is often achieved by those who don't know that failure is inevitable."  
-> — **Coco Chanel**
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."  
+> — **Charles Darwin**
 
 ---
 
