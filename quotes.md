@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lost friends, some by death...others by sheer inability to cross the street."  
-> — **Virginia Woolf**
+> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
+> — **Kabir**
 
 ---
 
