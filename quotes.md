@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
-> — **Robert Collier**
+> "A self that goes on changing is a self that goes on living."  
+> — **Virginia Woolf**
 
 ---
 
