@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Few things are more deceptive than memories."  
-> — **Carlos Ruiz Zafon**
+> "You may be disappointed if you fail, but you are doomed if you don't try. "  
+> — **Beverly Sills**
 
 ---
 

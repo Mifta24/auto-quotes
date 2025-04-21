@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make your mind your own business."  
-> — **Jack Butcher**
+> "You may be disappointed if you fail, but you are doomed if you don't try. "  
+> — **Beverly Sills**
 
 ---
 
