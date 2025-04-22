@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are your best thing."  
-> — **Toni Morrison**
+> "When you reach the end of your rope, tie a knot in it and hang on."  
+> — **Franklin D. Roosevelt**
 
 ---
 
