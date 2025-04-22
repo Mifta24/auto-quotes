@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who has overcome his fears will truly be free."  
-> — **Aristotle**
+> "Fear can hold you prisoner. Hope can set you free."  
+> — **Stephen King**
 
 ---
 
