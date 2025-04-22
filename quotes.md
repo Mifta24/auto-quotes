@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "I think self-awareness is probably the most important thing towards being a champion. "  
+> — **Billie Jean King**
 
 ---
 
