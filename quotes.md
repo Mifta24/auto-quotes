@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along."  
-> — **Celestine Chua**
+> "The best of us sometimes eat our words.  "  
+> — **Albus Dumbledore**
 
 ---
 
