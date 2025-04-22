@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our greatest glory is not in never falling but in rising every time we fall."  
-> — **Confucius**
+> "I've always lived in the moment."  
+> — **Yanni**
 
 ---
 
