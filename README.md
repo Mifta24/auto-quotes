@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Challenge yourself to find the good and beautiful thing inside of everyone."  
-> — **Mark Manson**
+> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
+> — **Alfred Adler**
 
 ---
 

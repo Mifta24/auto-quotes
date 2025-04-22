@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
+> — **Alfred Adler**
 
 ---
 
