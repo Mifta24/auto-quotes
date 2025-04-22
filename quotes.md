@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear can hold you prisoner. Hope can set you free."  
-> — **Stephen King**
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
+> — **George Eliot**
 
 ---
 
