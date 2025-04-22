@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fears are nothing more than a state of mind."  
-> — **Napoleon Hill**
+> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
+> — **Deepak Chopra**
 
 ---
 

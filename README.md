@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."  
-> — **Elbert Hubbard**
+> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
+> — **Deepak Chopra**
 
 ---
 
