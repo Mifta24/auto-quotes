@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people are not without problems. They're simply people who've learned to solve their problems."  
-> — **Earl Nightingale**
+> "Challenge yourself to find the good and beautiful thing inside of everyone."  
+> — **Mark Manson**
 
 ---
 
