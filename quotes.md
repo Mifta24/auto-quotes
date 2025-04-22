@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
-> — **Alfred Adler**
+> "He who has overcome his fears will truly be free."  
+> — **Aristotle**
 
 ---
 
