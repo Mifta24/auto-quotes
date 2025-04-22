@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are your best thing."  
-> — **Toni Morrison**
+> "Every day passes whether you participate or not."  
+> — **Ming-Dao Deng**
 
 ---
 
