@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
-> — **Bruce Lee**
+> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 21 April 2025 ⏳_
+_Last updated: 22 April 2025 ⏳_

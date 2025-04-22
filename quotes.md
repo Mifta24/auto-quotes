@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Greatness lies not in being strong, but in the right use of strength."  
-> — **Henry Ward Beecher**
+> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 21 April 2025 ⏳_
+_Last updated: 22 April 2025 ⏳_
