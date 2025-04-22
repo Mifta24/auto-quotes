@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "Logic is like the sword - those who appeal to it shall perish by it."  
+> — **Samuel Butler**
 
 ---
 

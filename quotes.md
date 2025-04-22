@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. "  
-> — **Albert Einstein**
+> "Logic is like the sword - those who appeal to it shall perish by it."  
+> — **Samuel Butler**
 
 ---
 
