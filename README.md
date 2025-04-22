@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along."  
-> — **Celestine Chua**
+> "The primary cause of unhappiness is never the situation but your thoughts about it."  
+> — **Eckhart Tolle**
 
 ---
 
