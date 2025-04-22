@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Logic is like the sword - those who appeal to it shall perish by it."  
-> — **Samuel Butler**
+> "Our greatest glory is not in never falling but in rising every time we fall."  
+> — **Confucius**
 
 ---
 
