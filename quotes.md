@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I think self-awareness is probably the most important thing towards being a champion. "  
-> — **Billie Jean King**
+> "Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along."  
+> — **Celestine Chua**
 
 ---
 

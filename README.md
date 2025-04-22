@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along."  
+> — **Celestine Chua**
 
 ---
 
