@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Logic is like the sword - those who appeal to it shall perish by it."  
-> — **Samuel Butler**
+> "It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it."  
+> — **Dale Carnegie**
 
 ---
 
