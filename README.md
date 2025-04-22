@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear can hold you prisoner. Hope can set you free."  
-> — **Stephen King**
+> "You are your best thing."  
+> — **Toni Morrison**
 
 ---
 
