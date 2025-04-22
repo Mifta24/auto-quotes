@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. "  
+> — **Albert Einstein**
 
 ---
 
