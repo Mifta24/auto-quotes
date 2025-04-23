@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever."  
-> — **Alexandre Dumas**
+> "Gratitude is the fairest blossom which springs from the soul."  
+> — **Henry Ward Beecher**
 
 ---
 

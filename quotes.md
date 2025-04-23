@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Gratitude is the fairest blossom which springs from the soul."  
+> — **Henry Ward Beecher**
 
 ---
 
