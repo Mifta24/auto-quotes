@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
+> — **Kenji Miyazawa**
 
 ---
 
