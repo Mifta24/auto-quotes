@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Attitude, not aptitude, determines altitude.  "  
-> — **Zig Ziglar**
+> "Success is a poor teacher."  
+> — **Robert Kiyosaki**
 
 ---
 
