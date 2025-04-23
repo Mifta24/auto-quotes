@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever."  
-> — **Alexandre Dumas**
+> "Wrong turns are as important as right turns. More important, sometimes."  
+> — **Richard Bach**
 
 ---
 
