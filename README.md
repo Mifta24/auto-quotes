@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talent is luck. The important thing in life is courage."  
-> — **Woody Allen**
+> "Laziness may appear attractive, but work gives satisfaction."  
+> — **Anne Frank**
 
 ---
 
