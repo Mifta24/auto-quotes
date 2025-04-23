@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "Attitude, not aptitude, determines altitude.  "  
+> — **Zig Ziglar**
 
 ---
 
