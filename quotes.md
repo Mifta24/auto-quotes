@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The salvation of the world lies in the human heart."  
-> — **Vaclav Havel**
+> "Confuse them with your silence and amaze them with your actions."  
+> — **Unknown**
 
 ---
 
