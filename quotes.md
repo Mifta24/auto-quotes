@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "An investment in knowledge pays the best interest."  
+> — **Benjamin Franklin**
 
 ---
 
