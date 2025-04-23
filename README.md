@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
-> — **Jeffrey Gitomer**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 

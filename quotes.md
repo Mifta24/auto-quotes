@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We build too many walls and not enough bridges."  
-> — **Isaac Newton**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 
