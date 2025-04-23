@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confuse them with your silence and amaze them with your actions."  
-> — **Unknown**
+> "Your home is where your thoughts find peace."  
+> — **Zen Proverb**
 
 ---
 
