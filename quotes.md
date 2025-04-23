@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
-> — **Jeffrey Gitomer**
+> "We build too many walls and not enough bridges."  
+> — **Isaac Newton**
 
 ---
 
