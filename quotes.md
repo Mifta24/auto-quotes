@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."  
-> — **Henry Ward Beecher**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 
