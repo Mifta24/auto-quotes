@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your home is where your thoughts find peace."  
-> — **Zen Proverb**
+> "We are always complaining that our days are few, and acting as though there would be no end of them.  "  
+> — **Seneca**
 
 ---
 

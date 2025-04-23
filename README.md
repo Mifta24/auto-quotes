@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confuse them with your silence and amaze them with your actions."  
-> — **Unknown**
+> "We are always complaining that our days are few, and acting as though there would be no end of them.  "  
+> — **Seneca**
 
 ---
 
