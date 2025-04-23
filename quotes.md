@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
+> — **Jeffrey Gitomer**
 
 ---
 

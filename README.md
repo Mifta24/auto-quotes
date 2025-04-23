@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are always complaining that our days are few, and acting as though there would be no end of them.  "  
-> — **Seneca**
+> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
+> — **Jeffrey Gitomer**
 
 ---
 
