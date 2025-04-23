@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talent is luck. The important thing in life is courage."  
-> — **Woody Allen**
+> "Do what is right, not what is easy, nor what is popular."  
+> — **Roy T. Bennett**
 
 ---
 
