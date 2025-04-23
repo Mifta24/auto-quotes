@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Laziness may appear attractive, but work gives satisfaction."  
-> — **Anne Frank**
+> "All religions, arts and sciences are branches of the same tree. "  
+> — **Albert Einstein**
 
 ---
 
