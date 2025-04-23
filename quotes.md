@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I've always lived in the moment."  
-> — **Yanni**
+> "The quality of your life is determined by the quality of your thoughts."  
+> — **Unknown**
 
 ---
 
-_Last updated: 22 April 2025 ⏳_
+_Last updated: 23 April 2025 ⏳_
