@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "I will not walk backward in life."  
+> — **J.R.R. Tolkien**
 
 ---
 

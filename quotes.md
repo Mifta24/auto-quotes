@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
-> — **Kenji Miyazawa**
+> "I will not walk backward in life."  
+> — **J.R.R. Tolkien**
 
 ---
 
