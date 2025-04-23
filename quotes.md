@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "Why compare yourself with others? No one in the entire world can do a better job of being you than you."  
+> — **Unknown**
 
 ---
 
