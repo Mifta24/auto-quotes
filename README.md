@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."  
-> — **Henry Ward Beecher**
+> "Talent is luck. The important thing in life is courage."  
+> — **Woody Allen**
 
 ---
 

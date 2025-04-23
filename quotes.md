@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
-> — **Jon Kabat-Zinn**
+> "Talent is luck. The important thing in life is courage."  
+> — **Woody Allen**
 
 ---
 
