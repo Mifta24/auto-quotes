@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never was anything great achieved without danger."  
-> — **Niccolo Machiavelli**
+> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
+> — **Celestine Chua**
 
 ---
 
