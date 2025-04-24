@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no limitations to the mind except those we acknowledge..."  
-> — **Napoleon Hill**
+> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
+> — **Audrey Hepburn**
 
 ---
 
