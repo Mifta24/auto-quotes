@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Goodness is the only investment that never fails."  
-> — **Henry David Thoreau**
+> "We are always complaining that our days are few, and acting as though there would be no end of them.  "  
+> — **Seneca**
 
 ---
 
