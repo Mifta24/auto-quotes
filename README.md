@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no limitations to the mind except those we acknowledge..."  
-> — **Napoleon Hill**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 

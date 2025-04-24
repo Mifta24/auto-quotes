@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
-> — **Audrey Hepburn**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 
