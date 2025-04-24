@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is more creative...nor destructive...than a brilliant mind with a purpose."  
-> — **Dan Brown**
+> "Stress happens when the mind resists what is."  
+> — **Dan Millman**
 
 ---
 
