@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life is to fall seven times and to get up eight times."  
-> — **Paulo Coelho**
+> "Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it."  
+> — **Alexandre Dumas**
 
 ---
 
