@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live life as though nobody is watching, and express yourself as though everyone is listening."  
-> — **Nelson Mandela**
+> "Nothing is more creative...nor destructive...than a brilliant mind with a purpose."  
+> — **Dan Brown**
 
 ---
 
