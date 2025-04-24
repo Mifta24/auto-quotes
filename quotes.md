@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith means believing the unbelievable."  
-> — **Gilbert Chesterton**
+> "Receive without complaint, Work with fate."  
+> — **Ming-Dao Deng**
 
 ---
 
