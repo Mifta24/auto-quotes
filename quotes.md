@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live life as though nobody is watching, and express yourself as though everyone is listening."  
-> — **Nelson Mandela**
+> "One day, in retrospect, the years of struggle will strike you as the most beautiful."  
+> — **Sigmund Freud**
 
 ---
 
