@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good stance and posture reflect a proper state of mind."  
-> — **Morihei Ueshiba**
+> "Never was anything great achieved without danger."  
+> — **Niccolo Machiavelli**
 
 ---
 
