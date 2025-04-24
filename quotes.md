@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Know the rules well, so you can break them effectively."  
-> — **Dalai Lama**
+> "Live life as though nobody is watching, and express yourself as though everyone is listening."  
+> — **Nelson Mandela**
 
 ---
 

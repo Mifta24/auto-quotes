@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "You can start changing our world for the better daily, no matter how small the action."  
+> "Live life as though nobody is watching, and express yourself as though everyone is listening."  
 > — **Nelson Mandela**
 
 ---
