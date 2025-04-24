@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you become is far more important than what you get."  
-> — **Jim Rohn**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 

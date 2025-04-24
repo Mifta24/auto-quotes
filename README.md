@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole world is a series of miracles, but we're so used to them we call them ordinary things."  
-> — **Hans Christian Andersen**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 
