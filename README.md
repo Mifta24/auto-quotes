@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life is to fall seven times and to get up eight times."  
-> — **Paulo Coelho**
+> "Faith means believing the unbelievable."  
+> — **Gilbert Chesterton**
 
 ---
 
