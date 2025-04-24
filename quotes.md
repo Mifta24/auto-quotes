@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Receive without complaint, Work with fate."  
-> — **Ming-Dao Deng**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 

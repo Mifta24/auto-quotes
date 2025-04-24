@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith means believing the unbelievable."  
-> — **Gilbert Chesterton**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 
