@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never was anything great achieved without danger."  
-> — **Niccolo Machiavelli**
+> "Man suffers only because he takes seriously what the gods made for fun."  
+> — **Alan Watts**
 
 ---
 
