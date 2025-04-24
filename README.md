@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "You can start changing our world for the better daily, no matter how small the action."  
+> — **Nelson Mandela**
 
 ---
 
