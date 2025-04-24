@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are always complaining that our days are few, and acting as though there would be no end of them.  "  
-> — **Seneca**
+> "The secret of life is to fall seven times and to get up eight times."  
+> — **Paulo Coelho**
 
 ---
 

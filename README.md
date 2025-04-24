@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Goodness is the only investment that never fails."  
-> — **Henry David Thoreau**
+> "The secret of life is to fall seven times and to get up eight times."  
+> — **Paulo Coelho**
 
 ---
 
