@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "Sometimes you have to travel a long way to find what is near."  
+> — **Paulo Coelho**
 
 ---
 
