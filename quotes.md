@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole world is a series of miracles, but we're so used to them we call them ordinary things."  
-> — **Hans Christian Andersen**
+> "What you become is far more important than what you get."  
+> — **Jim Rohn**
 
 ---
 
