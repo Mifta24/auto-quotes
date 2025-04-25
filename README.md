@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all born ignorant, but one must work hard to remain stupid."  
-> — **Benjamin Franklin**
+> "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars."  
+> — **Og Mandino**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
-> — **Vincent van Gogh**
+> "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars."  
+> — **Og Mandino**
 
 ---
 
