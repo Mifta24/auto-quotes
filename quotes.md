@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less people know, the more stubbornly they know it."  
-> — **Osho**
+> "Your goals are the road maps that guide you and show you what is possible for your life."  
+> — **Les Brown**
 
 ---
 

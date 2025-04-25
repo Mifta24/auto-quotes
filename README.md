@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead an orchestra, you must turn your back on the crowd."  
-> — **Aristotle**
+> "Your goals are the road maps that guide you and show you what is possible for your life."  
+> — **Les Brown**
 
 ---
 
