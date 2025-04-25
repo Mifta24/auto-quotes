@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our truest life is when we are in dreams awake."  
-> — **Henry David Thoreau**
+> "You cannot have a positive life and a negative mind."  
+> — **Joyce Meyer**
 
 ---
 
