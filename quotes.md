@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead an orchestra, you must turn your back on the crowd."  
-> — **Aristotle**
+> "The less people know, the more stubbornly they know it."  
+> — **Osho**
 
 ---
 
