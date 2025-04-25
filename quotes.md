@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it. "  
-> — **Confucius**
+> "If you can't feed a hundred people, then feed just one."  
+> — **Mother Teresa**
 
 ---
 
