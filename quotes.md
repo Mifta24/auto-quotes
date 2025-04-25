@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be deeply aware of the impermanence of the world."  
-> — **Dogen**
+> "Those who look for the bad in people will surely find it."  
+> — **Abraham Lincoln**
 
 ---
 
