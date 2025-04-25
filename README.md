@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "Repetition does not transform a lie into a truth."  
+> — **Franklin D. Roosevelt**
 
 ---
 

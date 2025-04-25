@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn off your mind, relax, and float downstream."  
-> — **John Lennon**
+> "Repetition does not transform a lie into a truth."  
+> — **Franklin D. Roosevelt**
 
 ---
 
