@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it. "  
-> — **Confucius**
+> "Dream big. Start small. But most of all, start."  
+> — **Simon Sinek**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't feed a hundred people, then feed just one."  
-> — **Mother Teresa**
+> "Dream big. Start small. But most of all, start."  
+> — **Simon Sinek**
 
 ---
 
