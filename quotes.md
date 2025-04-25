@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember we're all in this alone."  
-> — **Lily Tomlin**
+> "Everything has its beauty, but not everyone sees it. "  
+> — **Confucius**
 
 ---
 
