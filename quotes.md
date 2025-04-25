@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Stress happens when the mind resists what is."  
-> — **Dan Millman**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 24 April 2025 ⏳_
+_Last updated: 25 April 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Nothing is more creative...nor destructive...than a brilliant mind with a purpose."  
-> — **Dan Brown**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 24 April 2025 ⏳_
+_Last updated: 25 April 2025 ⏳_
