@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all born ignorant, but one must work hard to remain stupid."  
-> — **Benjamin Franklin**
+> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
+> — **Vincent van Gogh**
 
 ---
 
