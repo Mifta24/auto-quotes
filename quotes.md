@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
-> — **Tony Robbins**
+> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "  
+> — **Paramahansa Yogananda**
 
 ---
 

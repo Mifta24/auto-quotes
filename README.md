@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big. Start small. But most of all, start."  
-> — **Simon Sinek**
+> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "  
+> — **Paramahansa Yogananda**
 
 ---
 
