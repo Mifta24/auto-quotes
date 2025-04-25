@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot have a positive life and a negative mind."  
-> — **Joyce Meyer**
+> "One must be deeply aware of the impermanence of the world."  
+> — **Dogen**
 
 ---
 

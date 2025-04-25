@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our truest life is when we are in dreams awake."  
-> — **Henry David Thoreau**
+> "One must be deeply aware of the impermanence of the world."  
+> — **Dogen**
 
 ---
 
