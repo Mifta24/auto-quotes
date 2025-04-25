@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "Turn off your mind, relax, and float downstream."  
+> — **John Lennon**
 
 ---
 
