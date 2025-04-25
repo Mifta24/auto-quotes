@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Repetition does not transform a lie into a truth."  
-> — **Franklin D. Roosevelt**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
