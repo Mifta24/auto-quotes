@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The art of being happy lies in the power of extracting happiness from common things."  
-> — **Henry Ward Beecher**
+> "Our truest life is when we are in dreams awake."  
+> — **Henry David Thoreau**
 
 ---
 

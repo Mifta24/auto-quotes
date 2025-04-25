@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars."  
-> — **Og Mandino**
+> "Our truest life is when we are in dreams awake."  
+> — **Henry David Thoreau**
 
 ---
 
