@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every limit is a beginning as well as an ending."  
-> — **George Eliot**
+> "To lead an orchestra, you must turn your back on the crowd."  
+> — **Aristotle**
 
 ---
 
