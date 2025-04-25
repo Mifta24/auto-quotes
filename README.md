@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Repetition does not transform a lie into a truth."  
-> — **Franklin D. Roosevelt**
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
+> — **Roy T. Bennett**
 
 ---
 
