@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars."  
-> — **Og Mandino**
+> "The art of being happy lies in the power of extracting happiness from common things."  
+> — **Henry Ward Beecher**
 
 ---
 
