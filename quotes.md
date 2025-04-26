@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer more often in imagination than in reality."  
-> — **Seneca**
+> "Do Something. If it works, do more of it. If it doesn't, do something else."  
+> — **Franklin D. Roosevelt**
 
 ---
 

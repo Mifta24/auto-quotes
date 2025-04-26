@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only be afraid of what you think you know."  
-> — **Jiddu Krishnamurti**
+> "Do Something. If it works, do more of it. If it doesn't, do something else."  
+> — **Franklin D. Roosevelt**
 
 ---
 
