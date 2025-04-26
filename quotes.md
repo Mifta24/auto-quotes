@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you trust yourself, the less you compare yourself to others."  
-> — **Roy T. Bennett**
+> "We turn not older with years but newer every day."  
+> — **Emily Dickinson**
 
 ---
 
