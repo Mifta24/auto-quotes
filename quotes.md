@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
-> — **Norman Vincent Peale**
+> "You can only be afraid of what you think you know."  
+> — **Jiddu Krishnamurti**
 
 ---
 
