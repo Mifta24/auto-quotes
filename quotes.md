@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only be afraid of what you think you know."  
-> — **Jiddu Krishnamurti**
+> "We suffer more often in imagination than in reality."  
+> — **Seneca**
 
 ---
 
