@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change begets change. Nothing propagates so fast."  
-> — **Charles Dickens**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
