@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change begets change. Nothing propagates so fast."  
-> — **Charles Dickens**
+> "Never fear quarrels, but seek hazardous adventures."  
+> — **Alexandre Dumas**
 
 ---
 

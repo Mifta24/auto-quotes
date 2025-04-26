@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "Never fear quarrels, but seek hazardous adventures."  
+> — **Alexandre Dumas**
 
 ---
 
