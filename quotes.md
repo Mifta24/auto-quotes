@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience never fears midnight knocking."  
-> — **Chinese Proverb**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 

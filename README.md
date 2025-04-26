@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who boasts does so only out of a feeling of inferiority."  
-> — **Alfred Adler**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
