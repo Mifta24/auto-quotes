@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing will work unless you do."  
-> — **Maya Angelou**
+> "No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it."  
+> — **Richard Bach**
 
 ---
 
