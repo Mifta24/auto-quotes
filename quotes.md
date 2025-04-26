@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men do not attract which they want but that which they are."  
-> — **James Allen**
+> "The more you trust yourself, the less you compare yourself to others."  
+> — **Roy T. Bennett**
 
 ---
 

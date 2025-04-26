@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul."  
-> — **Marcus Aurelius**
+> "The more you trust yourself, the less you compare yourself to others."  
+> — **Roy T. Bennett**
 
 ---
 
