@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it."  
-> — **Richard Bach**
+> "Art is the signature of civilizations. "  
+> — **Beverly Sills**
 
 ---
 
