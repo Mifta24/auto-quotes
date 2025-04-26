@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never fear quarrels, but seek hazardous adventures."  
-> — **Alexandre Dumas**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 

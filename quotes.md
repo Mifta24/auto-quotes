@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What one does is what counts. Not what one had the intention of doing."  
-> — **Pablo Picasso**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 
