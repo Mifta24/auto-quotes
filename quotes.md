@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who look for the bad in people will surely find it."  
-> — **Abraham Lincoln**
+> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
+> — **Vince Lombardi**
 
 ---
 
-_Last updated: 25 April 2025 ⏳_
+_Last updated: 26 April 2025 ⏳_
