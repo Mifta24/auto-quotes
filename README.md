@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
-> — **Vince Lombardi**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 

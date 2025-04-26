@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live simply, expect little, give much."  
-> — **Norman Vincent Peale**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 
