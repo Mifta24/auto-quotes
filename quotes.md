@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. "  
+> — **Paramahansa Yogananda**
 
 ---
 
