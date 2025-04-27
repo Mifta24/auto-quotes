@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To belittle, you have to be little."  
-> — **Kahlil Gibran**
+> "They say love is the best investment; the more you give, the more you get in return."  
+> — **Audrey Hepburn**
 
 ---
 

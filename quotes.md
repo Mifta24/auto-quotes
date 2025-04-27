@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live your life and forget your age."  
-> — **Norman Vincent Peale**
+> "They say love is the best investment; the more you give, the more you get in return."  
+> — **Audrey Hepburn**
 
 ---
 
