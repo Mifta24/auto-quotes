@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
-> — **Lin Yutang**
+> "Never say never, because limits, like fears, are often just an illusion."  
+> — **Michael Jordan**
 
 ---
 

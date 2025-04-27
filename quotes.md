@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
-> — **Zen Proverb**
+> "Never say never, because limits, like fears, are often just an illusion."  
+> — **Michael Jordan**
 
 ---
 
