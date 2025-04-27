@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One loyal friend is worth ten thousand relatives."  
-> — **Euripides**
+> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
+> — **Margaret Mead**
 
 ---
 

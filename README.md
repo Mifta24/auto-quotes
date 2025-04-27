@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
+> — **Margaret Mead**
 
 ---
 
