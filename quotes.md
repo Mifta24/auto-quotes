@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All wealth is the product of labor."  
-> — **John Locke**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 
