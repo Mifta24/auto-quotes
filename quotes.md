@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "The wise learn many things from their enemies."  
+> — **Aristophanes**
 
 ---
 
