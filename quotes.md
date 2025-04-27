@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
-> — **Sigmund Freud**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 

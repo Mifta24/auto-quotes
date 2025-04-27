@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste not fresh tears over old griefs."  
-> — **Euripides**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 
