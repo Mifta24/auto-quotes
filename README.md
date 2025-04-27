@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be kind whenever possible. It is always possible."  
-> — **Dalai Lama**
+> "All wealth is the product of labor."  
+> — **John Locke**
 
 ---
 

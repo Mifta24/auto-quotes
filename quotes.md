@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It will never rain roses: when we want to have more roses, we must plant more roses."  
-> — **George Eliot**
+> "All wealth is the product of labor."  
+> — **John Locke**
 
 ---
 
