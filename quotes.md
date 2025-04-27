@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
-> — **Margaret Mead**
+> "If you don't break your ropes while you're alive, do you think ghosts will do it after?"  
+> — **Kabir**
 
 ---
 
