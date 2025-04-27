@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never say never, because limits, like fears, are often just an illusion."  
-> — **Michael Jordan**
+> "To belittle, you have to be little."  
+> — **Kahlil Gibran**
 
 ---
 
