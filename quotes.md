@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste not fresh tears over old griefs."  
-> — **Euripides**
+> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
+> — **Sigmund Freud**
 
 ---
 
