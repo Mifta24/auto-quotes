@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Management is doing things right; leadership is doing the right things."  
-> — **Peter Drucker**
+> "Things turn out best for the people who make the best of the way things turn out."  
+> — **John Wooden**
 
 ---
 
