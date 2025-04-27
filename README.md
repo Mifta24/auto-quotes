@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
+> — **Colin Powell**
 
 ---
 

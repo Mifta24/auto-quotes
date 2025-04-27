@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise learn many things from their enemies."  
-> — **Aristophanes**
+> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
+> — **Colin Powell**
 
 ---
 
