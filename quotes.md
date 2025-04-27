@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
-> — **Colin Powell**
+> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
+> — **Kahlil Gibran**
 
 ---
 
