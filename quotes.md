@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never say never, because limits, like fears, are often just an illusion."  
-> — **Michael Jordan**
+> "I do not exist to impress the world. I exist to live my life in a way that will make me happy."  
+> — **Richard Bach**
 
 ---
 
