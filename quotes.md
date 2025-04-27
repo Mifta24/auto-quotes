@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "One loyal friend is worth ten thousand relatives."  
+> — **Euripides**
 
 ---
 
