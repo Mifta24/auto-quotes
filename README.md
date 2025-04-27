@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
-> — **Margaret Mead**
+> "Management is doing things right; leadership is doing the right things."  
+> — **Peter Drucker**
 
 ---
 

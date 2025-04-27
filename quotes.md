@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't break your ropes while you're alive, do you think ghosts will do it after?"  
-> — **Kabir**
+> "Management is doing things right; leadership is doing the right things."  
+> — **Peter Drucker**
 
 ---
 
