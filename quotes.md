@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "They say love is the best investment; the more you give, the more you get in return."  
-> — **Audrey Hepburn**
+> "Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win."  
+> — **Sun Tzu**
 
 ---
 
