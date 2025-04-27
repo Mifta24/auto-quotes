@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Things turn out best for the people who make the best of the way things turn out."  
-> — **John Wooden**
+> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
+> — **Lin Yutang**
 
 ---
 
