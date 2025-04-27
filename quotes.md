@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
-> — **Lin Yutang**
+> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
+> — **Zen Proverb**
 
 ---
 
