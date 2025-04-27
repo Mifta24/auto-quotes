@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To belittle, you have to be little."  
-> — **Kahlil Gibran**
+> "Live your life and forget your age."  
+> — **Norman Vincent Peale**
 
 ---
 
