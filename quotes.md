@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "Be kind whenever possible. It is always possible."  
+> — **Dalai Lama**
 
 ---
 
-_Last updated: 26 April 2025 ⏳_
+_Last updated: 27 April 2025 ⏳_

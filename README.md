@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The more you trust yourself, the less you compare yourself to others."  
-> — **Roy T. Bennett**
+> "Be kind whenever possible. It is always possible."  
+> — **Dalai Lama**
 
 ---
 
-_Last updated: 26 April 2025 ⏳_
+_Last updated: 27 April 2025 ⏳_
