@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Smile, breathe and go slowly."  
-> — **Thich Nhat Hanh**
+> "The big thing is to make a winning effort. I'm not obsessed with wins."  
+> — **Morgan Wootten**
 
 ---
 

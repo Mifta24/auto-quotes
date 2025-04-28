@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life may be full of pain but that's not an excuse to give up."  
-> — **Arnold Schwarzenegger**
+> "The big thing is to make a winning effort. I'm not obsessed with wins."  
+> — **Morgan Wootten**
 
 ---
 
