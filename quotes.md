@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
-> — **Aristotle**
+> "You make your own luck if you stay at it long enough."  
+> — **Naval Ravikant**
 
 ---
 
