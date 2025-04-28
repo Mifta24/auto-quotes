@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more we value things, the less we value ourselves.  "  
-> — **Bruce Lee**
+> "Make your life a mission - not an intermission."  
+> — **Unknown**
 
 ---
 
