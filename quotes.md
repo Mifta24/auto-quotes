@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you know, the more you know you don't know."  
-> — **Aristotle**
+> "Life may be full of pain but that's not an excuse to give up."  
+> — **Arnold Schwarzenegger**
 
 ---
 

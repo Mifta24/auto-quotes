@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "Life may be full of pain but that's not an excuse to give up."  
+> — **Arnold Schwarzenegger**
 
 ---
 
