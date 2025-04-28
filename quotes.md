@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At first dreams seem impossible, then improbable, then inevitable."  
-> — **Christopher Reeve**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 

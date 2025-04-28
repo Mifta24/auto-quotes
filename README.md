@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no sadder sight than a young pessimist."  
-> — **Mark Twain**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 
