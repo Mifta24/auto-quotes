@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about accepting the challenges along the way, choosing to keep moving forward, and savoring the journey."  
-> — **Roy T. Bennett**
+> "The ability to observe without evaluating is the highest form of intelligence."  
+> — **Jiddu Krishnamurti**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Receive without pride, let go without attachment."  
-> — **Marcus Aurelius**
+> "The ability to observe without evaluating is the highest form of intelligence."  
+> — **Jiddu Krishnamurti**
 
 ---
 
