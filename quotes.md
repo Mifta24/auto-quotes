@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "The more you know, the more you know you don't know."  
+> — **Aristotle**
 
 ---
 
