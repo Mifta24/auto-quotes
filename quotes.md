@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ability to observe without evaluating is the highest form of intelligence."  
-> — **Jiddu Krishnamurti**
+> "Problems remain as problems because people are busy defending them rather than finding solutions."  
+> — **Celestine Chua**
 
 ---
 
