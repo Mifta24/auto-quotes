@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The big thing is to make a winning effort. I'm not obsessed with wins."  
-> — **Morgan Wootten**
+> "We become brave by doing brave acts."  
+> — **Aristotle**
 
 ---
 
