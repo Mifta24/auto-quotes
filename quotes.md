@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make your life a mission - not an intermission."  
-> — **Unknown**
+> "Exceptional thinkers ignore their critics and go about their business making history."  
+> — **John Eliot**
 
 ---
 

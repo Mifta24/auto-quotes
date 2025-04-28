@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more we value things, the less we value ourselves.  "  
-> — **Bruce Lee**
+> "Exceptional thinkers ignore their critics and go about their business making history."  
+> — **John Eliot**
 
 ---
 
