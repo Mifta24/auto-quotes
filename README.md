@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "Receive without pride, let go without attachment."  
+> — **Marcus Aurelius**
 
 ---
 

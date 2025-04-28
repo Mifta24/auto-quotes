@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dream is free, but the hustle is sold separately."  
-> — **Steve Harvey**
+> "Receive without pride, let go without attachment."  
+> — **Marcus Aurelius**
 
 ---
 
