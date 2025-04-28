@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ability to observe without evaluating is the highest form of intelligence."  
-> — **Jiddu Krishnamurti**
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
+> — **Aristotle**
 
 ---
 

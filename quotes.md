@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Problems remain as problems because people are busy defending them rather than finding solutions."  
-> — **Celestine Chua**
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
+> — **Aristotle**
 
 ---
 
