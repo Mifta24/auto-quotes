@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life may be full of pain but that's not an excuse to give up."  
-> — **Arnold Schwarzenegger**
+> "Smile, breathe and go slowly."  
+> — **Thich Nhat Hanh**
 
 ---
 
