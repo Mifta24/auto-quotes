@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "There is no sadder sight than a young pessimist."  
+> — **Mark Twain**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "There is no sadder sight than a young pessimist."  
+> — **Mark Twain**
 
 ---
 
