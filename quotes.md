@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "The dream is free, but the hustle is sold separately."  
+> — **Steve Harvey**
 
 ---
 
