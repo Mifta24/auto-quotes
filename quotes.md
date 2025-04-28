@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no sadder sight than a young pessimist."  
-> — **Mark Twain**
+> "At first dreams seem impossible, then improbable, then inevitable."  
+> — **Christopher Reeve**
 
 ---
 
