@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "This is such a short and precious life that it's really important that you don't spend it being unhappy."  
-> — **Naval Ravikant**
+> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
+> — **Mark Twain**
 
 ---
 
