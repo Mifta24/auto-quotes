@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "They say love is the best investment; the more you give, the more you get in return."  
-> — **Audrey Hepburn**
+> "This is such a short and precious life that it's really important that you don't spend it being unhappy."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 27 April 2025 ⏳_
+_Last updated: 28 April 2025 ⏳_
