@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
-> — **Leonardo da Vinci**
+> "The more we value things, the less we value ourselves.  "  
+> — **Bruce Lee**
 
 ---
 

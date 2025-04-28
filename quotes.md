@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the practice of tolerance, one's enemy is the best teacher."  
-> — **Dalai Lama**
+> "The more we value things, the less we value ourselves.  "  
+> — **Bruce Lee**
 
 ---
 
