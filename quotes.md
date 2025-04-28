@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't find the time, if you don't do the work, you don't get the results."  
-> — **Arnold Schwarzenegger**
+> "Life is about accepting the challenges along the way, choosing to keep moving forward, and savoring the journey."  
+> — **Roy T. Bennett**
 
 ---
 
