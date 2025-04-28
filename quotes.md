@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You make your own luck if you stay at it long enough."  
-> — **Naval Ravikant**
+> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
+> — **Leonardo da Vinci**
 
 ---
 

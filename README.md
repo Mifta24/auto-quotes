@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
-> — **Aristotle**
+> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
+> — **Leonardo da Vinci**
 
 ---
 
