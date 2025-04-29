@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't always championships."  
-> — **Michael Jordan**
+> "Surround yourself only with people who are going to take you higher."  
+> — **Oprah Winfrey**
 
 ---
 

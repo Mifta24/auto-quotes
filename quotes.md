@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "Surround yourself only with people who are going to take you higher."  
+> — **Oprah Winfrey**
 
 ---
 
