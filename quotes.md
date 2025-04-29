@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
-> — **Amelia Earhart**
+> "One of the advantages of being disorganized is that one is always having surprising discoveries."  
+> — **A.A. Milne**
 
 ---
 

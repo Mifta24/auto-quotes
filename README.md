@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death is not an ending. It is a transformation."  
-> — **Ming-Dao Deng**
+> "One of the advantages of being disorganized is that one is always having surprising discoveries."  
+> — **A.A. Milne**
 
 ---
 
