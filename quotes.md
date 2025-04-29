@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you stop questioning, you stop learning."  
-> — **Lolly Daskal**
+> "Absurdity is the ecstasy of intellectualism."  
+> — **Criss Jami**
 
 ---
 
