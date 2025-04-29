@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 
