@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
+> — **Roy T. Bennett**
 
 ---
 
