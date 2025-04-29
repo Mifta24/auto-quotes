@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The big thing is to make a winning effort. I'm not obsessed with wins."  
-> — **Morgan Wootten**
+> "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace."  
+> — **Ming-Dao Deng**
 
 ---
 
-_Last updated: 28 April 2025 ⏳_
+_Last updated: 29 April 2025 ⏳_
