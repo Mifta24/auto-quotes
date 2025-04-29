@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life belongs to the living, and he who lives must be prepared for changes."  
-> — **Johann Wolfgang von Goethe**
+> "If light is in your heart, you will find your way home.  "  
+> — **Rumi**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are few reasons for telling the truth, but for lying the number is infinite."  
-> — **Carlos Ruiz Zafon**
+> "If light is in your heart, you will find your way home.  "  
+> — **Rumi**
 
 ---
 
