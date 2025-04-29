@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself only with people who are going to take you higher."  
-> — **Oprah Winfrey**
+> "We have more possibilities available in each moment than we realize."  
+> — **Thich Nhat Hanh**
 
 ---
 
