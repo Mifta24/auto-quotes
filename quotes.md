@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absurdity is the ecstasy of intellectualism."  
-> — **Criss Jami**
+> "Experience is a comb which nature gives us when we are bald. "  
+> — **Chinese Proverb**
 
 ---
 
