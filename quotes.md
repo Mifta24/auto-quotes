@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life belongs to the living, and he who lives must be prepared for changes."  
-> — **Johann Wolfgang von Goethe**
+> "There are few reasons for telling the truth, but for lying the number is infinite."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
