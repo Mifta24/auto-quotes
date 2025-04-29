@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death is not an ending. It is a transformation."  
-> — **Ming-Dao Deng**
+> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
+> — **Amelia Earhart**
 
 ---
 
