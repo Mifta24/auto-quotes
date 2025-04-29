@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing can dim the light which shines from within."  
-> — **Maya Angelou**
+> "Life belongs to the living, and he who lives must be prepared for changes."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
