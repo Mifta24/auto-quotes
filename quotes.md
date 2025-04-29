@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easier to fight for one's principles than to live up to them. "  
-> — **Alfred Adler**
+> "Humans and prosperity never endure side by side for long."  
+> — **Herodotus**
 
 ---
 
