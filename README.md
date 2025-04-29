@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "Death is not an ending. It is a transformation."  
+> — **Ming-Dao Deng**
 
 ---
 

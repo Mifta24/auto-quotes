@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "Death is not an ending. It is a transformation."  
+> — **Ming-Dao Deng**
 
 ---
 
