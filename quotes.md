@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Humans and prosperity never endure side by side for long."  
-> — **Herodotus**
+> "Fashion fades, only style remains the same."  
+> — **Coco Chanel**
 
 ---
 
