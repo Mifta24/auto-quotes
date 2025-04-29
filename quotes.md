@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fashion fades, only style remains the same."  
-> — **Coco Chanel**
+> "Men are equal; it is not birth but virtue that makes the difference."  
+> — **Voltaire**
 
 ---
 
