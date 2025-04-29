@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absurdity is the ecstasy of intellectualism."  
-> — **Criss Jami**
+> "Winning isn't always championships."  
+> — **Michael Jordan**
 
 ---
 
