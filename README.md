@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If light is in your heart, you will find your way home.  "  
-> — **Rumi**
+> "It is easier to fight for one's principles than to live up to them. "  
+> — **Alfred Adler**
 
 ---
 

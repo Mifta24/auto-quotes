@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I know of only one duty, and that is to love."  
-> — **George Bernard Shaw**
+> "It is easier to fight for one's principles than to live up to them. "  
+> — **Alfred Adler**
 
 ---
 
