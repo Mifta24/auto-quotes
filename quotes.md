@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't always championships."  
-> — **Michael Jordan**
+> "A life without a cause is a life without effect."  
+> — **Paulo Coelho**
 
 ---
 
