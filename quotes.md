@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If light is in your heart, you will find your way home.  "  
-> — **Rumi**
+> "I know of only one duty, and that is to love."  
+> — **George Bernard Shaw**
 
 ---
 
