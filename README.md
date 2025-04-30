@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
-> — **Alfred Adler**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 

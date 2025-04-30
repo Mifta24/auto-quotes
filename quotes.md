@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness depends upon ourselves."  
-> — **Aristotle**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 
