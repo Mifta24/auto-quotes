@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only time you run out of chances is when you stop taking them."  
-> — **Unknown**
+> "Man is affected not by events but by the view he takes of them.  "  
+> — **Seneca**
 
 ---
 

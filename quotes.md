@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you aren't sure which way to do something, do it both ways and see which works better."  
-> — **John Carmack**
+> "Man is affected not by events but by the view he takes of them.  "  
+> — **Seneca**
 
 ---
 
