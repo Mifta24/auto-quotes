@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is but one dream flowing into another."  
-> — **Ming-Dao Deng**
+> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
+> — **William Faulkner**
 
 ---
 
