@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Surround yourself only with people who are going to take you higher."  
-> — **Oprah Winfrey**
+> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
+> — **Alfred Adler**
 
 ---
 
-_Last updated: 29 April 2025 ⏳_
+_Last updated: 30 April 2025 ⏳_
