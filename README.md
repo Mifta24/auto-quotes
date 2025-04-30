@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time we liberate a woman, we liberate a man. "  
-> — **Margaret Mead**
+> "By perseverance the snail reached the ark."  
+> — **Charles Spurgeon**
 
 ---
 

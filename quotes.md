@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People are doing the best that they can from their own level of consciousness."  
-> — **Deepak Chopra**
+> "By perseverance the snail reached the ark."  
+> — **Charles Spurgeon**
 
 ---
 
