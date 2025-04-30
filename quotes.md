@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To get angry is like to revenge yourself for the guilt of others."  
-> — **Jonathan Swift**
+> "If you build the guts to do something, anything, then you better save enough to face the consequences."  
+> — **Criss Jami**
 
 ---
 
