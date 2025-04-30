@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By perseverance the snail reached the ark."  
-> — **Charles Spurgeon**
+> "To be prepared is half the victory. "  
+> — **Miguel de Cervantes**
 
 ---
 
