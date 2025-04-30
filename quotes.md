@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Watch what you say, and whatever you say, practice it."  
-> — **Soyen Shaku**
+> "To get angry is like to revenge yourself for the guilt of others."  
+> — **Jonathan Swift**
 
 ---
 
