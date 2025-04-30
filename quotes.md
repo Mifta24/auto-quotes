@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Care about what other people think and you will always be their prisoner."  
-> — **Lao Tzu**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 

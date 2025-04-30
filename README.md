@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man is affected not by events but by the view he takes of them.  "  
-> — **Seneca**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
