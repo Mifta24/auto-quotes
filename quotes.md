@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is but one dream flowing into another."  
-> — **Ming-Dao Deng**
+> "One's best success comes after their greatest disappointments."  
+> — **Henry Ward Beecher**
 
 ---
 
