@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Plants grow weak without wind."  
-> — **Maxime Lagace**
+> "You may delay, but time will not."  
+> — **Benjamin Franklin**
 
 ---
 
