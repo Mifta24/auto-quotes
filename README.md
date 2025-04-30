@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To get angry is like to revenge yourself for the guilt of others."  
-> — **Jonathan Swift**
+> "Plants grow weak without wind."  
+> — **Maxime Lagace**
 
 ---
 
