@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "Don't look for meaning in the words. Listen to the silences."  
+> — **Samuel Beckett**
 
 ---
 
