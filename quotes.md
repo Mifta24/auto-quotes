@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fear of death is more to be feared, than death itself."  
-> — **Publilius Syrus**
+> "All happiness depends on courage and work."  
+> — **Honore de Balzac**
 
 ---
 
