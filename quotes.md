@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All happiness depends on courage and work."  
-> — **Honore de Balzac**
+> "The only time you run out of chances is when you stop taking them."  
+> — **Unknown**
 
 ---
 
