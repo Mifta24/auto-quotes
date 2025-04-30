@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may delay, but time will not."  
-> — **Benjamin Franklin**
+> "Every time we liberate a woman, we liberate a man. "  
+> — **Margaret Mead**
 
 ---
 

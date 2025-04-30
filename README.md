@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Plants grow weak without wind."  
-> — **Maxime Lagace**
+> "Every time we liberate a woman, we liberate a man. "  
+> — **Margaret Mead**
 
 ---
 
