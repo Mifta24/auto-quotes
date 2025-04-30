@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
