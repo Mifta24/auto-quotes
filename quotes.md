@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only time you run out of chances is when you stop taking them."  
-> — **Unknown**
+> "If you aren't sure which way to do something, do it both ways and see which works better."  
+> — **John Carmack**
 
 ---
 
