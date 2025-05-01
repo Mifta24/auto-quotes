@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fishing is much more than fish."  
-> — **Herbert Hoover**
+> "Throw your heart over the fence and the rest will follow"  
+> — **Norman Vincent Peale**
 
 ---
 
