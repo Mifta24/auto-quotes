@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Magic is believing in yourself, if you can do that, you can make anything happen."  
-> — **Johann Wolfgang von Goethe**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 
