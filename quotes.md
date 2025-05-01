@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't find the time, if you don't do the work, you don't get the results."  
-> — **Arnold Schwarzenegger**
+> "Don't blame others. it won't make you a better person."  
+> — **Lolly Daskal**
 
 ---
 

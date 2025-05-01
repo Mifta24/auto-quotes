@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "Don't blame others. it won't make you a better person."  
+> — **Lolly Daskal**
 
 ---
 
