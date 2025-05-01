@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't blame others. it won't make you a better person."  
-> — **Lolly Daskal**
+> "Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold."  
+> — **Elon Musk**
 
 ---
 
