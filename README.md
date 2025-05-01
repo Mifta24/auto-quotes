@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "By perseverance the snail reached the ark."  
-> — **Charles Spurgeon**
+> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
+> — **Joyce Meyer**
 
 ---
 
-_Last updated: 30 April 2025 ⏳_
+_Last updated: 01 May 2025 ⏳_
