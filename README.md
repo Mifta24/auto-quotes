@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fishing is much more than fish."  
-> — **Herbert Hoover**
+> "When things go wrong, don't go with them."  
+> — **Elvis Presley**
 
 ---
 

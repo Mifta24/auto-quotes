@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the fence and the rest will follow"  
-> — **Norman Vincent Peale**
+> "When things go wrong, don't go with them."  
+> — **Elvis Presley**
 
 ---
 
