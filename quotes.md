@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "If you don't find the time, if you don't do the work, you don't get the results."  
+> — **Arnold Schwarzenegger**
 
 ---
 
