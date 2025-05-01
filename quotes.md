@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Only Thing That Is Constant Is Change"  
-> — **Heraclitus**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 
