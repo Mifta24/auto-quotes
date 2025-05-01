@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
-> — **Naval Ravikant**
+> "Don't wish it were easier, wish you were better."  
+> — **Jim Rohn**
 
 ---
 
