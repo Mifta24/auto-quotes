@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "I learned the value of hard work by working hard. "  
+> — **Margaret Mead**
 
 ---
 
