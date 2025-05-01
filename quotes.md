@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned the value of hard work by working hard. "  
-> — **Margaret Mead**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 

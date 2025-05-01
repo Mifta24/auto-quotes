@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
