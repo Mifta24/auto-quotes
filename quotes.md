@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wish it were easier, wish you were better."  
-> — **Jim Rohn**
+> "Magic is believing in yourself, if you can do that, you can make anything happen."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
