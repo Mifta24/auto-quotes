@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold."  
-> — **Elon Musk**
+> "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast."  
+> — **Norman Vincent Peale**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't blame others. it won't make you a better person."  
-> — **Lolly Daskal**
+> "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast."  
+> — **Norman Vincent Peale**
 
 ---
 
