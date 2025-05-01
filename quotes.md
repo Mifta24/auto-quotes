@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
-> — **Robert Kiyosaki**
+> "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace."  
+> — **Ming-Dao Deng**
 
 ---
 
