@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When things go wrong, don't go with them."  
-> — **Elvis Presley**
+> "Pain doesn't last. And when it's gone, we have something to show for it. Growth."  
+> — **Kamal Ravikant**
 
 ---
 
