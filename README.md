@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
-> — **Joyce Meyer**
+> "Trying to define yourself is like trying to bite your own teeth."  
+> — **Zen Proverb**
 
 ---
 

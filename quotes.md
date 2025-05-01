@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never fear quarrels, but seek hazardous adventures."  
-> — **Alexandre Dumas**
+> "Trying to define yourself is like trying to bite your own teeth."  
+> — **Zen Proverb**
 
 ---
 
