@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When things go wrong, don't go with them."  
-> — **Elvis Presley**
+> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
+> — **Naval Ravikant**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pain doesn't last. And when it's gone, we have something to show for it. Growth."  
-> — **Kamal Ravikant**
+> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
+> — **Naval Ravikant**
 
 ---
 
