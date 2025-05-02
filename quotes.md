@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "A clear conscience never fears midnight knocking."  
+> — **Chinese Proverb**
 
 ---
 
