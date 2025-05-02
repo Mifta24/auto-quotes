@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us. "  
-> — **Beverly Sills**
+> "Seek not the good in external things;seek it in yourselves."  
+> — **Epictetus**
 
 ---
 
