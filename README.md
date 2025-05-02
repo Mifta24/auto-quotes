@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stop playing because we grow old; we grow old because we stop playing."  
-> — **George Bernard Shaw**
+> "A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you."  
+> — **Bob Proctor**
 
 ---
 
