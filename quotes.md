@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is simple. If it was complicated, everyone would understand it."  
-> — **Walt Whitman**
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
+> — **Brian Tracy**
 
 ---
 
