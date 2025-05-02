@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stop playing because we grow old; we grow old because we stop playing."  
-> — **George Bernard Shaw**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 
