@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you."  
-> — **Bob Proctor**
+> "Life is filled with secrets. You can't learn them all at once."  
+> — **Dan Brown**
 
 ---
 
