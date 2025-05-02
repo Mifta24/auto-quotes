@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
-> — **Conrad Hilton**
+> "Everything you've ever wanted is on the other side of fear."  
+> — **George Addair**
 
 ---
 

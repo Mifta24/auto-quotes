@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When the world pushes you to your knees, you're in the perfect position to pray."  
-> — **Rumi**
+> "Everything you've ever wanted is on the other side of fear."  
+> — **George Addair**
 
 ---
 
