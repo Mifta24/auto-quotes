@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Productize your perspective."  
-> — **Jack Butcher**
+> "Words are the clothing of our thoughts."  
+> — **Jonathan Swift**
 
 ---
 
