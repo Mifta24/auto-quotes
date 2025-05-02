@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "There is always risk, so learn to manage risk instead of avoiding it."  
+> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
 > — **Robert Kiyosaki**
 
 ---

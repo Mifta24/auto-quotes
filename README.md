@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In all chaos there is a cosmos, in all disorder a secret order."  
-> — **Carl Jung**
+> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
+> — **Robert Kiyosaki**
 
 ---
 
