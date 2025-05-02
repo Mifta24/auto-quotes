@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It isn't what you do, but how you do it."  
-> — **John Wooden**
+> "Productize your perspective."  
+> — **Jack Butcher**
 
 ---
 
