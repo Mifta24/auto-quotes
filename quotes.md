@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "In all chaos there is a cosmos, in all disorder a secret order."  
+> — **Carl Jung**
 
 ---
 

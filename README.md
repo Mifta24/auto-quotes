@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day your masterpiece."  
-> — **John Wooden**
+> "In all chaos there is a cosmos, in all disorder a secret order."  
+> — **Carl Jung**
 
 ---
 
