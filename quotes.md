@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
-> — **Conrad Hilton**
+> "When the world pushes you to your knees, you're in the perfect position to pray."  
+> — **Rumi**
 
 ---
 
