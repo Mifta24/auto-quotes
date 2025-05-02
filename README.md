@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you've ever wanted is on the other side of fear."  
-> — **George Addair**
+> "Make each day your masterpiece."  
+> — **John Wooden**
 
 ---
 
