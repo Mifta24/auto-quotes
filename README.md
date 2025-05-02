@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
-> — **Robert Kiyosaki**
+> "We don't stop playing because we grow old; we grow old because we stop playing."  
+> — **George Bernard Shaw**
 
 ---
 
