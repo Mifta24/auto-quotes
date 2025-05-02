@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day your masterpiece."  
-> — **John Wooden**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 
