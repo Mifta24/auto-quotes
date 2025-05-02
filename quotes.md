@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothing of our thoughts."  
-> — **Jonathan Swift**
+> "The truth is simple. If it was complicated, everyone would understand it."  
+> — **Walt Whitman**
 
 ---
 

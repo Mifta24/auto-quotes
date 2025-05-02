@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Productize your perspective."  
-> — **Jack Butcher**
+> "The truth is simple. If it was complicated, everyone would understand it."  
+> — **Walt Whitman**
 
 ---
 
