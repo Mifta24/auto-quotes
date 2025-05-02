@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
-> — **Brian Tracy**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 

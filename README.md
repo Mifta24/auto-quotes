@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is simple. If it was complicated, everyone would understand it."  
-> — **Walt Whitman**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 
