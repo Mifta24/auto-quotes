@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In all chaos there is a cosmos, in all disorder a secret order."  
-> — **Carl Jung**
+> "There is always risk, so learn to manage risk instead of avoiding it."  
+> — **Robert Kiyosaki**
 
 ---
 
