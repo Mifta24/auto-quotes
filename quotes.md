@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience never fears midnight knocking."  
-> — **Chinese Proverb**
+> "In youth we run into difficulties. In old age difficulties run into us. "  
+> — **Beverly Sills**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "In youth we run into difficulties. In old age difficulties run into us. "  
+> — **Beverly Sills**
 
 ---
 
