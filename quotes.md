@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you've ever wanted is on the other side of fear."  
-> — **George Addair**
+> "Sometimes adversity is what you need to face in order to become successful."  
+> — **Zig Ziglar**
 
 ---
 
