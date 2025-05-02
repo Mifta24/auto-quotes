@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is filled with secrets. You can't learn them all at once."  
-> — **Dan Brown**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 
