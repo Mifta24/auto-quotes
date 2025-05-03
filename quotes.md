@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All cruelty springs from weakness.  "  
-> — **Seneca**
+> "The time is now, the place is here. Stay in the present."  
+> — **Dan Millman**
 
 ---
 
