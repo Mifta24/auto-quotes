@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What do we live for, if it is not to make life less difficult for each other?"  
-> — **George Eliot**
+> "Remember, hope is a good thing, maybe the best of things."  
+> — **Stephen King**
 
 ---
 

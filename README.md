@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are ever the smartest person in the room, you are in the wrong room."  
-> — **C. Sean McGee**
+> "Remember, hope is a good thing, maybe the best of things."  
+> — **Stephen King**
 
 ---
 
