@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Find something you love and do it better than everyone else."  
+> — **Gurbaksh Chahal**
 
 ---
 
