@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growing up is losing some illusions, in order to acquire others."  
-> — **Virginia Woolf**
+> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
+> — **Helen Keller**
 
 ---
 
