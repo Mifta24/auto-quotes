@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember, hope is a good thing, maybe the best of things."  
-> — **Stephen King**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge your success by what you had to give up in order to get it."  
-> — **Dalai Lama**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 
