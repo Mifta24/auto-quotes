@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
+> — **Lily Tomlin**
 
 ---
 
