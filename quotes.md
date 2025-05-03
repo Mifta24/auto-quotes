@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find something you love and do it better than everyone else."  
-> — **Gurbaksh Chahal**
+> "You can suffer the pain of change or suffer remaining the way you are."  
+> — **Joyce Meyer**
 
 ---
 

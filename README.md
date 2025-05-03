@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "You can suffer the pain of change or suffer remaining the way you are."  
+> — **Joyce Meyer**
 
 ---
 
