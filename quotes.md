@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything worth doing is worth doing slowly."  
-> — **Mae West**
+> "Growing up is losing some illusions, in order to acquire others."  
+> — **Virginia Woolf**
 
 ---
 
