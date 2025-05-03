@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "Every man gotta right to decide his own destiny."  
+> — **Bob Marley**
 
 ---
 
