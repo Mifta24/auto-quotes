@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us. "  
-> — **Beverly Sills**
+> "All cruelty springs from weakness.  "  
+> — **Seneca**
 
 ---
 
-_Last updated: 02 May 2025 ⏳_
+_Last updated: 03 May 2025 ⏳_

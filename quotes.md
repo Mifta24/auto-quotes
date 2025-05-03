@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Seek not the good in external things;seek it in yourselves."  
-> — **Epictetus**
+> "All cruelty springs from weakness.  "  
+> — **Seneca**
 
 ---
 
-_Last updated: 02 May 2025 ⏳_
+_Last updated: 03 May 2025 ⏳_
