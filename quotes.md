@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
-> — **Lily Tomlin**
+> "An inventor is a man who asks Why? of the universe and lets nothing stand between the answer and his mind."  
+> — **Ayn Rand**
 
 ---
 
