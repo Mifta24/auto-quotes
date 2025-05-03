@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections."  
-> — **Bob Marley**
+> "Anything worth doing is worth doing slowly."  
+> — **Mae West**
 
 ---
 
