@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can suffer the pain of change or suffer remaining the way you are."  
-> — **Joyce Meyer**
+> "The quality of your life is determined by the quality of your thoughts."  
+> — **Unknown**
 
 ---
 
