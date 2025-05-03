@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win."  
-> — **Sun Tzu**
+> "Wrong turns are as important as right turns. More important, sometimes."  
+> — **Richard Bach**
 
 ---
 
