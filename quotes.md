@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have not failed. I've just found 10,000 ways that won't work."  
-> — **Thomas Edison**
+> "Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win."  
+> — **Sun Tzu**
 
 ---
 
