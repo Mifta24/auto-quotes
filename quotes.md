@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is now, the place is here. Stay in the present."  
-> — **Dan Millman**
+> "I have not failed. I've just found 10,000 ways that won't work."  
+> — **Thomas Edison**
 
 ---
 
