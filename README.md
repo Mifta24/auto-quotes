@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
-> — **Lily Tomlin**
+> "Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections."  
+> — **Bob Marley**
 
 ---
 
