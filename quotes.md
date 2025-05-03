@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The strongest and sweetest songs yet remain to be sung."  
-> — **Walt Whitman**
+> "If you are ever the smartest person in the room, you are in the wrong room."  
+> — **C. Sean McGee**
 
 ---
 
