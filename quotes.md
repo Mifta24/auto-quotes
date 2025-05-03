@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections."  
-> — **Bob Marley**
+> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
+> — **Brian Tracy**
 
 ---
 
