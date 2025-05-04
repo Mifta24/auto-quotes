@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed."  
+> — **Deepak Chopra**
 
 ---
 
