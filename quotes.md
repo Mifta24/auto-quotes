@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
-> — **Og Mandino**
+> "Don't hate the player. Change the game."  
+> — **Steve Harvey**
 
 ---
 
