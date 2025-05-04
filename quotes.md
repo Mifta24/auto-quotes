@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Start each day with a positive thought and a grateful heart."  
-> — **Roy T. Bennett**
+> "A wise person should have money in their head, but not in their heart."  
+> — **Jonathan Swift**
 
 ---
 
-_Last updated: 03 May 2025 ⏳_
+_Last updated: 04 May 2025 ⏳_
