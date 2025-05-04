@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True friendship ought never to conceal what it thinks. "  
-> — **St. Jerome**
+> "It doesn't matter how much you want. What really matters is how much you want it."  
+> — **Ralph Marston**
 
 ---
 
