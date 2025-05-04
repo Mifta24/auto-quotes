@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 
