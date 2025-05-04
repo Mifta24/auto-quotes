@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Eighty percent of success is showing up. "  
-> — **Woody Allen**
+> "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."  
+> — **Richard Bach**
 
 ---
 
