@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we think about our strengths, we are strong. When we think about our weaknesses, we are weak."  
-> — **Peter A. Cohen**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 
