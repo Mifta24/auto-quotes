@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
-> — **Ralph Waldo Emerson**
+> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
+> — **Og Mandino**
 
 ---
 
