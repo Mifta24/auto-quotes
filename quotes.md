@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
-> — **Zig Ziglar**
+> "Enthusiasm makes up for a host of deficiencies."  
+> — **Barack Obama**
 
 ---
 
