@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The search for happiness is one of the chief sources of unhappiness."  
-> — **Eric Hoffer**
+> "How you think is as important as as what you think."  
+> — **Unknown**
 
 ---
 
