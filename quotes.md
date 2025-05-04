@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts."  
-> — **George Bernard Shaw**
+> "You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing."  
+> — **Alan Watts**
 
 ---
 
