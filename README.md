@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A wise person should have money in their head, but not in their heart."  
-> — **Jonathan Swift**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 
