@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "When we think about our strengths, we are strong. When we think about our weaknesses, we are weak."  
+> — **Peter A. Cohen**
 
 ---
 
