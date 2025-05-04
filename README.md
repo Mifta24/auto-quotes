@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True friendship ought never to conceal what it thinks. "  
-> — **St. Jerome**
+> "Eighty percent of success is showing up. "  
+> — **Woody Allen**
 
 ---
 
