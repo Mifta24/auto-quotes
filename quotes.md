@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing."  
-> — **Alan Watts**
+> "Receive without pride, let go without attachment."  
+> — **Marcus Aurelius**
 
 ---
 
