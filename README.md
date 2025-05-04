@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 

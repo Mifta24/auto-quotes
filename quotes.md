@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whoever is happy will make others happy too."  
-> — **Anne Frank**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 
