@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lost Time is never found again."  
-> — **Benjamin Franklin**
+> "By seeking and blundering we learn."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
