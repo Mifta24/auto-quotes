@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Eighty percent of success is showing up. "  
-> — **Woody Allen**
+> "Lost Time is never found again."  
+> — **Benjamin Franklin**
 
 ---
 
