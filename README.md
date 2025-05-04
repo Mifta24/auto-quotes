@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing."  
-> — **Alan Watts**
+> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
+> — **Ralph Waldo Emerson**
 
 ---
 
