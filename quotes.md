@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
-> — **Kenji Miyazawa**
+> "If the only prayer you ever say in your entire life is thank you, it will be enough."  
+> — **Meister Eckhart**
 
 ---
 
