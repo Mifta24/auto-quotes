@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
-> — **Lin Yutang**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 

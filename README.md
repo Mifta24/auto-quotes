@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is such a rare thing, it is delighted to tell it."  
-> — **Emily Dickinson**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 
