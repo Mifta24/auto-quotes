@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When something is important enough, you do it even if the odds are not in your favor."  
-> — **Elon Musk**
+> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."  
+> — **Dan Brown**
 
 ---
 
