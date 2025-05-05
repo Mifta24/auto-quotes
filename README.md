@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not a goal...it's a by-product of a life well lived."  
-> — **Eleanor Roosevelt**
+> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
+> — **Kenji Miyazawa**
 
 ---
 
