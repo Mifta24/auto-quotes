@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead an orchestra, you must turn your back on the crowd."  
-> — **Aristotle**
+> "Life is either a daring adventure, or nothing."  
+> — **Helen Keller**
 
 ---
 
