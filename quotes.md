@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is either a daring adventure, or nothing."  
-> — **Helen Keller**
+> "The pen is the tongue of the mind. "  
+> — **Miguel de Cervantes**
 
 ---
 

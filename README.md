@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead an orchestra, you must turn your back on the crowd."  
-> — **Aristotle**
+> "The pen is the tongue of the mind. "  
+> — **Miguel de Cervantes**
 
 ---
 
