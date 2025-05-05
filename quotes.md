@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
-> — **Charles Dickens**
+> "Outstanding people have one thing in common: an absolute sense of mission.  "  
+> — **Zig Ziglar**
 
 ---
 
