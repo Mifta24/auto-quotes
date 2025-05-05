@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "How you think is as important as as what you think."  
-> — **Unknown**
+> "Truth is such a rare thing, it is delighted to tell it."  
+> — **Emily Dickinson**
 
 ---
 
-_Last updated: 04 May 2025 ⏳_
+_Last updated: 05 May 2025 ⏳_
