@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead the people, walk behind them."  
-> — **Lao Tzu**
+> "The chief danger in life is that you may take too many precautions."  
+> — **Alfred Adler**
 
 ---
 
