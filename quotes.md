@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pen is the tongue of the mind. "  
-> — **Miguel de Cervantes**
+> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault."  
+> — **Eleanor Roosevelt**
 
 ---
 
