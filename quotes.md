@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a difference between giving directions and giving direction."  
-> — **Simon Sinek**
+> "When something is important enough, you do it even if the odds are not in your favor."  
+> — **Elon Musk**
 
 ---
 
