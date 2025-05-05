@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the only prayer you ever say in your entire life is thank you, it will be enough."  
-> — **Meister Eckhart**
+> "Life is like playing the violin in public and learning the instrument as one goes on."  
+> — **Samuel Butler**
 
 ---
 

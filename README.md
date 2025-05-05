@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
-> — **Kenji Miyazawa**
+> "Life is like playing the violin in public and learning the instrument as one goes on."  
+> — **Samuel Butler**
 
 ---
 
