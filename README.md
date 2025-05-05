@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead the people, walk behind them."  
-> — **Lao Tzu**
+> "Freedom lies in being bold."  
+> — **Robert Frost**
 
 ---
 
