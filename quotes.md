@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom lies in being bold."  
-> — **Robert Frost**
+> "There is a difference between giving directions and giving direction."  
+> — **Simon Sinek**
 
 ---
 
