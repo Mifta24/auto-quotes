@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is such a rare thing, it is delighted to tell it."  
-> — **Emily Dickinson**
+> "Anyone who reads a book with a sense of obligation does not understand the art of reading."  
+> — **Lin Yutang**
 
 ---
 
