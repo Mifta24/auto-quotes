@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot change anything unless we accept it."  
-> — **Carl Jung**
+> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
+> — **Charles Dickens**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like playing the violin in public and learning the instrument as one goes on."  
-> — **Samuel Butler**
+> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
+> — **Charles Dickens**
 
 ---
 
