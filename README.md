@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pen is the tongue of the mind. "  
-> — **Miguel de Cervantes**
+> "Happiness is not a goal...it's a by-product of a life well lived."  
+> — **Eleanor Roosevelt**
 
 ---
 

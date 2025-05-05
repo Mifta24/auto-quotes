@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault."  
+> "Happiness is not a goal...it's a by-product of a life well lived."  
 > — **Eleanor Roosevelt**
 
 ---
