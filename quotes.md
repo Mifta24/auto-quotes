@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Outstanding people have one thing in common: an absolute sense of mission.  "  
-> — **Zig Ziglar**
+> "To lead the people, walk behind them."  
+> — **Lao Tzu**
 
 ---
 
