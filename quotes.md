@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be deeply aware of the impermanence of the world."  
-> — **Dogen**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 

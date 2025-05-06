@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 
