@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you cannot understand something, then you have understood it incorrectly."  
-> — **Kabir**
+> "There can be no deep disappointment where there is not deep love."  
+> — **Martin Luther King, Jr.**
 
 ---
 
