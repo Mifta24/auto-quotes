@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
-> — **Morihei Ueshiba**
+> "The only thing new in the world is the history you do not know."  
+> — **Harry S. Truman**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I'm an optimist by choice not by stupidity."  
-> — **Yanni**
+> "The only thing new in the world is the history you do not know."  
+> — **Harry S. Truman**
 
 ---
 
