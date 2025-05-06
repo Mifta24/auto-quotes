@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "It is not the knowing that is difficult, but the doing. "  
+> — **Chinese Proverb**
 
 ---
 

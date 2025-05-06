@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to discover what another has discovered before."  
-> — **Christopher Columbus**
+> "It is not the knowing that is difficult, but the doing. "  
+> — **Chinese Proverb**
 
 ---
 
