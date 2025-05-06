@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest."  
+> — **Josh Waitzkin**
 
 ---
 
