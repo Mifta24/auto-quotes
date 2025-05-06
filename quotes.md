@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There can be no deep disappointment where there is not deep love."  
-> — **Martin Luther King, Jr.**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 

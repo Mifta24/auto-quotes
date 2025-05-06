@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you cannot understand something, then you have understood it incorrectly."  
-> — **Kabir**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 
