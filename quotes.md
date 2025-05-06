@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 
