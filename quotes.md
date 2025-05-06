@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest."  
-> — **Josh Waitzkin**
+> "Words can only have a positive effect on others if and when they are ready to listen."  
+> — **Christopher Reeve**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "Words can only have a positive effect on others if and when they are ready to listen."  
+> — **Christopher Reeve**
 
 ---
 
