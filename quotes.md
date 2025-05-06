@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must have strong minds, ready to accept facts as they are."  
-> — **Harry S. Truman**
+> "We can see through others only when we can see through ourselves."  
+> — **Bruce Lee**
 
 ---
 
