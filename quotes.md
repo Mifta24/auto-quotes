@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "One must be deeply aware of the impermanence of the world."  
+> — **Dogen**
 
 ---
 
