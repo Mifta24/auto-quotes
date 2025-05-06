@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I'm an optimist by choice not by stupidity."  
-> — **Yanni**
+> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
+> — **Morihei Ueshiba**
 
 ---
 
