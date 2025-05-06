@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words can only have a positive effect on others if and when they are ready to listen."  
-> — **Christopher Reeve**
+> "The energy of the mind is the essence of life."  
+> — **Aristotle**
 
 ---
 
