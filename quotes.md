@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only thing new in the world is the history you do not know."  
-> — **Harry S. Truman**
+> "Have a vision. Be demanding."  
+> — **Colin Powell**
 
 ---
 
