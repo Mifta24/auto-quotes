@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must have strong minds, ready to accept facts as they are."  
-> — **Harry S. Truman**
+> "Curiosity is the most powerful thing you own."  
+> — **James Cameron**
 
 ---
 

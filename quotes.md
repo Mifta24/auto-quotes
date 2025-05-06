@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can see through others only when we can see through ourselves."  
-> — **Bruce Lee**
+> "Curiosity is the most powerful thing you own."  
+> — **James Cameron**
 
 ---
 
