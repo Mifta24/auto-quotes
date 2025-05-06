@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
