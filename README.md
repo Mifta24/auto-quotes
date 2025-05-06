@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not the knowing that is difficult, but the doing. "  
-> — **Chinese Proverb**
+> "I'm an optimist by choice not by stupidity."  
+> — **Yanni**
 
 ---
 

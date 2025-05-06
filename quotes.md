@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
-> — **Brian Tracy**
+> "I'm an optimist by choice not by stupidity."  
+> — **Yanni**
 
 ---
 
