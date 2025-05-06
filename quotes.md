@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have a vision. Be demanding."  
-> — **Colin Powell**
+> "If you cannot understand something, then you have understood it incorrectly."  
+> — **Kabir**
 
 ---
 
