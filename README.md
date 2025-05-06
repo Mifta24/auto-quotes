@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "Even the smallest person can change the course of the future."  
+> — **J.R.R. Tolkien**
 
 ---
 

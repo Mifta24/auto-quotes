@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "Even the smallest person can change the course of the future."  
+> — **J.R.R. Tolkien**
 
 ---
 
