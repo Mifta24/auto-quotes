@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not the knowing that is difficult, but the doing. "  
-> — **Chinese Proverb**
+> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
+> — **Brian Tracy**
 
 ---
 
