@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?"  
-> — **Seneca**
+> "You get paid in direct proportion to the difficulty of problems you solve."  
+> — **Elon Musk**
 
 ---
 
