@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
-> — **Dan Millman**
+> "When asked, how do you write? I invariably answer, one word at a time."  
+> — **Stephen King**
 
 ---
 
