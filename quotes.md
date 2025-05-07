@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're not making mistakes, then you're not doing anything."  
-> — **John Wooden**
+> "Strategy is a commodity, execution is an art."  
+> — **Peter Drucker**
 
 ---
 
