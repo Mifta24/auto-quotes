@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As mortals, we're ruled by conditions, not by ourselves."  
-> — **Bodhidharma**
+> "You have to keep breaking your heart until it opens."  
+> — **Rumi**
 
 ---
 
