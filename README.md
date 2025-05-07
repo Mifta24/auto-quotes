@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."  
-> — **Abraham Lincoln**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 

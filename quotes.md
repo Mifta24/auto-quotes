@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 
