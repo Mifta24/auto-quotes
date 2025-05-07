@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to discover what another has discovered before."  
-> — **Christopher Columbus**
+> "The greatest step towards a life of simplicity is to learn to let go."  
+> — **Steve Maraboli**
 
 ---
 
