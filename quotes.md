@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever your heart clings to and confides in, that is really your God."  
-> — **Martin Luther**
+> "We can't help everyone, but everyone can help someone."  
+> — **Ronald Reagan**
 
 ---
 

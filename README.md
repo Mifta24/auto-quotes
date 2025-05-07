@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "We can't help everyone, but everyone can help someone."  
+> — **Ronald Reagan**
 
 ---
 
