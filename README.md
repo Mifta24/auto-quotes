@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
-> — **Dan Millman**
+> "Worry is a waste of emotional reserve."  
+> — **Ayn Rand**
 
 ---
 

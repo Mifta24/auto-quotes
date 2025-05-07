@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When asked, how do you write? I invariably answer, one word at a time."  
-> — **Stephen King**
+> "Worry is a waste of emotional reserve."  
+> — **Ayn Rand**
 
 ---
 
