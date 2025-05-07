@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not until we are lost do we begin to understand ourselves."  
-> — **Henry David Thoreau**
+> "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."  
+> — **Abraham Lincoln**
 
 ---
 
