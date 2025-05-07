@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
-> — **Martin Luther**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 
