@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
-> — **Zig Ziglar**
+> "The pain of parting is nothing to the joy of meeting again."  
+> — **Charles Dickens**
 
 ---
 
