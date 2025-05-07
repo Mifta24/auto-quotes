@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest step towards a life of simplicity is to learn to let go."  
-> — **Steve Maraboli**
+> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
+> — **Zig Ziglar**
 
 ---
 
