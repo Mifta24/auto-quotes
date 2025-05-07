@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
-> — **Theodore Roosevelt**
+> "If anything is worth doing, do it with all your heart."  
+> — **Buddha**
 
 ---
 

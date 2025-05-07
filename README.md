@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
-> — **Martin Luther**
+> "If anything is worth doing, do it with all your heart."  
+> — **Buddha**
 
 ---
 
