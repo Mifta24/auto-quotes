@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place."  
-> — **Richard Bach**
+> "The destiny of man is in his own soul. "  
+> — **Herodotus**
 
 ---
 
