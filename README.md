@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can't help everyone, but everyone can help someone."  
-> — **Ronald Reagan**
+> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
+> — **Dan Millman**
 
 ---
 

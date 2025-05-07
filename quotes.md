@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ladder of success is best climbed by stepping on the rungs of opportunity."  
-> — **Ayn Rand**
+> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
+> — **Dan Millman**
 
 ---
 
