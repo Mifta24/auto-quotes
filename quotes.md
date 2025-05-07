@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 
