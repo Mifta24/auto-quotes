@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pain of parting is nothing to the joy of meeting again."  
-> — **Charles Dickens**
+> "If you're not making mistakes, then you're not doing anything."  
+> — **John Wooden**
 
 ---
 
