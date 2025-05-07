@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As mortals, we're ruled by conditions, not by ourselves."  
-> — **Bodhidharma**
+> "Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place."  
+> — **Richard Bach**
 
 ---
 
