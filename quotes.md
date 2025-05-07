@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strategy is a commodity, execution is an art."  
-> — **Peter Drucker**
+> "As mortals, we're ruled by conditions, not by ourselves."  
+> — **Bodhidharma**
 
 ---
 

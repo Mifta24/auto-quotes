@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're not making mistakes, then you're not doing anything."  
-> — **John Wooden**
+> "As mortals, we're ruled by conditions, not by ourselves."  
+> — **Bodhidharma**
 
 ---
 
