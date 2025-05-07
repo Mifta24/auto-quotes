@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Worry is a waste of emotional reserve."  
-> — **Ayn Rand**
+> "Not until we are lost do we begin to understand ourselves."  
+> — **Henry David Thoreau**
 
 ---
 
