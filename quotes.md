@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each problem has a positive side."  
-> — **Og Mandino**
+> "FOCUS - Follow One Course Until Successful"  
+> — **Robert Kiyosaki**
 
 ---
 
