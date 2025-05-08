@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."  
-> — **Maxime Lagace**
+> "It is our experiences that mold us into who we are...during times of adversity our true character will show."  
+> — **Unknown**
 
 ---
 
