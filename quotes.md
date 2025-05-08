@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "Old age is like everything else. To make a success of it, you've got to start young."  
+> — **Theodore Roosevelt**
 
 ---
 
