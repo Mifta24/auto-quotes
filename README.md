@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn the pain into power."  
-> — **Unknown**
+> "It's not what happens to you, but how you react to it that matters."  
+> — **Epictetus**
 
 ---
 

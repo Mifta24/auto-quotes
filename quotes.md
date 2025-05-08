@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "an action committed in anger is an action doomed to failure. "  
-> — **Genghis Khan**
+> "It's not what happens to you, but how you react to it that matters."  
+> — **Epictetus**
 
 ---
 
