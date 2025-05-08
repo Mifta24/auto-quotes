@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To improve is to change, so to be perfect is to change often."  
-> — **Winston Churchill**
+> "Turn the pain into power."  
+> — **Unknown**
 
 ---
 
