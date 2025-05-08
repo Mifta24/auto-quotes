@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind."  
-> — **Eckhart Tolle**
+> "The shoe that fits one person pinches another; there is no recipe for living that suits all cases."  
+> — **Carl Jung**
 
 ---
 
