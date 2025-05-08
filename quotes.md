@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What is planted in each person's soul will sprout.  "  
-> — **Rumi**
+> "The people who succeed are irrationally passionate about something."  
+> — **Naval Ravikant**
 
 ---
 
