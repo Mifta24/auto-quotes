@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Making your mark on the world is hard. If it were easy, everybody would do it."  
-> — **Barack Obama**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 

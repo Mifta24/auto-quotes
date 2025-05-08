@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "None are more hopelessly enslaved than those who falsely believe they are free."  
-> — **Johann Wolfgang von Goethe**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 
