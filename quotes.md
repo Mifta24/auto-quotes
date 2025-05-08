@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
-> — **Walt Whitman**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 
