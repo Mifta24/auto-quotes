@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
-> — **Walt Whitman**
+> "Trust is the foundation of great leadership."  
+> — **Lolly Daskal**
 
 ---
 

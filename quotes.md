@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your face to the sun, as flowers know how to do."  
-> — **Ming-Dao Deng**
+> "Trust is the foundation of great leadership."  
+> — **Lolly Daskal**
 
 ---
 
