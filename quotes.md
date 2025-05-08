@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have to live life with a sense of urgency so not a minute is wasted."  
-> — **Les Brown**
+> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
+> — **Stephen King**
 
 ---
 
