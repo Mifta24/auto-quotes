@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
-> — **Stephen King**
+> "Making your mark on the world is hard. If it were easy, everybody would do it."  
+> — **Barack Obama**
 
 ---
 

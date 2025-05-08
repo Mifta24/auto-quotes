@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have to live life with a sense of urgency so not a minute is wasted."  
-> — **Les Brown**
+> "Making your mark on the world is hard. If it were easy, everybody would do it."  
+> — **Barack Obama**
 
 ---
 
