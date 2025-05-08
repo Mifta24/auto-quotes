@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's what you do in the present that will redeem the past and thereby change the future."  
-> — **Paulo Coelho**
+> "People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind."  
+> — **Eckhart Tolle**
 
 ---
 
