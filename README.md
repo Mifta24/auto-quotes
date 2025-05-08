@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."  
-> — **Maxime Lagace**
+> "Where words fail, music speaks."  
+> — **Hans Christian Andersen**
 
 ---
 
