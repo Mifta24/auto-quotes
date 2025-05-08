@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn the pain into power."  
-> — **Unknown**
+> "an action committed in anger is an action doomed to failure. "  
+> — **Genghis Khan**
 
 ---
 
