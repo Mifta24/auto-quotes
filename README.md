@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind."  
-> — **Eckhart Tolle**
+> "You can't have anything worthwhile without difficulties."  
+> — **Harry S. Truman**
 
 ---
 
