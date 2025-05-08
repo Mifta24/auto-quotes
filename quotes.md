@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Making your mark on the world is hard. If it were easy, everybody would do it."  
-> — **Barack Obama**
+> "None are more hopelessly enslaved than those who falsely believe they are free."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
