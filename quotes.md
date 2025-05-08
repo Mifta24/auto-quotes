@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The people who succeed are irrationally passionate about something."  
-> — **Naval Ravikant**
+> "We have to live life with a sense of urgency so not a minute is wasted."  
+> — **Les Brown**
 
 ---
 
