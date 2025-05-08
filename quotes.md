@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't have anything worthwhile without difficulties."  
-> — **Harry S. Truman**
+> "To improve is to change, so to be perfect is to change often."  
+> — **Winston Churchill**
 
 ---
 
