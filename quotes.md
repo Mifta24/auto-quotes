@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "FOCUS - Follow One Course Until Successful"  
-> — **Robert Kiyosaki**
+> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
+> — **Walt Whitman**
 
 ---
 

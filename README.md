@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each problem has a positive side."  
-> — **Og Mandino**
+> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
+> — **Walt Whitman**
 
 ---
 
