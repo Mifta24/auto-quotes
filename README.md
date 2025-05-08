@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?"  
-> — **Seneca**
+> "Each problem has a positive side."  
+> — **Og Mandino**
 
 ---
 
-_Last updated: 07 May 2025 ⏳_
+_Last updated: 08 May 2025 ⏳_
