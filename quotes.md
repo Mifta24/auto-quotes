@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving back involves a certain amount of giving up."  
-> — **Colin Powell**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 

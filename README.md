@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 
