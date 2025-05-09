@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "Giving back involves a certain amount of giving up."  
+> — **Colin Powell**
 
 ---
 
