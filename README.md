@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Where words fail, music speaks."  
-> — **Hans Christian Andersen**
+> "Exceptional thinkers ignore their critics and go about their business making history."  
+> — **John Eliot**
 
 ---
 
-_Last updated: 08 May 2025 ⏳_
+_Last updated: 09 May 2025 ⏳_

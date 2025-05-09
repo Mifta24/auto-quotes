@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Old age is like everything else. To make a success of it, you've got to start young."  
-> — **Theodore Roosevelt**
+> "Exceptional thinkers ignore their critics and go about their business making history."  
+> — **John Eliot**
 
 ---
 
-_Last updated: 08 May 2025 ⏳_
+_Last updated: 09 May 2025 ⏳_
