@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Character is doing what you don't want to do but know you should do."  
-> — **Joyce Meyer**
+> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
+> — **Brian Tracy**
 
 ---
 
