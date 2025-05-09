@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 

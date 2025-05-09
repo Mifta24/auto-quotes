@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work harder on yourself than you do on your job."  
-> — **Jim Rohn**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 
