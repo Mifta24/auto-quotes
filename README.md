@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "Your next step is simple. You are the first domino."  
+> — **Gary Keller**
 
 ---
 
