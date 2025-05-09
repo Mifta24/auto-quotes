@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
-> — **Jack London**
+> "Your life does not get better by chance, it gets better by change."  
+> — **Jim Rohn**
 
 ---
 
