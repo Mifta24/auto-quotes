@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your next step is simple. You are the first domino."  
-> — **Gary Keller**
+> "Work harder on yourself than you do on your job."  
+> — **Jim Rohn**
 
 ---
 
