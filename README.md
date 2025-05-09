@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only limits in your life are those that you set yourself."  
-> — **Celestine Chua**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 

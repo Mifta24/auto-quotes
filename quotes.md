@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never be bored, and you will never be boring."  
-> — **Eleanor Roosevelt**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 
