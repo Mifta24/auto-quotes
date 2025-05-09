@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "Success is about creating value."  
+> — **Candice Carpenter**
 
 ---
 
