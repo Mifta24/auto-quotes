@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your next step is simple. You are the first domino."  
-> — **Gary Keller**
+> "When asked, how do you write? I invariably answer, one word at a time."  
+> — **Stephen King**
 
 ---
 
