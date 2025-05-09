@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowledge isn't power until it is applied."  
-> — **Dale Carnegie**
+> "The only limits in your life are those that you set yourself."  
+> — **Celestine Chua**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life can be the scariest and most beautiful thing simultaneously."  
-> — **Maxime Lagace**
+> "The only limits in your life are those that you set yourself."  
+> — **Celestine Chua**
 
 ---
 
