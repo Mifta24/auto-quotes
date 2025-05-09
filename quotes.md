@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work harder on yourself than you do on your job."  
-> — **Jim Rohn**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 
