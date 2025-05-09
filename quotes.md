@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars. "  
-> — **Oscar Wilde**
+> "The world doesn't owe you anything. It was here first."  
+> — **Mark Twain**
 
 ---
 
