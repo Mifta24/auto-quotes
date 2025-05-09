@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars. "  
-> — **Oscar Wilde**
+> "Life can be the scariest and most beautiful thing simultaneously."  
+> — **Maxime Lagace**
 
 ---
 

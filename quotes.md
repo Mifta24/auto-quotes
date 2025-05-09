@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world doesn't owe you anything. It was here first."  
-> — **Mark Twain**
+> "Life can be the scariest and most beautiful thing simultaneously."  
+> — **Maxime Lagace**
 
 ---
 
