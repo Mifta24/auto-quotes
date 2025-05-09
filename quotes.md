@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."  
-> — **Steve Maraboli**
+> "Character is doing what you don't want to do but know you should do."  
+> — **Joyce Meyer**
 
 ---
 
