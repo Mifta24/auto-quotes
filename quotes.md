@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life can be the scariest and most beautiful thing simultaneously."  
-> — **Maxime Lagace**
+> "Knowledge isn't power until it is applied."  
+> — **Dale Carnegie**
 
 ---
 
