@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no such thing as a great talent without great willpower."  
-> — **Honore de Balzac**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 
