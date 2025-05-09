@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your life does not get better by chance, it gets better by change."  
-> — **Jim Rohn**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 

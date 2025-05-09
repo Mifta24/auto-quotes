@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
-> — **Jack London**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 
