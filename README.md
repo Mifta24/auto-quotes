@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no such thing as a great talent without great willpower."  
-> — **Honore de Balzac**
+> "You can't wait for inspiration. You have to go after it with a club. "  
+> — **Jack London**
 
 ---
 

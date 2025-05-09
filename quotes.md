@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "You can't wait for inspiration. You have to go after it with a club. "  
+> — **Jack London**
 
 ---
 
