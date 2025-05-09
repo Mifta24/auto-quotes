@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about creating value."  
-> — **Candice Carpenter**
+> "There is no such thing as a great talent without great willpower."  
+> — **Honore de Balzac**
 
 ---
 

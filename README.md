@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "There is no such thing as a great talent without great willpower."  
+> — **Honore de Balzac**
 
 ---
 
