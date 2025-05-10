@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simplicity is the glory of expression."  
-> — **Walt Whitman**
+> "Whatever you do in life, surround yourself with smart people who'll argue with you."  
+> — **John Wooden**
 
 ---
 
