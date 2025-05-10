@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars. "  
-> — **Oscar Wilde**
+> "The biggest room in the world is the room for improvement."  
+> — **Unknown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles are those frightful things you see when you take your eyes off your goal."  
-> — **Henry Ford**
+> "The biggest room in the world is the room for improvement."  
+> — **Unknown**
 
 ---
 
