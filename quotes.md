@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars. "  
-> — **Oscar Wilde**
+> "Obstacles are those frightful things you see when you take your eyes off your goal."  
+> — **Henry Ford**
 
 ---
 
