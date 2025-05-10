@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day wasted on others is not wasted on one's self."  
-> — **Charles Dickens**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 

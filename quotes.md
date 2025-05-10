@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no coming to consciousness without pain"  
-> — **Carl Jung**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 
