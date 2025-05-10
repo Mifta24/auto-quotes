@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "A day wasted on others is not wasted on one's self."  
+> — **Charles Dickens**
 
 ---
 
