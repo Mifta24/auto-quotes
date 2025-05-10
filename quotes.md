@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you want something in life, you just gotta reach out and grab it."  
-> — **Christopher McCandless**
+> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
+> — **Deepak Chopra**
 
 ---
 

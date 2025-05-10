@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not allow your inner doubts to keep you from achieving what you can do."  
-> — **Lolly Daskal**
+> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
+> — **Deepak Chopra**
 
 ---
 
