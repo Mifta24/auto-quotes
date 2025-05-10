@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest room in the world is the room for improvement."  
-> — **Unknown**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
