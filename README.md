@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
-> — **Deepak Chopra**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 

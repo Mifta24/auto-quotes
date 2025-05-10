@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want things to be different, perhaps the answer is to become different yourself."  
-> — **Norman Vincent Peale**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 
