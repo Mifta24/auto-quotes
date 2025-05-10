@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
-> — **Vincent van Gogh**
+> "Do not allow your inner doubts to keep you from achieving what you can do."  
+> — **Lolly Daskal**
 
 ---
 

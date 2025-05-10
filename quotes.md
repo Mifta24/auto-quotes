@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one returns from a long journey the same person they were before."  
-> — **Zen Proverb**
+> "Do not allow your inner doubts to keep you from achieving what you can do."  
+> — **Lolly Daskal**
 
 ---
 
