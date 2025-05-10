@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not allow your inner doubts to keep you from achieving what you can do."  
-> — **Lolly Daskal**
+> "When you want something in life, you just gotta reach out and grab it."  
+> — **Christopher McCandless**
 
 ---
 
