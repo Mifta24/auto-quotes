@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever you do in life, surround yourself with smart people who'll argue with you."  
-> — **John Wooden**
+> "We make a living by what we get, but we make a life by what we give."  
+> — **Unknown**
 
 ---
 
