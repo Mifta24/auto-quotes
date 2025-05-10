@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Character is doing what you don't want to do but know you should do."  
-> — **Joyce Meyer**
+> "Simplicity is the glory of expression."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 09 May 2025 ⏳_
+_Last updated: 10 May 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
-> — **Brian Tracy**
+> "Simplicity is the glory of expression."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 09 May 2025 ⏳_
+_Last updated: 10 May 2025 ⏳_
