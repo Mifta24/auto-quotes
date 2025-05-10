@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest room in the world is the room for improvement."  
-> — **Unknown**
+> "The most important single ingredient in the formula of success is knowing how to get along with people."  
+> — **Theodore Roosevelt**
 
 ---
 
