@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "We tend to live up to our expectations."  
+> — **Earl Nightingale**
 
 ---
 
