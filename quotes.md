@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistake is a mistake only if you make it twice."  
-> — **Robin Sharma**
+> "Just get out and do it. You will be very, very glad that you did."  
+> — **Christopher McCandless**
 
 ---
 
