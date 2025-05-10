@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each of us is a unique strand in the intricate web of life and here to make a contribution."  
-> — **Deepak Chopra**
+> "If you want things to be different, perhaps the answer is to become different yourself."  
+> — **Norman Vincent Peale**
 
 ---
 
