@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
-> — **Tony Robbins**
+> "Man suffers only because he takes seriously what the gods made for fun."  
+> — **Alan Watts**
 
 ---
 

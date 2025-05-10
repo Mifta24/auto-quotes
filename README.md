@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important single ingredient in the formula of success is knowing how to get along with people."  
-> — **Theodore Roosevelt**
+> "Man suffers only because he takes seriously what the gods made for fun."  
+> — **Alan Watts**
 
 ---
 
