@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day wasted on others is not wasted on one's self."  
-> — **Charles Dickens**
+> "There's no coming to consciousness without pain"  
+> — **Carl Jung**
 
 ---
 
