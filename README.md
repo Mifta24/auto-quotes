@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
+> — **Vincent van Gogh**
 
 ---
 

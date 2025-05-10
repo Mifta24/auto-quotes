@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We tend to live up to our expectations."  
-> — **Earl Nightingale**
+> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
+> — **Vincent van Gogh**
 
 ---
 
