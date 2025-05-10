@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I try more and more to be myself, caring relatively little whether people approve or disapprove."  
-> — **Vincent van Gogh**
+> "No one returns from a long journey the same person they were before."  
+> — **Zen Proverb**
 
 ---
 
