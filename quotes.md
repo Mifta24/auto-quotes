@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances."  
+> "Honesty is the first chapter in the book of wisdom."  
 > — **Thomas Jefferson**
 
 ---
