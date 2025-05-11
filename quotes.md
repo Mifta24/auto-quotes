@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Duty makes us do things well, but love makes us do them beautifully.  "  
-> — **Zig Ziglar**
+> "Logic is like the sword - those who appeal to it shall perish by it."  
+> — **Samuel Butler**
 
 ---
 
