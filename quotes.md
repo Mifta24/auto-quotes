@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do the work you get rewarded. There are no shortcuts in life."  
-> — **Michael Jordan**
+> "We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "  
+> — **Charles Swindoll**
 
 ---
 
