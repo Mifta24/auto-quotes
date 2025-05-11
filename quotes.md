@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all like the bright moon, we still have our darker side.  "  
-> — **Kahlil Gibran**
+> "Fashion fades, only style remains the same."  
+> — **Coco Chanel**
 
 ---
 
