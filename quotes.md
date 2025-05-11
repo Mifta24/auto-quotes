@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "Be grateful for what you have now, and nothing should be taken for granted."  
+> — **Roy T. Bennett**
 
 ---
 
