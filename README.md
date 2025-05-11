@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Duty makes us do things well, but love makes us do them beautifully.  "  
-> — **Zig Ziglar**
+> "There will always be suffering. But we must not suffer over the suffering."  
+> — **Alan Watts**
 
 ---
 
