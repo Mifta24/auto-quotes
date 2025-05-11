@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds are always feared by lesser minds."  
-> — **Dan Brown**
+> "If you do the work you get rewarded. There are no shortcuts in life."  
+> — **Michael Jordan**
 
 ---
 

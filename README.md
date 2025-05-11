@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is those who concentrate on but one thing at a time who advance in this world."  
-> — **Gary Keller**
+> "If you do the work you get rewarded. There are no shortcuts in life."  
+> — **Michael Jordan**
 
 ---
 
