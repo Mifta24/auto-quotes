@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you're the only sane person, you look like the only insane person."  
-> — **Criss Jami**
+> "The key to success is action."  
+> — **Brian Tracy**
 
 ---
 

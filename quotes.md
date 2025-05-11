@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only put off until tomorrow what you are willing to die having left undone."  
-> — **Pablo Picasso**
+> "The key to success is action."  
+> — **Brian Tracy**
 
 ---
 
