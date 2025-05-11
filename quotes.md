@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is those who concentrate on but one thing at a time who advance in this world."  
-> — **Gary Keller**
+> "Great minds are always feared by lesser minds."  
+> — **Dan Brown**
 
 ---
 
