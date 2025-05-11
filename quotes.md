@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."  
-> — **Paramahansa Yogananda**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 
