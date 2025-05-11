@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
-> — **Dogen**
+> "Take care of your body. It's the only place you have to live."  
+> — **Jim Rohn**
 
 ---
 
