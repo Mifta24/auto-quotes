@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is action."  
-> — **Brian Tracy**
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
+> — **Dogen**
 
 ---
 
