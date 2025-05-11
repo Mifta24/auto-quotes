@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First learn the meaning of what you say, and then speak."  
-> — **Epictetus**
+> "You are never too old to become younger."  
+> — **Mae West**
 
 ---
 
