@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There will always be suffering. But we must not suffer over the suffering."  
-> — **Alan Watts**
+> "It is those who concentrate on but one thing at a time who advance in this world."  
+> — **Gary Keller**
 
 ---
 

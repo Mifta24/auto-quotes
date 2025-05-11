@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be irreplaceable one must always be different."  
-> — **Coco Chanel**
+> "It is those who concentrate on but one thing at a time who advance in this world."  
+> — **Gary Keller**
 
 ---
 
