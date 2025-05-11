@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Just get out and do it. You will be very, very glad that you did."  
-> — **Christopher McCandless**
+> "Greatest success comes just one step beyond the point at which defeat overtakes you."  
+> — **Unknown**
 
 ---
 
-_Last updated: 10 May 2025 ⏳_
+_Last updated: 11 May 2025 ⏳_
