@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Greatest success comes just one step beyond the point at which defeat overtakes you."  
-> — **Unknown**
+> "If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."  
+> — **Paramahansa Yogananda**
 
 ---
 
