@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be grateful for what you have now, and nothing should be taken for granted."  
-> — **Roy T. Bennett**
+> "We are all like the bright moon, we still have our darker side.  "  
+> — **Kahlil Gibran**
 
 ---
 

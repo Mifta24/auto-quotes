@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "We are all like the bright moon, we still have our darker side.  "  
+> — **Kahlil Gibran**
 
 ---
 
