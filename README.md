@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all like the bright moon, we still have our darker side.  "  
-> — **Kahlil Gibran**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 

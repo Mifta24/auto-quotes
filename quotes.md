@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fashion fades, only style remains the same."  
-> — **Coco Chanel**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 
