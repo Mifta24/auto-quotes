@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are never too old to become younger."  
-> — **Mae West**
+> "Duty makes us do things well, but love makes us do them beautifully.  "  
+> — **Zig Ziglar**
 
 ---
 

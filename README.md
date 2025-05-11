@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First learn the meaning of what you say, and then speak."  
-> — **Epictetus**
+> "Duty makes us do things well, but love makes us do them beautifully.  "  
+> — **Zig Ziglar**
 
 ---
 
