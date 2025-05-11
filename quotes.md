@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There will always be suffering. But we must not suffer over the suffering."  
-> — **Alan Watts**
+> "In order to be irreplaceable one must always be different."  
+> — **Coco Chanel**
 
 ---
 
