@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Greatest success comes just one step beyond the point at which defeat overtakes you."  
-> — **Unknown**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 
