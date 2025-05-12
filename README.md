@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The nearer a man comes to a calm mind, the closer he is to strength."  
-> — **Marcus Aurelius**
+> "It is not enough to win a war; it is more important to organize the peace."  
+> — **Aristotle**
 
 ---
 

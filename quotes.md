@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better late than never."  
-> — **Spencer Johnson**
+> "It is not enough to win a war; it is more important to organize the peace."  
+> — **Aristotle**
 
 ---
 
