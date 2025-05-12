@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
-> — **Morihei Ueshiba**
+> "The nearer a man comes to a calm mind, the closer he is to strength."  
+> — **Marcus Aurelius**
 
 ---
 

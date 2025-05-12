@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive."  
-> — **Joan Rivers**
+> "The nearer a man comes to a calm mind, the closer he is to strength."  
+> — **Marcus Aurelius**
 
 ---
 
