@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "  
-> — **Charles Swindoll**
+> "One of the most difficult things is not to change society - but to change yourself."  
+> — **Nelson Mandela**
 
 ---
 
-_Last updated: 11 May 2025 ⏳_
+_Last updated: 12 May 2025 ⏳_
