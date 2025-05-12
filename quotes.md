@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all self-made, but only the successful will admit it."  
-> — **Earl Nightingale**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 
