@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
-> — **Morihei Ueshiba**
+> "I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive."  
+> — **Joan Rivers**
 
 ---
 
