@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the most difficult things is not to change society - but to change yourself."  
-> — **Nelson Mandela**
+> "Always be a first rate version of yourself and not a second rate version of someone else."  
+> — **Judy Garland**
 
 ---
 
