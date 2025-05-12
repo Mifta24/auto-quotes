@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "Be not glad at the misfortune of another, though he may be your enemy. "  
+> — **George Washington**
 
 ---
 

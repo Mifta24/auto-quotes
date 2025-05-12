@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all self-made, but only the successful will admit it."  
-> — **Earl Nightingale**
+> "Be not glad at the misfortune of another, though he may be your enemy. "  
+> — **George Washington**
 
 ---
 
