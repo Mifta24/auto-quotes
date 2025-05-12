@@ -2,7 +2,7 @@ name: Auto Update Quotes
 
 on:
   schedule:
-    - cron: "0 */2 * * *"  # Setiap 2 jam
+    - cron: "0 */5 * * *"  # Setiap 2 jam
   workflow_dispatch:  # Menambahkan trigger manual
 
 jobs:
