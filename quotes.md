@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The businessman's tool is value."  
-> — **Ayn Rand**
+> "The trouble with the rat race is that even if you win, you're still a rat."  
+> — **Lily Tomlin**
 
 ---
 
