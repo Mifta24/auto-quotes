@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be not glad at the misfortune of another, though he may be your enemy. "  
-> — **George Washington**
+> "Your greatest asset is your earning ability. Your greatest resource is your time."  
+> — **Brian Tracy**
 
 ---
 
