@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always be a first rate version of yourself and not a second rate version of someone else."  
-> — **Judy Garland**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 

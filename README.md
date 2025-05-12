@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the most difficult things is not to change society - but to change yourself."  
-> — **Nelson Mandela**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 
