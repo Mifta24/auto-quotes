@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with the rat race is that even if you win, you're still a rat."  
-> — **Lily Tomlin**
+> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
+> — **Morihei Ueshiba**
 
 ---
 

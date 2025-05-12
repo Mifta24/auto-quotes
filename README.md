@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The businessman's tool is value."  
-> — **Ayn Rand**
+> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
+> — **Morihei Ueshiba**
 
 ---
 
