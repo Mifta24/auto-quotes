@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what happens to you, but how you react to it that matters."  
-> — **Epictetus**
+> "We are all self-made, but only the successful will admit it."  
+> — **Earl Nightingale**
 
 ---
 

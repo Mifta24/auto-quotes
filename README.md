@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with the rat race is that even if you win, you're still a rat."  
-> — **Lily Tomlin**
+> "We are all self-made, but only the successful will admit it."  
+> — **Earl Nightingale**
 
 ---
 
