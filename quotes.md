@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not enough to win a war; it is more important to organize the peace."  
-> — **Aristotle**
+> "The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind."  
+> — **F. Scott Fitzgerald**
 
 ---
 
