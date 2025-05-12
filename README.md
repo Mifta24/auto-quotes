@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not enough to win a war; it is more important to organize the peace."  
-> — **Aristotle**
+> "The trouble with the rat race is that even if you win, you're still a rat."  
+> — **Lily Tomlin**
 
 ---
 
