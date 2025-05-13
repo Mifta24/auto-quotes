@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart wants what it wants - or else it does not care."  
-> — **Emily Dickinson**
+> "You don't get in life what you want; you get in life what you are."  
+> — **Les Brown**
 
 ---
 
