@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't get in life what you want; you get in life what you are."  
-> — **Les Brown**
+> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
+> — **Eric Hoffer**
 
 ---
 
