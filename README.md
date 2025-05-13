@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be not glad at the misfortune of another, though he may be your enemy. "  
-> — **George Washington**
+> "Hope is not a strategy. Luck is not a factor. Fear is not an option."  
+> — **James Cameron**
 
 ---
 
-_Last updated: 12 May 2025 ⏳_
+_Last updated: 13 May 2025 ⏳_
