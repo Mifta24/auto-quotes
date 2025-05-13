@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Few things are more deceptive than memories."  
-> — **Carlos Ruiz Zafon**
+> "The difference between winning and losing is most often not quitting."  
+> — **Walt Disney**
 
 ---
 
