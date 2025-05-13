@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope is not a strategy. Luck is not a factor. Fear is not an option."  
-> — **James Cameron**
+> "Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit."  
+> — **Robin Sharma**
 
 ---
 
