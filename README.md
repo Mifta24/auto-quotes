@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
-> — **Eric Hoffer**
+> "To seek is to suffer. To seek nothing is bliss."  
+> — **Bodhidharma**
 
 ---
 

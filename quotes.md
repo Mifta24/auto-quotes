@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We live only now. Everything else is either passed or is unknown."  
-> — **Marcus Aurelius**
+> "To seek is to suffer. To seek nothing is bliss."  
+> — **Bodhidharma**
 
 ---
 
