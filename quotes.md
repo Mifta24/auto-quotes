@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit."  
-> — **Robin Sharma**
+> "The heart wants what it wants - or else it does not care."  
+> — **Emily Dickinson**
 
 ---
 

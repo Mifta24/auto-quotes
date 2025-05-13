@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope is not a strategy. Luck is not a factor. Fear is not an option."  
-> — **James Cameron**
+> "The heart wants what it wants - or else it does not care."  
+> — **Emily Dickinson**
 
 ---
 
