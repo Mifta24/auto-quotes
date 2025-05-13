@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek is to suffer. To seek nothing is bliss."  
-> — **Bodhidharma**
+> "You can put lipstick on a pig. It's still a pig."  
+> — **Barack Obama**
 
 ---
 
