@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
-> — **Eric Hoffer**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
