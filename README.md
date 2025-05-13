@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek is to suffer. To seek nothing is bliss."  
-> — **Bodhidharma**
+> "Few things are more deceptive than memories."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

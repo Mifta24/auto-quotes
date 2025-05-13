@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can put lipstick on a pig. It's still a pig."  
-> — **Barack Obama**
+> "Few things are more deceptive than memories."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
