@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is not contented with what he has, would not be contented with what he would like to have."  
-> — **Socrates**
+> "You are the average of the five people you spend most time with."  
+> — **Jim Rohn**
 
 ---
 
