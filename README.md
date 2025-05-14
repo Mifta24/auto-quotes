@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Logic is like the sword - those who appeal to it shall perish by it."  
-> — **Samuel Butler**
+> "The greater the impact you want to make, the greater your influence needs to be."  
+> — **Lolly Daskal**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech. "  
-> — **Albert Einstein**
+> "The greater the impact you want to make, the greater your influence needs to be."  
+> — **Lolly Daskal**
 
 ---
 
