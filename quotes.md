@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greater the impact you want to make, the greater your influence needs to be."  
-> — **Lolly Daskal**
+> "Wise men speak because they have something to say; Fools because they have to say something."  
+> — **Plato**
 
 ---
 
