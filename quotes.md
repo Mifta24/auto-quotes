@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "Logic is like the sword - those who appeal to it shall perish by it."  
+> — **Samuel Butler**
 
 ---
 

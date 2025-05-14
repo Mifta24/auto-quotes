@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
-> — **Mark Twain**
+> "Logic is like the sword - those who appeal to it shall perish by it."  
+> — **Samuel Butler**
 
 ---
 
