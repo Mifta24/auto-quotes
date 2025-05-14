@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We ordinary people must forge our own beauty."  
-> — **Kenji Miyazawa**
+> "Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever."  
+> — **Aristophanes**
 
 ---
 
