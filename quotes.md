@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever."  
-> — **Aristophanes**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 

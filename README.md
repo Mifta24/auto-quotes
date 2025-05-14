@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We ordinary people must forge our own beauty."  
-> — **Kenji Miyazawa**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 
