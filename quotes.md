@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Logic is like the sword - those who appeal to it shall perish by it."  
-> — **Samuel Butler**
+> "Science can flourish only in an atmosphere of free speech. "  
+> — **Albert Einstein**
 
 ---
 
