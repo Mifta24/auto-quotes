@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Few things are more deceptive than memories."  
-> — **Carlos Ruiz Zafon**
+> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 13 May 2025 ⏳_
+_Last updated: 14 May 2025 ⏳_
