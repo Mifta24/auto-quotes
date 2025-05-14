@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise men speak because they have something to say; Fools because they have to say something."  
-> — **Plato**
+> "We ordinary people must forge our own beauty."  
+> — **Kenji Miyazawa**
 
 ---
 
