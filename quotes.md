@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Character is doing what you don't want to do but know you should do."  
-> — **Joyce Meyer**
+> "If you don't find the time, if you don't do the work, you don't get the results."  
+> — **Arnold Schwarzenegger**
 
 ---
 
