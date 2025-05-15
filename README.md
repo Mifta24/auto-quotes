@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right."  
+> — **Albus Dumbledore**
 
 ---
 

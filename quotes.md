@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
-> — **Lily Tomlin**
+> "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right."  
+> — **Albus Dumbledore**
 
 ---
 
