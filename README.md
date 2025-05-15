@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Character is doing what you don't want to do but know you should do."  
-> — **Joyce Meyer**
+> "The biggest challenge after success is shutting up about it."  
+> — **Criss Jami**
 
 ---
 

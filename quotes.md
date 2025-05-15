@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't find the time, if you don't do the work, you don't get the results."  
-> — **Arnold Schwarzenegger**
+> "The biggest challenge after success is shutting up about it."  
+> — **Criss Jami**
 
 ---
 
