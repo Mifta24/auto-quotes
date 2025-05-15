@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest challenge after success is shutting up about it."  
-> — **Criss Jami**
+> "Small men think they are small; great men never know they are great. "  
+> — **Chinese Proverb**
 
 ---
 
