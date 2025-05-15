@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are the average of the five people you spend most time with."  
-> — **Jim Rohn**
+> "Character is doing what you don't want to do but know you should do."  
+> — **Joyce Meyer**
 
 ---
 
-_Last updated: 14 May 2025 ⏳_
+_Last updated: 15 May 2025 ⏳_
