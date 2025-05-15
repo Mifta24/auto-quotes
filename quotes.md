@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
+> — **Lily Tomlin**
 
 ---
 
