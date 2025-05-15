@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you are grateful for what you have the more you will have to be grateful for.  "  
-> — **Zig Ziglar**
+> "Adventure is worthwhile in itself."  
+> — **Amelia Earhart**
 
 ---
 
