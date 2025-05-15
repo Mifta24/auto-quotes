@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Small men think they are small; great men never know they are great. "  
-> — **Chinese Proverb**
+> "The more you are grateful for what you have the more you will have to be grateful for.  "  
+> — **Zig Ziglar**
 
 ---
 
