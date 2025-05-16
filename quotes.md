@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not use life to give life to death. Do not use death to bring death to life."  
-> — **Zhuangzi**
+> "If you do not get the chills when you set your goal you're not setting big enough goals."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 15 May 2025 ⏳_
+_Last updated: 16 May 2025 ⏳_

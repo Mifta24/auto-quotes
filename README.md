@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right."  
-> — **Albus Dumbledore**
+> "If you do not get the chills when you set your goal you're not setting big enough goals."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 15 May 2025 ⏳_
+_Last updated: 16 May 2025 ⏳_
