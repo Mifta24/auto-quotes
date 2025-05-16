@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  "  
-> — **Wayne Dyer**
+> "Life is a traveling to the edge of knowledge, then a leap taken."  
+> — **D. H. Lawrence**
 
 ---
 

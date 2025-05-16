@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "Life is a traveling to the edge of knowledge, then a leap taken."  
+> — **D. H. Lawrence**
 
 ---
 
