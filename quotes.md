@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  "  
+> — **Wayne Dyer**
 
 ---
 
