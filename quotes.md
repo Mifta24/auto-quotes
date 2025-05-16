@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a traveling to the edge of knowledge, then a leap taken."  
-> — **D. H. Lawrence**
+> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
+> — **Charles Spurgeon**
 
 ---
 
