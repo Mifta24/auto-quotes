@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending."  
-> — **Carl Bard**
+> "The only lost cause is one we give up on before we enter the struggle."  
+> — **Vaclav Havel**
 
 ---
 
