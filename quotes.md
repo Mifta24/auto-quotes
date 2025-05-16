@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
-> — **Deepak Chopra**
+> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
+> — **Ralph Marston**
 
 ---
 
