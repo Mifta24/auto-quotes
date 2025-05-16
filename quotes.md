@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do not get the chills when you set your goal you're not setting big enough goals."  
-> — **Bob Proctor**
+> "Be the change that you want to see in the world."  
+> — **Mahatma Gandhi**
 
 ---
 
