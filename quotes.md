@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only lost cause is one we give up on before we enter the struggle."  
-> — **Vaclav Havel**
+> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
+> — **Deepak Chopra**
 
 ---
 

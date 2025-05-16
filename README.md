@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending."  
-> — **Carl Bard**
+> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
+> — **Deepak Chopra**
 
 ---
 
