@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
-> — **Charles Spurgeon**
+> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending."  
+> — **Carl Bard**
 
 ---
 

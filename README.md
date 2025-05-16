@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a traveling to the edge of knowledge, then a leap taken."  
-> — **D. H. Lawrence**
+> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending."  
+> — **Carl Bard**
 
 ---
 
