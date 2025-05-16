@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do not get the chills when you set your goal you're not setting big enough goals."  
-> — **Bob Proctor**
+> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
+> — **Toni Morrison**
 
 ---
 
