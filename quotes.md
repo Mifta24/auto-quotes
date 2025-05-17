@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All our dreams can come true, if we have the courage to pursue them."  
-> — **Walt Disney**
+> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
+> — **Rumi**
 
 ---
 
