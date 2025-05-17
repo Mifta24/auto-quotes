@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
-> — **Rumi**
+> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
+> — **Leonardo da Vinci**
 
 ---
 
