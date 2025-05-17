@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company. "  
+> — **George Washington**
 
 ---
 
