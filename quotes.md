@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A woman unsatisfied must have luxuries. But a woman who loves a man would sleep on a board."  
-> — **D. H. Lawrence**
+> "What we know is a drop, what we don't know is an ocean. "  
+> — **Isaac Newton**
 
 ---
 
