@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
-> — **Ralph Marston**
+> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 16 May 2025 ⏳_
+_Last updated: 17 May 2025 ⏳_

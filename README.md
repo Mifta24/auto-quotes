@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
-> — **Deepak Chopra**
+> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 16 May 2025 ⏳_
+_Last updated: 17 May 2025 ⏳_
