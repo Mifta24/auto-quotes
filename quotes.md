@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What we know is a drop, what we don't know is an ocean. "  
-> — **Isaac Newton**
+> "All our dreams can come true, if we have the courage to pursue them."  
+> — **Walt Disney**
 
 ---
 
