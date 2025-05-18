@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing quite so tragic as a young cynic."  
-> — **Maya Angelou**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 
