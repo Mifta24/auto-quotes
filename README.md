@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no one giant step that does it. It's a lot of little steps."  
-> — **Peter A. Cohen**
+> "There is nothing quite so tragic as a young cynic."  
+> — **Maya Angelou**
 
 ---
 

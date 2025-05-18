@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can think of nothing less pleasurable than a life devoted to pleasure."  
-> — **John D. Rockefeller**
+> "There is nothing quite so tragic as a young cynic."  
+> — **Maya Angelou**
 
 ---
 
