@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "Begin at once to live, and count each separate day as a separate life.  "  
+> — **Seneca**
 
 ---
 
