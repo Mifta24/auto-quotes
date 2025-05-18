@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no one giant step that does it. It's a lot of little steps."  
-> — **Peter A. Cohen**
+> "I can think of nothing less pleasurable than a life devoted to pleasure."  
+> — **John D. Rockefeller**
 
 ---
 
