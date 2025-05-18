@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Begin at once to live, and count each separate day as a separate life.  "  
-> — **Seneca**
+> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
+> — **Norman Vincent Peale**
 
 ---
 

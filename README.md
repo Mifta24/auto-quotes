@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
+> — **Norman Vincent Peale**
 
 ---
 
