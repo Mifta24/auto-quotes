@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We learn to walk by falling down. If we never fell down, we would never walk."  
-> — **Robert Kiyosaki**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 

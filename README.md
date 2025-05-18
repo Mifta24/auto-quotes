@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing quite so tragic as a young cynic."  
-> — **Maya Angelou**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
