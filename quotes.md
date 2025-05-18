@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
-> — **Og Mandino**
+> "I have no methods; all I do is accept people as they are."  
+> — **Joan Rivers**
 
 ---
 
