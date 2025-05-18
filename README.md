@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
-> — **Og Mandino**
+> "There is no one giant step that does it. It's a lot of little steps."  
+> — **Peter A. Cohen**
 
 ---
 

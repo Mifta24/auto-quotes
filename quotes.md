@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have no methods; all I do is accept people as they are."  
-> — **Joan Rivers**
+> "There is no one giant step that does it. It's a lot of little steps."  
+> — **Peter A. Cohen**
 
 ---
 
