@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you pray for rain, be prepared to deal with some mud."  
-> — **Mary Engelbreit**
+> "We take care of the future best by taking care of the present now."  
+> — **Jon Kabat-Zinn**
 
 ---
 
