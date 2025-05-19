@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is only real when shared."  
-> — **Christopher McCandless**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 

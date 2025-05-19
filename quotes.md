@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."  
-> — **Wayne Gretzky**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 
