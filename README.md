@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
-> — **Norman Vincent Peale**
+> "Sadness is but a wall between two gardens."  
+> — **Kahlil Gibran**
 
 ---
 
-_Last updated: 18 May 2025 ⏳_
+_Last updated: 19 May 2025 ⏳_

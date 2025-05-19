@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "All problems are illusions of the mind."  
-> — **Eckhart Tolle**
+> "Sadness is but a wall between two gardens."  
+> — **Kahlil Gibran**
 
 ---
 
-_Last updated: 18 May 2025 ⏳_
+_Last updated: 19 May 2025 ⏳_
