@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
-> — **Eckhart Tolle**
+> "If you pray for rain, be prepared to deal with some mud."  
+> — **Mary Engelbreit**
 
 ---
 

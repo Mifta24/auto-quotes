@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Educating the mind without educating the heart is no education at all."  
-> — **Aristotle**
+> "If you pray for rain, be prepared to deal with some mud."  
+> — **Mary Engelbreit**
 
 ---
 
