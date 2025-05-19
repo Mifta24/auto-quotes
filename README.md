@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sadness is but a wall between two gardens."  
-> — **Kahlil Gibran**
+> "Educating the mind without educating the heart is no education at all."  
+> — **Aristotle**
 
 ---
 

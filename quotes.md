@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Among the things you can give and still keep are your word, a smile, and a grateful heart."  
-> — **Zig Ziglar**
+> "Educating the mind without educating the heart is no education at all."  
+> — **Aristotle**
 
 ---
 
