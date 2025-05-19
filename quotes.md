@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sadness is but a wall between two gardens."  
-> — **Kahlil Gibran**
+> "Among the things you can give and still keep are your word, a smile, and a grateful heart."  
+> — **Zig Ziglar**
 
 ---
 
