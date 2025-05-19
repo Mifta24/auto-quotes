@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Educating the mind without educating the heart is no education at all."  
-> — **Aristotle**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 
