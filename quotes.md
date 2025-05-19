@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We take care of the future best by taking care of the present now."  
-> — **Jon Kabat-Zinn**
+> "Happiness is only real when shared."  
+> — **Christopher McCandless**
 
 ---
 

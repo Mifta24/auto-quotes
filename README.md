@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you pray for rain, be prepared to deal with some mud."  
-> — **Mary Engelbreit**
+> "Happiness is only real when shared."  
+> — **Christopher McCandless**
 
 ---
 
