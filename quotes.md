@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings can alter their lives by altering their attitudes of mind."  
-> — **William James**
+> "Discontent is the first necessity of progress."  
+> — **Thomas Edison**
 
 ---
 
