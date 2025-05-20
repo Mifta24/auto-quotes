@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is ten percent what you experience and ninety percent how you respond to it."  
-> — **Unknown**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 

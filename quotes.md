@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it."  
-> — **Gary Keller**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 
