@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
-> — **Conrad Hilton**
+> "There are no second chances in life, except to feel remorse."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
-_Last updated: 19 May 2025 ⏳_
+_Last updated: 20 May 2025 ⏳_

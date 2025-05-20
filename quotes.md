@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the fence and the rest will follow"  
-> — **Norman Vincent Peale**
+> "There are no second chances in life, except to feel remorse."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
-_Last updated: 19 May 2025 ⏳_
+_Last updated: 20 May 2025 ⏳_
