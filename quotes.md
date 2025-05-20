@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is ten percent what you experience and ninety percent how you respond to it."  
-> — **Unknown**
+> "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it."  
+> — **Gary Keller**
 
 ---
 
