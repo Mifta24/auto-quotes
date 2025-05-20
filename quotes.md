@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is possible. The impossible just takes longer."  
-> — **Dan Brown**
+> "The birth of the mind is the death of the senses."  
+> — **Dan Millman**
 
 ---
 

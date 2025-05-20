@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no second chances in life, except to feel remorse."  
-> — **Carlos Ruiz Zafon**
+> "The birth of the mind is the death of the senses."  
+> — **Dan Millman**
 
 ---
 
