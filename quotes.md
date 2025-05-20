@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "The birth of the mind is the death of the senses."  
+> "Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment."  
 > — **Dan Millman**
 
 ---
