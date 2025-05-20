@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no second chances in life, except to feel remorse."  
-> — **Carlos Ruiz Zafon**
+> "Everything is possible. The impossible just takes longer."  
+> — **Dan Brown**
 
 ---
 
