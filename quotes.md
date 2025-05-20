@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment."  
-> — **Dan Millman**
+> "Life is ten percent what you experience and ninety percent how you respond to it."  
+> — **Unknown**
 
 ---
 

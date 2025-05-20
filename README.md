@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The birth of the mind is the death of the senses."  
-> — **Dan Millman**
+> "Life is ten percent what you experience and ninety percent how you respond to it."  
+> — **Unknown**
 
 ---
 
