@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that."  
-> — **Eckhart Tolle**
+> "When we have our body and mind in order, everything else will exist in the right place, in the right way."  
+> — **Shunryu Suzuki**
 
 ---
 
