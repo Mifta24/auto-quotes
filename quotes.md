@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even though you are on the right track - you will get run over if you just sit there."  
-> — **Will Rogers**
+> "Learn from the rejection and turn it into an opportunity!"  
+> — **Mary Engelbreit**
 
 ---
 

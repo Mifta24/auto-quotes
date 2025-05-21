@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is resistance to fear, mastery of fear - not absence of fear."  
-> — **Mark Twain**
+> "Learn from the rejection and turn it into an opportunity!"  
+> — **Mary Engelbreit**
 
 ---
 
