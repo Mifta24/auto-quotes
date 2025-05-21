@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we have our body and mind in order, everything else will exist in the right place, in the right way."  
-> — **Shunryu Suzuki**
+> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
+> — **Eckhart Tolle**
 
 ---
 

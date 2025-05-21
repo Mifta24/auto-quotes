@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that."  
+> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
 > — **Eckhart Tolle**
 
 ---
