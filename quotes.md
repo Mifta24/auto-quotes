@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway."  
-> — **Earl Nightingale**
+> "When people are free to do as they please, they usually imitate each other."  
+> — **Eric Hoffer**
 
 ---
 

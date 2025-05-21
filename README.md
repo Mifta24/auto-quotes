@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the rejection and turn it into an opportunity!"  
-> — **Mary Engelbreit**
+> "When people are free to do as they please, they usually imitate each other."  
+> — **Eric Hoffer**
 
 ---
 
