@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves."  
-> — **Adi Da Samraj**
+> "What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that."  
+> — **Eckhart Tolle**
 
 ---
 
-_Last updated: 20 May 2025 ⏳_
+_Last updated: 21 May 2025 ⏳_
