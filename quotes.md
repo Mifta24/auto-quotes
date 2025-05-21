@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When people are free to do as they please, they usually imitate each other."  
-> — **Eric Hoffer**
+> "I defeat my enemies when I make them my friends."  
+> — **Dalai Lama**
 
 ---
 
