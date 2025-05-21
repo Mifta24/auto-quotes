@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
-> — **Eckhart Tolle**
+> "The dead receive more flowers than the living because regret is stronger than gratitude."  
+> — **Anne Frank**
 
 ---
 
