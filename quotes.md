@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who wishes to be obeyed must know how to command."  
-> — **Niccolo Machiavelli**
+> "Every experience is a lesson. Every loss is a gain."  
+> — **Sathya Sai Baba**
 
 ---
 
