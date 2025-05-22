@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners don't Quit. That's why they Win."  
-> — **Unknown**
+> "Difficulties strengthen the mind, as labor does the body.  "  
+> — **Seneca**
 
 ---
 
