@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes things become possible if we want them bad enough."  
-> — **T.S. Eliot**
+> "The only way round is through."  
+> — **Robert Frost**
 
 ---
 
