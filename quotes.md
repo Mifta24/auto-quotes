@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every experience is a lesson. Every loss is a gain."  
-> — **Sathya Sai Baba**
+> "Don't explain your philosophy. Embody it."  
+> — **Epictetus**
 
 ---
 
