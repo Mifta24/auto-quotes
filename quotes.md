@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't explain your philosophy. Embody it."  
-> — **Epictetus**
+> "Winners don't Quit. That's why they Win."  
+> — **Unknown**
 
 ---
 

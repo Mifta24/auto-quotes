@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every experience is a lesson. Every loss is a gain."  
-> — **Sathya Sai Baba**
+> "Winners don't Quit. That's why they Win."  
+> — **Unknown**
 
 ---
 
