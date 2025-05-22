@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners don't Quit. That's why they Win."  
-> — **Unknown**
+> "Sometimes things become possible if we want them bad enough."  
+> — **T.S. Eliot**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficulties strengthen the mind, as labor does the body.  "  
-> — **Seneca**
+> "Sometimes things become possible if we want them bad enough."  
+> — **T.S. Eliot**
 
 ---
 
