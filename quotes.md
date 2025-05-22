@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't break your ropes while you're alive, do you think ghosts will do it after?"  
-> — **Kabir**
+> "Do not bite at the bait of pleasure, till you know there is no hook beneath it."  
+> — **Thomas Jefferson**
 
 ---
 
