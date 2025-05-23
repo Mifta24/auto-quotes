@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Getting lost along your path is a part of finding the path you are meant to be on."  
-> — **Robin Sharma**
+> "Life is from the inside out. When you shift on the inside, life shifts on the outside."  
+> — **Kamal Ravikant**
 
 ---
 
