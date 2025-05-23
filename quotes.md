@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
-> — **Oprah Winfrey**
+> "By seeking and blundering we learn."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
