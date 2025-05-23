@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is from the inside out. When you shift on the inside, life shifts on the outside."  
-> — **Kamal Ravikant**
+> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
+> — **Naval Ravikant**
 
 ---
 
