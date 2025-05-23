@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human wisdom is contained in these two words - Wait and Hope"  
-> — **Alexandre Dumas**
+> "Getting lost along your path is a part of finding the path you are meant to be on."  
+> — **Robin Sharma**
 
 ---
 

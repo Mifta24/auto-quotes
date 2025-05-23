@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our life is what our thoughts make it. A man will find that as he alters his thoughts toward things and other people, things and other people will alter towards him."  
-> — **James Allen**
+> "Getting lost along your path is a part of finding the path you are meant to be on."  
+> — **Robin Sharma**
 
 ---
 
