@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "Once you choose hope, anything's possible."  
+> — **Christopher Reeve**
 
 ---
 
