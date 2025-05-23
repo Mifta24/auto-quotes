@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Once you choose hope, anything's possible."  
-> — **Christopher Reeve**
+> "Just do the best you can. No one can do more than that."  
+> — **John Wooden**
 
 ---
 
