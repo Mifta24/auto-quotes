@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Once you choose hope, anything's possible."  
-> — **Christopher Reeve**
+> "All human wisdom is contained in these two words - Wait and Hope"  
+> — **Alexandre Dumas**
 
 ---
 

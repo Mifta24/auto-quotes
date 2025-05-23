@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just do the best you can. No one can do more than that."  
-> — **John Wooden**
+> "All human wisdom is contained in these two words - Wait and Hope"  
+> — **Alexandre Dumas**
 
 ---
 
