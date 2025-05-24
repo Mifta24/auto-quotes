@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A clear conscience is the sure sign of a bad memory."  
-> — **Mark Twain**
+> "Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty."  
+> — **Theodore Roosevelt**
 
 ---
 
-_Last updated: 23 May 2025 ⏳_
+_Last updated: 24 May 2025 ⏳_

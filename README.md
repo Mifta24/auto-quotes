@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
-> — **Naval Ravikant**
+> "Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty."  
+> — **Theodore Roosevelt**
 
 ---
 
-_Last updated: 23 May 2025 ⏳_
+_Last updated: 24 May 2025 ⏳_
