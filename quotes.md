@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be poor to know the luxury of giving."  
-> — **George Eliot**
+> "Anger begins with folly, and ends with repentance. "  
+> — **Beverly Sills**
 
 ---
 
