@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Appear weak when you are strong, and strong when you are weak."  
-> — **Sun Tzu**
+> "Doing the best at this moment puts you in the best place for the next moment."  
+> — **Oprah Winfrey**
 
 ---
 
