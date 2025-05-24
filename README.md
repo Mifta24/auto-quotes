@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "Appear weak when you are strong, and strong when you are weak."  
+> — **Sun Tzu**
 
 ---
 

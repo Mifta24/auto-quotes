@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything worth doing is worth doing slowly."  
-> — **Mae West**
+> "Appear weak when you are strong, and strong when you are weak."  
+> — **Sun Tzu**
 
 ---
 
