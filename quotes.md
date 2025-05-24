@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anger begins with folly, and ends with repentance. "  
-> — **Beverly Sills**
+> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
+> — **Deepak Chopra**
 
 ---
 
