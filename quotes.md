@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "Anything worth doing is worth doing slowly."  
+> — **Mae West**
 
 ---
 
