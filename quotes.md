@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The essence of the Way is detachment."  
-> — **Bodhidharma**
+> "There's no next time. It's now or never."  
+> — **Celestine Chua**
 
 ---
 

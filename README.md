@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty."  
-> — **Theodore Roosevelt**
+> "There's no next time. It's now or never."  
+> — **Celestine Chua**
 
 ---
 
