@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Doing the best at this moment puts you in the best place for the next moment."  
-> — **Oprah Winfrey**
+> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
+> — **Alexander Graham Bell**
 
 ---
 

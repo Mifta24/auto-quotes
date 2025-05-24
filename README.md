@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Appear weak when you are strong, and strong when you are weak."  
-> — **Sun Tzu**
+> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
+> — **Alexander Graham Bell**
 
 ---
 
