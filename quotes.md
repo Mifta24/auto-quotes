@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not how much money you make, it's how much money you keep."  
-> — **Robert Kiyosaki**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
