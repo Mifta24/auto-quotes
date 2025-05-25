@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is what you have before you understand the problem."  
-> — **Woody Allen**
+> "It's not how much money you make, it's how much money you keep."  
+> — **Robert Kiyosaki**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Argue for your limitations and sure enough, they're yours."  
-> — **Richard Bach**
+> "It's not how much money you make, it's how much money you keep."  
+> — **Robert Kiyosaki**
 
 ---
 
