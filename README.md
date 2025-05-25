@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's what you do in the present that will redeem the past and thereby change the future."  
-> — **Paulo Coelho**
+> "Argue for your limitations and sure enough, they're yours."  
+> — **Richard Bach**
 
 ---
 

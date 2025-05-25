@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never waste a minute of your precious life thinking about people you don't like."  
-> — **Celestine Chua**
+> "Argue for your limitations and sure enough, they're yours."  
+> — **Richard Bach**
 
 ---
 
