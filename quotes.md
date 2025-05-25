@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Argue for your limitations and sure enough, they're yours."  
-> — **Richard Bach**
+> "Confidence is what you have before you understand the problem."  
+> — **Woody Allen**
 
 ---
 
