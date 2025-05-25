@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 
