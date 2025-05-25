@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "Look to the beauty of this day, miracles are all around you."  
+> — **Mary Engelbreit**
 
 ---
 

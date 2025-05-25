@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "Look to the beauty of this day, miracles are all around you."  
+> — **Mary Engelbreit**
 
 ---
 
