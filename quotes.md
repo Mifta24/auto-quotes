@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Look to the beauty of this day, miracles are all around you."  
-> — **Mary Engelbreit**
+> "At every moment where language can't go, that's your mind."  
+> — **Bodhidharma**
 
 ---
 
