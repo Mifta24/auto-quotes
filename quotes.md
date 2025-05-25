@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At every moment where language can't go, that's your mind."  
-> — **Bodhidharma**
+> "It's what you do in the present that will redeem the past and thereby change the future."  
+> — **Paulo Coelho**
 
 ---
 
