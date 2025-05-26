@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress is limited by your ability to change your mind."  
-> — **Jack Butcher**
+> "The meaning of life is that it stops."  
+> — **Franz Kafka**
 
 ---
 

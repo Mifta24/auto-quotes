@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you rise in the morning, form a resolution to make the day a happy one for a fellow creature."  
-> — **Sydney Smith**
+> "The meaning of life is that it stops."  
+> — **Franz Kafka**
 
 ---
 
