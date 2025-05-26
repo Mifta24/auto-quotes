@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 25 May 2025 ⏳_
+_Last updated: 26 May 2025 ⏳_

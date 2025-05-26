@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not how much money you make, it's how much money you keep."  
-> — **Robert Kiyosaki**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 25 May 2025 ⏳_
+_Last updated: 26 May 2025 ⏳_
