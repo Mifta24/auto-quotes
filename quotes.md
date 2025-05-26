@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absorb what is useful, discard what is not, add what is uniquely your own."  
-> — **Bruce Lee**
+> "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."  
+> — **Bob Marley**
 
 ---
 
