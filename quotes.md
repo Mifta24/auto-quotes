@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The meaning of life is that it stops."  
-> — **Franz Kafka**
+> "Never regret your past. Rather, embrace it as the teacher that it is."  
+> — **Robin Sharma**
 
 ---
 
