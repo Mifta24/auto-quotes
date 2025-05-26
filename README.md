@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "Absorb what is useful, discard what is not, add what is uniquely your own."  
+> — **Bruce Lee**
 
 ---
 

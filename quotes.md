@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A self that goes on changing is a self that goes on living."  
-> — **Virginia Woolf**
+> "Absorb what is useful, discard what is not, add what is uniquely your own."  
+> — **Bruce Lee**
 
 ---
 
