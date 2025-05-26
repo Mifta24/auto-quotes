@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never regret your past. Rather, embrace it as the teacher that it is."  
-> — **Robin Sharma**
+> "I do not exist to impress the world. I exist to live my life in a way that will make me happy."  
+> — **Richard Bach**
 
 ---
 
