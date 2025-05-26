@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I do not exist to impress the world. I exist to live my life in a way that will make me happy."  
-> — **Richard Bach**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 
