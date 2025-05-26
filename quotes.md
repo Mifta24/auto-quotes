@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I do not exist to impress the world. I exist to live my life in a way that will make me happy."  
-> — **Richard Bach**
+> "Do the difficult things while they are easy and do the great things while they are small."  
+> — **Lao Tzu**
 
 ---
 
