@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "A self that goes on changing is a self that goes on living."  
+> — **Virginia Woolf**
 
 ---
 
