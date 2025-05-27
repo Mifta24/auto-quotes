@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
-> — **Christopher Reeve**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 
