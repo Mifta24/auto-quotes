@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To get angry is like to revenge yourself for the guilt of others."  
-> — **Jonathan Swift**
+> "Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you."  
+> — **Richard Bach**
 
 ---
 
