@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothing of our thoughts."  
-> — **Jonathan Swift**
+> "I am not what happened to me, I am what I choose to become."  
+> — **Carl Jung**
 
 ---
 
