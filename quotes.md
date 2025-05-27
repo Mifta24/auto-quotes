@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not what happened to me, I am what I choose to become."  
-> — **Carl Jung**
+> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
+> — **Christopher Reeve**
 
 ---
 
