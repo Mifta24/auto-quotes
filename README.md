@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
-> — **Christopher Reeve**
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
+> — **Criss Jami**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our joy does not have to be based on our circumstances."  
-> — **Joyce Meyer**
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
+> — **Criss Jami**
 
 ---
 
