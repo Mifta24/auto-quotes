@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."  
-> — **Bob Marley**
+> "To know your Enemy, you must become your Enemy."  
+> — **Sun Tzu**
 
 ---
 
-_Last updated: 26 May 2025 ⏳_
+_Last updated: 27 May 2025 ⏳_

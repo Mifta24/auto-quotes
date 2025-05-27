@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Absorb what is useful, discard what is not, add what is uniquely your own."  
-> — **Bruce Lee**
+> "To know your Enemy, you must become your Enemy."  
+> — **Sun Tzu**
 
 ---
 
-_Last updated: 26 May 2025 ⏳_
+_Last updated: 27 May 2025 ⏳_
