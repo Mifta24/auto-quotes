@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't get in life what you want; you get in life what you are."  
-> — **Les Brown**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
