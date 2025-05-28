@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours. "  
-> — **Orison Swett Marden**
+> "You don't get in life what you want; you get in life what you are."  
+> — **Les Brown**
 
 ---
 

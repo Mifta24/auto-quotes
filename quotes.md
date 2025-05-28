@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope means hoping when everything seems hopeless."  
-> — **Gilbert Chesterton**
+> "You don't get in life what you want; you get in life what you are."  
+> — **Les Brown**
 
 ---
 
