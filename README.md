@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
-> — **Criss Jami**
+> "If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 27 May 2025 ⏳_
+_Last updated: 28 May 2025 ⏳_
