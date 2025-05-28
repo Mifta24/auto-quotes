@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who realize their folly are not true fools."  
-> — **Zhuangzi**
+> "Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours. "  
+> — **Orison Swett Marden**
 
 ---
 

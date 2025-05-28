@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only put off until tomorrow what you are willing to die having left undone."  
-> — **Pablo Picasso**
+> "Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours. "  
+> — **Orison Swett Marden**
 
 ---
 
