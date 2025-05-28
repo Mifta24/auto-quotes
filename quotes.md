@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't get in life what you want; you get in life what you are."  
-> — **Les Brown**
+> "To improve is to change, so to be perfect is to change often."  
+> — **Winston Churchill**
 
 ---
 
