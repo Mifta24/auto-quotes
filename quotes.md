@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who realize their folly are not true fools."  
-> — **Zhuangzi**
+> "Only put off until tomorrow what you are willing to die having left undone."  
+> — **Pablo Picasso**
 
 ---
 
