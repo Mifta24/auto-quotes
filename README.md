@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
+> — **Charles Spurgeon**
 
 ---
 
