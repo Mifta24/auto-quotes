@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "If you don't like something change it; if you can't change it, change the way you think about it."  
+> — **Mary Engelbreit**
 
 ---
 
-_Last updated: 28 May 2025 ⏳_
+_Last updated: 29 May 2025 ⏳_
