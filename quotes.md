@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
-> — **Charles Spurgeon**
+> "Failure is an option, fear is not."  
+> — **James Cameron**
 
 ---
 
