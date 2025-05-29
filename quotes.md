@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is an option, fear is not."  
-> — **James Cameron**
+> "In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better."  
+> — **Spencer Johnson**
 
 ---
 
