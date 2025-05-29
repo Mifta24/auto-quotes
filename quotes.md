@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may delay, but time will not."  
-> — **Benjamin Franklin**
+> "The most important things are the hardest to say."  
+> — **Stephen King**
 
 ---
 
