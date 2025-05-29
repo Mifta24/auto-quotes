@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better."  
-> — **Spencer Johnson**
+> "You may delay, but time will not."  
+> — **Benjamin Franklin**
 
 ---
 
