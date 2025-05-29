@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important things are the hardest to say."  
-> — **Stephen King**
+> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
+> — **Theodore Roosevelt**
 
 ---
 
