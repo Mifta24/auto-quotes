@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened."  
+> — **Kamal Ravikant**
 
 ---
 
