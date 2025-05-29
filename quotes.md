@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."  
-> — **Socrates**
+> "Misfortune shows those who are not really friends."  
+> — **Aristotle**
 
 ---
 
