@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The man who removes a mountain begins by carrying away small stones."  
-> — **William Faulkner**
+> "Character is doing what you don't want to do but know you should do."  
+> — **Joyce Meyer**
 
 ---
 

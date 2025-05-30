@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "Character is doing what you don't want to do but know you should do."  
+> — **Joyce Meyer**
 
 ---
 
