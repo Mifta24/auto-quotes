@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enlightenment is intimacy with all things."  
-> — **Dogen**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
