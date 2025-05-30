@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where focus goes, energy flows."  
-> — **Tony Robbins**
+> "It's easier to lose than to win.  "  
+> — **Wayne Gretzky**
 
 ---
 

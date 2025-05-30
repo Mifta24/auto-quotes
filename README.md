@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Character is doing what you don't want to do but know you should do."  
-> — **Joyce Meyer**
+> "It's easier to lose than to win.  "  
+> — **Wayne Gretzky**
 
 ---
 
