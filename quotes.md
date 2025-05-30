@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
-> — **Josh Waitzkin**
+> "Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future."  
+> — **Earl Nightingale**
 
 ---
 

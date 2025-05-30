@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to lose than to win.  "  
-> — **Wayne Gretzky**
+> "Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future."  
+> — **Earl Nightingale**
 
 ---
 
