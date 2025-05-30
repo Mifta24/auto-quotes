@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "The man who removes a mountain begins by carrying away small stones."  
+> — **William Faulkner**
 
 ---
 
