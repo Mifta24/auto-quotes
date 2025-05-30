@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to lose than to win.  "  
-> — **Wayne Gretzky**
+> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."  
+> — **Josh Waitzkin**
 
 ---
 
