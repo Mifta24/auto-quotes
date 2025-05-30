@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
-> — **Theodore Roosevelt**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 29 May 2025 ⏳_
+_Last updated: 30 May 2025 ⏳_

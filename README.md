@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most important things are the hardest to say."  
-> — **Stephen King**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 29 May 2025 ⏳_
+_Last updated: 30 May 2025 ⏳_
