@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big. Start small. But most of all, start."  
-> — **Simon Sinek**
+> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "  
+> — **George Washington**
 
 ---
 
