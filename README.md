@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "You have the ability, now apply yourself."  
+> — **Benjamin Mays**
 
 ---
 

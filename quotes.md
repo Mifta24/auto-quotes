@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people find fault like there is a reward for it.  "  
-> — **Zig Ziglar**
+> "You have the ability, now apply yourself."  
+> — **Benjamin Mays**
 
 ---
 
