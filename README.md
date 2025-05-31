@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big. Start small. But most of all, start."  
-> — **Simon Sinek**
+> "Man should fear never beginning to live."  
+> — **Marcus Aurelius**
 
 ---
 
