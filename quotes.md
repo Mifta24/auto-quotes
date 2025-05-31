@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is often achieved by those who don't know that failure is inevitable."  
-> — **Coco Chanel**
+> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."  
+> — **Napoleon Hill**
 
 ---
 
-_Last updated: 30 May 2025 ⏳_
+_Last updated: 31 May 2025 ⏳_
