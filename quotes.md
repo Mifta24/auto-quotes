@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the ability, now apply yourself."  
-> — **Benjamin Mays**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 
