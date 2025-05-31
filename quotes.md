@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "Dream big. Start small. But most of all, start."  
+> — **Simon Sinek**
 
 ---
 

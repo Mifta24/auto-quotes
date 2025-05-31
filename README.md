@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the ability, now apply yourself."  
-> — **Benjamin Mays**
+> "Dream big. Start small. But most of all, start."  
+> — **Simon Sinek**
 
 ---
 
