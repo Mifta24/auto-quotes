@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man should fear never beginning to live."  
-> — **Marcus Aurelius**
+> "In order to be walked over, you have to be lying down."  
+> — **Celestine Chua**
 
 ---
 
