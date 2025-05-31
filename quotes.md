@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "Some people find fault like there is a reward for it.  "  
+> — **Zig Ziglar**
 
 ---
 
