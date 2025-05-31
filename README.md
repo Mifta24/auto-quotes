@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."  
-> — **Napoleon Hill**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone sees what you appear to be, few experience what you really are."  
-> — **Niccolo Machiavelli**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 
