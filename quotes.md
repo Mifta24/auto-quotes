@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
-> — **Og Mandino**
+> "Respect is earned by effort not age, all things age without effort."  
+> — **C. Sean McGee**
 
 ---
 
