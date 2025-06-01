@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make peace with your inner turmoil."  
-> — **Unknown**
+> "You must learn to let go. Release the stress. You were never in control anyway."  
+> — **Steve Maraboli**
 
 ---
 

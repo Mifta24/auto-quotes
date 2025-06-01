@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "You must learn to let go. Release the stress. You were never in control anyway."  
+> — **Steve Maraboli**
 
 ---
 
