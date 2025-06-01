@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "In order to be walked over, you have to be lying down."  
-> — **Celestine Chua**
+> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."  
+> — **Henry Ward Beecher**
 
 ---
 
-_Last updated: 31 May 2025 ⏳_
+_Last updated: 01 June 2025 ⏳_

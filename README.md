@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Man should fear never beginning to live."  
-> — **Marcus Aurelius**
+> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."  
+> — **Henry Ward Beecher**
 
 ---
 
-_Last updated: 31 May 2025 ⏳_
+_Last updated: 01 June 2025 ⏳_
