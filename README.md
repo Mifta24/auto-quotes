@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "It takes half your life before you discover life is a do-it-yourself project."  
+> — **Napoleon Hill**
 
 ---
 

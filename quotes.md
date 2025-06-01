@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine."  
-> — **Zen Proverb**
+> "It takes half your life before you discover life is a do-it-yourself project."  
+> — **Napoleon Hill**
 
 ---
 
