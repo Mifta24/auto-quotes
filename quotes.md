@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must learn to let go. Release the stress. You were never in control anyway."  
-> — **Steve Maraboli**
+> "Mistakes are always forgivable, if one has the courage to admit them. "  
+> — **Bruce Lee**
 
 ---
 
