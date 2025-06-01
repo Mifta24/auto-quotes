@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistakes are always forgivable, if one has the courage to admit them. "  
-> — **Bruce Lee**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 

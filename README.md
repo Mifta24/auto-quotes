@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must learn to let go. Release the stress. You were never in control anyway."  
-> — **Steve Maraboli**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
