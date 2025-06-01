@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."  
-> — **Henry Ward Beecher**
+> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
+> — **Og Mandino**
 
 ---
 
