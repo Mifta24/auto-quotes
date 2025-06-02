@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence comes not from always being right but not fearing to be wrong."  
-> — **Unknown**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 

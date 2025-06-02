@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a gift and the trick is not to expect it, but to delight in it when it comes."  
-> — **Charles Dickens**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 
