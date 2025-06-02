@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can do two things at once, but you can't focus effectively on two things at once."  
-> — **Gary Keller**
+> "It is dangerous to be right in matters on which the established authorities are wrong."  
+> — **Voltaire**
 
 ---
 

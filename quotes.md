@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You get paid in direct proportion to the difficulty of problems you solve."  
-> — **Elon Musk**
+> "It is dangerous to be right in matters on which the established authorities are wrong."  
+> — **Voltaire**
 
 ---
 
