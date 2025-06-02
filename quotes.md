@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict the future is to create it."  
-> — **Abraham Lincoln**
+> "Realistic people do not accomplish extraordinary things."  
+> — **John Eliot**
 
 ---
 
