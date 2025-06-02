@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."  
-> — **Bhagavad Gita**
+> "If you are ever the smartest person in the room, you are in the wrong room."  
+> — **C. Sean McGee**
 
 ---
 
-_Last updated: 01 June 2025 ⏳_
+_Last updated: 02 June 2025 ⏳_

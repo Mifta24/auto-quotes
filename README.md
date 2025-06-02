@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It takes half your life before you discover life is a do-it-yourself project."  
-> — **Napoleon Hill**
+> "If you are ever the smartest person in the room, you are in the wrong room."  
+> — **C. Sean McGee**
 
 ---
 
-_Last updated: 01 June 2025 ⏳_
+_Last updated: 02 June 2025 ⏳_
