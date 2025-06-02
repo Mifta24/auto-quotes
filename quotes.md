@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realistic people do not accomplish extraordinary things."  
-> — **John Eliot**
+> "It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society."  
+> — **Jiddu Krishnamurti**
 
 ---
 
