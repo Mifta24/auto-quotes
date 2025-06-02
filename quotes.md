@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is dangerous to be right in matters on which the established authorities are wrong."  
-> — **Voltaire**
+> "Do not look for approval except for the consciousness of doing your best."  
+> — **Andrew Carnegie**
 
 ---
 
