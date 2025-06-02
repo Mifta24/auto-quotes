@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society."  
-> — **Jiddu Krishnamurti**
+> "Happiness is a gift and the trick is not to expect it, but to delight in it when it comes."  
+> — **Charles Dickens**
 
 ---
 

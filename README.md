@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realistic people do not accomplish extraordinary things."  
-> — **John Eliot**
+> "Happiness is a gift and the trick is not to expect it, but to delight in it when it comes."  
+> — **Charles Dickens**
 
 ---
 
