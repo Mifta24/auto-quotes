@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can do two things at once, but you can't focus effectively on two things at once."  
-> — **Gary Keller**
+> "You get paid in direct proportion to the difficulty of problems you solve."  
+> — **Elon Musk**
 
 ---
 
