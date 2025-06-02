@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are ever the smartest person in the room, you are in the wrong room."  
-> — **C. Sean McGee**
+> "The best way to predict the future is to create it."  
+> — **Abraham Lincoln**
 
 ---
 
