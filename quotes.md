@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
-> — **Roy T. Bennett**
+> "As you think, you travel, and as you love, you attract."  
+> — **James Allen**
 
 ---
 

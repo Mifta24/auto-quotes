@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whether you have a problem in your life or not depends upon your own attitude, your own understanding."  
-> — **Shunryu Suzuki**
+> "As you think, you travel, and as you love, you attract."  
+> — **James Allen**
 
 ---
 
