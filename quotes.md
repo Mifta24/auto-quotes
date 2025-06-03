@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whether you have a problem in your life or not depends upon your own attitude, your own understanding."  
-> — **Shunryu Suzuki**
+> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
+> — **Roy T. Bennett**
 
 ---
 
