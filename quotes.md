@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not look for approval except for the consciousness of doing your best."  
-> — **Andrew Carnegie**
+> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
+> — **Laurence J. Peter**
 
 ---
 
-_Last updated: 02 June 2025 ⏳_
+_Last updated: 03 June 2025 ⏳_
