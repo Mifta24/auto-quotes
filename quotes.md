@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is useless to meet revenge with revenge; it will heal nothing."  
-> — **J.R.R. Tolkien**
+> "Only those who will risk going too far can possibly find out how far one can go."  
+> — **T.S. Eliot**
 
 ---
 
