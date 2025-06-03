@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you live all the days of your life."  
-> — **Jonathan Swift**
+> "It is useless to meet revenge with revenge; it will heal nothing."  
+> — **J.R.R. Tolkien**
 
 ---
 

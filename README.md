@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
-> — **Laurence J. Peter**
+> "It is useless to meet revenge with revenge; it will heal nothing."  
+> — **J.R.R. Tolkien**
 
 ---
 
