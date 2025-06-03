@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is useless to meet revenge with revenge; it will heal nothing."  
-> — **J.R.R. Tolkien**
+> "Whether you have a problem in your life or not depends upon your own attitude, your own understanding."  
+> — **Shunryu Suzuki**
 
 ---
 

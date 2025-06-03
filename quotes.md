@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only those who will risk going too far can possibly find out how far one can go."  
-> — **T.S. Eliot**
+> "Whether you have a problem in your life or not depends upon your own attitude, your own understanding."  
+> — **Shunryu Suzuki**
 
 ---
 
