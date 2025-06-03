@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't cry because it's over. Smile because it happened."  
-> — **Dr. Seuss**
+> "If you don't find the time, if you don't do the work, you don't get the results."  
+> — **Arnold Schwarzenegger**
 
 ---
 
