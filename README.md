@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, you travel, and as you love, you attract."  
-> — **James Allen**
+> "Don't cry because it's over. Smile because it happened."  
+> — **Dr. Seuss**
 
 ---
 

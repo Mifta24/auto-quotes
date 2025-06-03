@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're not making mistakes, then you're not doing anything."  
-> — **John Wooden**
+> "Don't cry because it's over. Smile because it happened."  
+> — **Dr. Seuss**
 
 ---
 
