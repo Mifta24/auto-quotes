@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "The Art of Peace begins with you."  
+> — **Morihei Ueshiba**
 
 ---
 
