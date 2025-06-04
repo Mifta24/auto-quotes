@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "You can not live your life just based on what everyone else thinks."  
+> — **Joyce Meyer**
 
 ---
 

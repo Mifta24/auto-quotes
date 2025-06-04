@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "You can not live your life just based on what everyone else thinks."  
+> — **Joyce Meyer**
 
 ---
 
