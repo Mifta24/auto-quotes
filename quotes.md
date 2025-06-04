@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you don't find the time, if you don't do the work, you don't get the results."  
-> — **Arnold Schwarzenegger**
+> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 03 June 2025 ⏳_
+_Last updated: 04 June 2025 ⏳_
