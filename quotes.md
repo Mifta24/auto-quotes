@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can not live your life just based on what everyone else thinks."  
-> — **Joyce Meyer**
+> "The important thing is not what one is born with but what use one makes of that equipment."  
+> — **Alfred Adler**
 
 ---
 
