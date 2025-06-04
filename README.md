@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Alone we can do so little; together we can do so much."  
-> — **Helen Keller**
+> "We turn not older with years but newer every day."  
+> — **Emily Dickinson**
 
 ---
 
