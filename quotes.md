@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
-> — **Oprah Winfrey**
+> "Always render more and better service than is expected of you, no matter what your task may be."  
+> — **Og Mandino**
 
 ---
 
