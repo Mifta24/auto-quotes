@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always render more and better service than is expected of you, no matter what your task may be."  
-> — **Og Mandino**
+> "Alone we can do so little; together we can do so much."  
+> — **Helen Keller**
 
 ---
 
