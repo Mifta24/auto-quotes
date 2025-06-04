@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can not live your life just based on what everyone else thinks."  
-> — **Joyce Meyer**
+> "People inspire you, or they drain you. Pick them wisely."  
+> — **Les Brown**
 
 ---
 
