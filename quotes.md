@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "I know not all that may be coming, but be it what it will, I'll go to it laughing."  
+> — **Herman Melville**
 
 ---
 
