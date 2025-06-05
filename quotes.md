@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I know not all that may be coming, but be it what it will, I'll go to it laughing."  
-> — **Herman Melville**
+> "Nothing is permanent in this wicked world - not even our troubles."  
+> — **Charlie Chaplin**
 
 ---
 
-_Last updated: 04 June 2025 ⏳_
+_Last updated: 05 June 2025 ⏳_

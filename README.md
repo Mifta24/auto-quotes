@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "Nothing is permanent in this wicked world - not even our troubles."  
+> — **Charlie Chaplin**
 
 ---
 
-_Last updated: 04 June 2025 ⏳_
+_Last updated: 05 June 2025 ⏳_
