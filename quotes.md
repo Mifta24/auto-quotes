@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no uninteresting things, only uninterested people."  
-> — **Gilbert Chesterton**
+> "Conflict cannot survive without your participation. "  
+> — **Wayne Dyer**
 
 ---
 
