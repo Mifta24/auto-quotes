@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conflict cannot survive without your participation. "  
-> — **Wayne Dyer**
+> "There is no excuse for not trying."  
+> — **Barack Obama**
 
 ---
 

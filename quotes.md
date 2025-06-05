@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I admire those who do good and expect nothing in return."  
-> — **Roy T. Bennett**
+> "There is no excuse for not trying."  
+> — **Barack Obama**
 
 ---
 
