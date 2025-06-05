@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conflict cannot survive without your participation. "  
-> — **Wayne Dyer**
+> "I admire those who do good and expect nothing in return."  
+> — **Roy T. Bennett**
 
 ---
 
