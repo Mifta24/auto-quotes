@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be royal in your own fashion: act like a king to be treated like one."  
-> — **Robert Greene**
+> "Creativity is intelligence having fun."  
+> — **Albert Einstein**
 
 ---
 
