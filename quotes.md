@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is permanent in this wicked world - not even our troubles."  
-> — **Charlie Chaplin**
+> "Where we fall are the stepping-stones for our journey."  
+> — **Lolly Daskal**
 
 ---
 
