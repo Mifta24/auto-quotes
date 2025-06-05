@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let us always meet each other with smile, for the smile is the beginning of love."  
-> — **Mother Teresa**
+> "Be royal in your own fashion: act like a king to be treated like one."  
+> — **Robert Greene**
 
 ---
 

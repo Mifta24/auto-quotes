@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no excuse for not trying."  
-> — **Barack Obama**
+> "Be royal in your own fashion: act like a king to be treated like one."  
+> — **Robert Greene**
 
 ---
 
