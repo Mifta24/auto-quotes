@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no excuse for not trying."  
-> — **Barack Obama**
+> "Let us always meet each other with smile, for the smile is the beginning of love."  
+> — **Mother Teresa**
 
 ---
 
