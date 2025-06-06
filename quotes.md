@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Someday death will take us to another star."  
-> — **Vincent van Gogh**
+> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
+> — **Elvis Presley**
 
 ---
 
