@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be royal in your own fashion: act like a king to be treated like one."  
-> — **Robert Greene**
+> "Without the rain there would be no rainbow."  
+> — **Gilbert Chesterton**
 
 ---
 
-_Last updated: 05 June 2025 ⏳_
+_Last updated: 06 June 2025 ⏳_
