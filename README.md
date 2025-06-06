@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "Life is 10% what happens to you and 90% how you react to it. "  
+> — **Charles Swindoll**
 
 ---
 

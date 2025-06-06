@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
-> — **Christopher Reeve**
+> "Life is 10% what happens to you and 90% how you react to it. "  
+> — **Charles Swindoll**
 
 ---
 
