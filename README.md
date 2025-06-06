@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Without the rain there would be no rainbow."  
-> — **Gilbert Chesterton**
+> "Someday death will take us to another star."  
+> — **Vincent van Gogh**
 
 ---
 
