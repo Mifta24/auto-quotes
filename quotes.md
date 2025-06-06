@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Without the rain there would be no rainbow."  
-> — **Gilbert Chesterton**
+> "A heart is not judged by how much you love, but by how much you are loved by others."  
+> — **Judy Garland**
 
 ---
 
