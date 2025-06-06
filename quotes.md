@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> "Life is a question and how we live it is our answer."  
 > — **Gary Keller**
 
 ---

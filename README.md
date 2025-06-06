@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can think of nothing less pleasurable than a life devoted to pleasure."  
-> — **John D. Rockefeller**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
