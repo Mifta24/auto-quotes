@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Someday death will take us to another star."  
-> — **Vincent van Gogh**
+> "I can think of nothing less pleasurable than a life devoted to pleasure."  
+> — **John D. Rockefeller**
 
 ---
 
