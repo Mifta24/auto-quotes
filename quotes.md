@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
+> — **Christopher Reeve**
 
 ---
 
