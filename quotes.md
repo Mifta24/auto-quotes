@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can think of nothing less pleasurable than a life devoted to pleasure."  
-> — **John D. Rockefeller**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 
