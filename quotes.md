@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who wishes to fight must first count the cost."  
-> — **Sun Tzu**
+> "Curiosity is the most powerful thing you own."  
+> — **James Cameron**
 
 ---
 

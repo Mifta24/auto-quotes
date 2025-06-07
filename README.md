@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Working hard for something we don't care about is called stress: Working hard for something we love is called passion."  
-> — **Simon Sinek**
+> "Curiosity is the most powerful thing you own."  
+> — **James Cameron**
 
 ---
 
