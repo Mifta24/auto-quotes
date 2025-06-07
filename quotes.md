@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way we feel is the direct result of what we think."  
-> — **Peter A. Cohen**
+> "I have not failed. I've just found 10,000 ways that won't work."  
+> — **Thomas Edison**
 
 ---
 

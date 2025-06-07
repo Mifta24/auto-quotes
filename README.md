@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own."  
-> — **James Cameron**
+> "I have not failed. I've just found 10,000 ways that won't work."  
+> — **Thomas Edison**
 
 ---
 
