@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "I have not failed. I've just found 10,000 ways that won't work."  
+> "If we all did the things we are capable of doing, we would literally astound ourselves."  
 > — **Thomas Edison**
 
 ---
