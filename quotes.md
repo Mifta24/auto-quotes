@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have not failed. I've just found 10,000 ways that won't work."  
-> — **Thomas Edison**
+> "Anything worth doing is worth doing slowly."  
+> — **Mae West**
 
 ---
 
