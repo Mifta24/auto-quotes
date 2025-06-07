@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The more tranquil a man becomes, the greater is his success, his influence, his power for good. Calmness of mind is one of the beautiful jewels of wisdom."  
-> — **James Allen**
+> "Always seek out the seed of triumph in every adversity."  
+> — **Og Mandino**
 
 ---
 
-_Last updated: 06 June 2025 ⏳_
+_Last updated: 07 June 2025 ⏳_

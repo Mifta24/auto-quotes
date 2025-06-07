@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is 10% what happens to you and 90% how you react to it. "  
-> — **Charles Swindoll**
+> "Always seek out the seed of triumph in every adversity."  
+> — **Og Mandino**
 
 ---
 
-_Last updated: 06 June 2025 ⏳_
+_Last updated: 07 June 2025 ⏳_
