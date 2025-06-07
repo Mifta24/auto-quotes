@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always seek out the seed of triumph in every adversity."  
-> — **Og Mandino**
+> "The greatest test of courage on earth is to bear defeat without losing heart."  
+> — **Robert Greene**
 
 ---
 
