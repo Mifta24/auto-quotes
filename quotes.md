@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we all did the things we are capable of doing, we would literally astound ourselves."  
-> — **Thomas Edison**
+> "While we may not be able to control all that happens to us, we can control what happens inside us."  
+> — **Benjamin Franklin**
 
 ---
 
