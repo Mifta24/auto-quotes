@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always seek out the seed of triumph in every adversity."  
-> — **Og Mandino**
+> "Working hard for something we don't care about is called stress: Working hard for something we love is called passion."  
+> — **Simon Sinek**
 
 ---
 
