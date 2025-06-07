@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own."  
-> — **James Cameron**
+> "The way we feel is the direct result of what we think."  
+> — **Peter A. Cohen**
 
 ---
 
