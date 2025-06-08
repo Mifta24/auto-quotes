@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What do we live for if not to make life less difficult for each other?"  
-> — **T.S. Eliot**
+> "In the midst of movement and chaos, keep stillness inside of you."  
+> — **Deepak Chopra**
 
 ---
 

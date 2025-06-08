@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
-> — **Jack Kerouac**
+> "In the midst of movement and chaos, keep stillness inside of you."  
+> — **Deepak Chopra**
 
 ---
 
