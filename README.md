@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the midst of movement and chaos, keep stillness inside of you."  
-> — **Deepak Chopra**
+> "There's a very deep connection among human beings. All we have to do is open our minds to it."  
+> — **Yanni**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you will be halfway there."  
-> — **Lolly Daskal**
+> "There's a very deep connection among human beings. All we have to do is open our minds to it."  
+> — **Yanni**
 
 ---
 
