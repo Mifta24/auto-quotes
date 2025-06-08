@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What do we live for if not to make life less difficult for each other?"  
-> — **T.S. Eliot**
+> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
+> — **Jack Kerouac**
 
 ---
 
