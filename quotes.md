@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."  
-> — **Sathya Sai Baba**
+> "If you don't like something change it; if you can't change it, change the way you think about it."  
+> — **Mary Engelbreit**
 
 ---
 

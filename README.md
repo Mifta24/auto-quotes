@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's a very deep connection among human beings. All we have to do is open our minds to it."  
-> — **Yanni**
+> "If you don't like something change it; if you can't change it, change the way you think about it."  
+> — **Mary Engelbreit**
 
 ---
 
