@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's a very deep connection among human beings. All we have to do is open our minds to it."  
-> — **Yanni**
+> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."  
+> — **Sathya Sai Baba**
 
 ---
 
