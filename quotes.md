@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No experience is a cause of success or failure. We do not suffer from the shock of our experiences, so-called trauma - but we make out of them just what suits our purposes."  
-> — **Alfred Adler**
+> "What do we live for if not to make life less difficult for each other?"  
+> — **T.S. Eliot**
 
 ---
 

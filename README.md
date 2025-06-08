@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress is limited by your ability to change your mind."  
-> — **Jack Butcher**
+> "What do we live for if not to make life less difficult for each other?"  
+> — **T.S. Eliot**
 
 ---
 
