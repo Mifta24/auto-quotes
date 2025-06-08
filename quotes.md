@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "While we may not be able to control all that happens to us, we can control what happens inside us."  
-> — **Benjamin Franklin**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 07 June 2025 ⏳_
+_Last updated: 08 June 2025 ⏳_

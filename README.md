@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we all did the things we are capable of doing, we would literally astound ourselves."  
-> — **Thomas Edison**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 07 June 2025 ⏳_
+_Last updated: 08 June 2025 ⏳_
