@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't like something change it; if you can't change it, change the way you think about it."  
-> — **Mary Engelbreit**
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
+> — **Maxime Lagace**
 
 ---
 
