@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can have the mind or you can have the moment."  
-> — **Naval Ravikant**
+> "Believe in one thing too much and you have no room for new ideas.  "  
+> — **Ray Bradbury**
 
 ---
 
