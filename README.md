@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."  
-> — **Brian Tracy**
+> "Life goes by fast. Enjoy it. Calm down. It's all funny."  
+> — **Joan Rivers**
 
 ---
 

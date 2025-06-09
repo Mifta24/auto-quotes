@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever you do a thing, act as if all the world were watching."  
-> — **Thomas Jefferson**
+> "Life goes by fast. Enjoy it. Calm down. It's all funny."  
+> — **Joan Rivers**
 
 ---
 
