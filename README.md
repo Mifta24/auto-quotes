@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life goes by fast. Enjoy it. Calm down. It's all funny."  
-> — **Joan Rivers**
+> "There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing."  
+> — **Morihei Ueshiba**
 
 ---
 
