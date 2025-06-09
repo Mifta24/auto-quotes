@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing."  
-> — **Morihei Ueshiba**
+> "Even a hare will bite when it is cornered. "  
+> — **Chinese Proverb**
 
 ---
 
