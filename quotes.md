@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "However difficult life may seem, there is always something you can do and succeed at."  
-> — **Stephen Hawking**
+> "So we beat on, boats against the current, borne back ceaselessly into the past."  
+> — **F. Scott Fitzgerald**
 
 ---
 
