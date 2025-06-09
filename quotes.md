@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even a hare will bite when it is cornered. "  
-> — **Chinese Proverb**
+> "You can have the mind or you can have the moment."  
+> — **Naval Ravikant**
 
 ---
 
