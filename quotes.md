@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in one thing too much and you have no room for new ideas.  "  
-> — **Ray Bradbury**
+> "However difficult life may seem, there is always something you can do and succeed at."  
+> — **Stephen Hawking**
 
 ---
 

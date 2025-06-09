@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can have the mind or you can have the moment."  
-> — **Naval Ravikant**
+> "However difficult life may seem, there is always something you can do and succeed at."  
+> — **Stephen Hawking**
 
 ---
 
