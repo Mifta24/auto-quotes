@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life goes by fast. Enjoy it. Calm down. It's all funny."  
-> — **Joan Rivers**
+> "I will not walk backward in life."  
+> — **J.R.R. Tolkien**
 
 ---
 
