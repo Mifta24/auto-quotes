@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you don't like something change it; if you can't change it, change the way you think about it."  
-> — **Mary Engelbreit**
+> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 08 June 2025 ⏳_
+_Last updated: 09 June 2025 ⏳_

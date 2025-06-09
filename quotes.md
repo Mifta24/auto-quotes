@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 08 June 2025 ⏳_
+_Last updated: 09 June 2025 ⏳_
