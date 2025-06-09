@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday."  
-> — **Brian Tracy**
+> "Whenever you do a thing, act as if all the world were watching."  
+> — **Thomas Jefferson**
 
 ---
 
