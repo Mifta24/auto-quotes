@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
-> — **Eric Hoffer**
+> "Trust is the foundation of great leadership."  
+> — **Lolly Daskal**
 
 ---
 
