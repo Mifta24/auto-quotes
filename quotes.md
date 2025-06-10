@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
+> — **Sigmund Freud**
 
 ---
 
