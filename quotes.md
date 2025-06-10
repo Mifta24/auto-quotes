@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "So we beat on, boats against the current, borne back ceaselessly into the past."  
-> — **F. Scott Fitzgerald**
+> "He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all."  
+> — **Miguel de Cervantes**
 
 ---
 
-_Last updated: 09 June 2025 ⏳_
+_Last updated: 10 June 2025 ⏳_

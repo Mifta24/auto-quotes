@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "However difficult life may seem, there is always something you can do and succeed at."  
-> — **Stephen Hawking**
+> "He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all."  
+> — **Miguel de Cervantes**
 
 ---
 
-_Last updated: 09 June 2025 ⏳_
+_Last updated: 10 June 2025 ⏳_
