@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
-> — **Og Mandino**
+> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
+> — **Kabir**
 
 ---
 

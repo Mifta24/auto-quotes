@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
-> — **Thomas Jefferson**
+> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
+> — **Kabir**
 
 ---
 
