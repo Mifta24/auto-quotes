@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
+> — **Thomas Jefferson**
 
 ---
 

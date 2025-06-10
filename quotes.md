@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
-> — **Sigmund Freud**
+> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
+> — **Thomas Jefferson**
 
 ---
 
