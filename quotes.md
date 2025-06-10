@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
-> — **Thomas Jefferson**
+> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
+> — **Og Mandino**
 
 ---
 
