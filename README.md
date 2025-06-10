@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the foundation of great leadership."  
-> — **Lolly Daskal**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
-> — **Heraclitus**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 
