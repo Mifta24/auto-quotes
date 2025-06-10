@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
-> — **Kabir**
+> "The older you get the stronger the wind gets - and it's always in your face."  
+> — **Pablo Picasso**
 
 ---
 
