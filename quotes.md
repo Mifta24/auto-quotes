@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the foundation of great leadership."  
-> — **Lolly Daskal**
+> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
+> — **Heraclitus**
 
 ---
 
