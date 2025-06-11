@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who hesitates is a damned fool."  
-> — **Mae West**
+> "Tradition is the illusion of permanence. "  
+> — **Woody Allen**
 
 ---
 

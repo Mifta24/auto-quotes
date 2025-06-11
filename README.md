@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limitations except those we create for ourselves."  
-> — **Lolly Daskal**
+> "Tradition is the illusion of permanence. "  
+> — **Woody Allen**
 
 ---
 
