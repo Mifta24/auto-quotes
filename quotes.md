@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be polite to all, but intimate with few."  
-> — **Thomas Jefferson**
+> "It is the power of the mind to be unconquerable."  
+> — **Seneca**
 
 ---
 
