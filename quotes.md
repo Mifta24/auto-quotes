@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I can laugh, I can live."  
-> — **Christopher Reeve**
+> "You can't go forward and backwards at the same time."  
+> — **Steve Harvey**
 
 ---
 
