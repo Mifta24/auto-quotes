@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tradition is the illusion of permanence. "  
-> — **Woody Allen**
+> "The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach."  
+> — **Benjamin Mays**
 
 ---
 
