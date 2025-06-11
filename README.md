@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
-> — **Kabir**
+> "If I can laugh, I can live."  
+> — **Christopher Reeve**
 
 ---
 
-_Last updated: 10 June 2025 ⏳_
+_Last updated: 11 June 2025 ⏳_

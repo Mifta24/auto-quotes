@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The older you get the stronger the wind gets - and it's always in your face."  
-> — **Pablo Picasso**
+> "If I can laugh, I can live."  
+> — **Christopher Reeve**
 
 ---
 
-_Last updated: 10 June 2025 ⏳_
+_Last updated: 11 June 2025 ⏳_
