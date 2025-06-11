@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our life isn't how much we can take out, but how much we can put in.  "  
-> — **Estee Lauder**
+> "Be polite to all, but intimate with few."  
+> — **Thomas Jefferson**
 
 ---
 

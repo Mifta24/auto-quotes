@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth comes at the point of resistance."  
-> — **Josh Waitzkin**
+> "Be polite to all, but intimate with few."  
+> — **Thomas Jefferson**
 
 ---
 
