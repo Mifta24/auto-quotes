@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the power of the mind to be unconquerable."  
-> — **Seneca**
+> "There is no limitations except those we create for ourselves."  
+> — **Lolly Daskal**
 
 ---
 

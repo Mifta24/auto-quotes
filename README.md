@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be polite to all, but intimate with few."  
-> — **Thomas Jefferson**
+> "There is no limitations except those we create for ourselves."  
+> — **Lolly Daskal**
 
 ---
 
