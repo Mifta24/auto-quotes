@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth comes at the point of resistance."  
-> — **Josh Waitzkin**
+> "Our life isn't how much we can take out, but how much we can put in.  "  
+> — **Estee Lauder**
 
 ---
 
