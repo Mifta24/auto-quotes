@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limitations except those we create for ourselves."  
-> — **Lolly Daskal**
+> "He who hesitates is a damned fool."  
+> — **Mae West**
 
 ---
 
