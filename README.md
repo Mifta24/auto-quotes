@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I can laugh, I can live."  
-> — **Christopher Reeve**
+> "Growth comes at the point of resistance."  
+> — **Josh Waitzkin**
 
 ---
 

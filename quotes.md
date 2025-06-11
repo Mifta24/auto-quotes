@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't go forward and backwards at the same time."  
-> — **Steve Harvey**
+> "Growth comes at the point of resistance."  
+> — **Josh Waitzkin**
 
 ---
 
