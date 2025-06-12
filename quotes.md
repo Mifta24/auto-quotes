@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be irreplaceable one must always be different."  
-> — **Coco Chanel**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
