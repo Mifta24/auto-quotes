@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Over time, loneliness gets inside you and doesn't go away."  
-> — **Carlos Ruiz Zafon**
+> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
+> — **Naval Ravikant**
 
 ---
 
