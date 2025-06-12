@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be irreplaceable one must always be different."  
-> — **Coco Chanel**
+> "Your very silence shows you agree."  
+> — **Euripides**
 
 ---
 
