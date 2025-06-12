@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your very silence shows you agree."  
-> — **Euripides**
+> "Over time, loneliness gets inside you and doesn't go away."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
