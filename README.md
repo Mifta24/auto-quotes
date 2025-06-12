@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
-> — **Naval Ravikant**
+> "When asked, how do you write? I invariably answer, one word at a time."  
+> — **Stephen King**
 
 ---
 

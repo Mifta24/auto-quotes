@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "When asked, how do you write? I invariably answer, one word at a time."  
+> — **Stephen King**
 
 ---
 
