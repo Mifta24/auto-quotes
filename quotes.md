@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When asked, how do you write? I invariably answer, one word at a time."  
-> — **Stephen King**
+> "Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want."  
+> — **Tony Robbins**
 
 ---
 
