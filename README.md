@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world only exists in your eyes. You can make it as big or as small as you want."  
-> — **F. Scott Fitzgerald**
+> "Always remember that you are absolutely unique. Just like everyone else. "  
+> — **Margaret Mead**
 
 ---
 
