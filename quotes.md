@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
-> — **Jim Rohn**
+> "The friend is the man who knows all about you, and still likes you."  
+> — **Elbert Hubbard**
 
 ---
 
