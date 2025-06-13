@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest work that kindness does to others is that it makes them kind themselves."  
-> — **Amelia Earhart**
+> "The people who are crazy enough to think they can change the world are the ones who do."  
+> — **Steve Jobs**
 
 ---
 
