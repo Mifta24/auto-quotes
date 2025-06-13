@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friend is the man who knows all about you, and still likes you."  
-> — **Elbert Hubbard**
+> "In the midst of movement and chaos, keep stillness inside of you."  
+> — **Deepak Chopra**
 
 ---
 

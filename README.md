@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
-> — **Jim Rohn**
+> "In the midst of movement and chaos, keep stillness inside of you."  
+> — **Deepak Chopra**
 
 ---
 
