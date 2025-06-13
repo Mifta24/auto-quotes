@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else. "  
-> — **Margaret Mead**
+> "Your mind will make you rich or poor, depending on the use you put to it."  
+> — **Brian Tracy**
 
 ---
 
