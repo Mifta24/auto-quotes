@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else. "  
-> — **Margaret Mead**
+> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
+> — **Jim Rohn**
 
 ---
 

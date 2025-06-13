@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind will make you rich or poor, depending on the use you put to it."  
-> — **Brian Tracy**
+> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
+> — **Jim Rohn**
 
 ---
 
