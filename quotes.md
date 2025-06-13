@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "For the things we have to learn before we can do them, we learn by doing them."  
-> — **Aristotle**
+> "The greatest work that kindness does to others is that it makes them kind themselves."  
+> — **Amelia Earhart**
 
 ---
 
-_Last updated: 12 June 2025 ⏳_
+_Last updated: 13 June 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you love life, don't waste time, for time is what life is made up of. "  
-> — **Bruce Lee**
+> "The greatest work that kindness does to others is that it makes them kind themselves."  
+> — **Amelia Earhart**
 
 ---
 
-_Last updated: 12 June 2025 ⏳_
+_Last updated: 13 June 2025 ⏳_
