@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the midst of movement and chaos, keep stillness inside of you."  
-> — **Deepak Chopra**
+> "Man is made by his belief. As he believes, so he is."  
+> — **Bhagavad Gita**
 
 ---
 
