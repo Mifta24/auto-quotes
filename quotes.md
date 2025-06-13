@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The people who are crazy enough to think they can change the world are the ones who do."  
-> — **Steve Jobs**
+> "The world only exists in your eyes. You can make it as big or as small as you want."  
+> — **F. Scott Fitzgerald**
 
 ---
 

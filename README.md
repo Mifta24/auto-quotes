@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest work that kindness does to others is that it makes them kind themselves."  
-> — **Amelia Earhart**
+> "The world only exists in your eyes. You can make it as big or as small as you want."  
+> — **F. Scott Fitzgerald**
 
 ---
 
