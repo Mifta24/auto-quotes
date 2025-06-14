@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "How much pain they have cost us, the evils which have never happened."  
+> — **Thomas Jefferson**
 
 ---
 

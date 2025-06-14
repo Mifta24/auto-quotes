@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to light a candle than to curse the darkness. "  
-> — **Chinese Proverb**
+> "How much pain they have cost us, the evils which have never happened."  
+> — **Thomas Jefferson**
 
 ---
 
