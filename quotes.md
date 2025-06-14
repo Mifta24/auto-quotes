@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict the future is to create it."  
-> — **Abraham Lincoln**
+> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
+> — **Martin Luther**
 
 ---
 

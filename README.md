@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How much pain they have cost us, the evils which have never happened."  
-> — **Thomas Jefferson**
+> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
+> — **Martin Luther**
 
 ---
 
