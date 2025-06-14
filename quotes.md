@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "Smell the cheese often so you know when it is getting old."  
+> — **Spencer Johnson**
 
 ---
 
