@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Smell the cheese often so you know when it is getting old."  
-> — **Spencer Johnson**
+> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
+> — **Jeffrey Gitomer**
 
 ---
 
