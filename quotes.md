@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "If you try, you might get exactly what you want. If you don't, you don't."  
+> — **Unknown**
 
 ---
 

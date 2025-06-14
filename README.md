@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
-> — **Jeffrey Gitomer**
+> "If you try, you might get exactly what you want. If you don't, you don't."  
+> — **Unknown**
 
 ---
 
