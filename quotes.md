@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "Better to light a candle than to curse the darkness. "  
+> — **Chinese Proverb**
 
 ---
 
