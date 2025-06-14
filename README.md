@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "In the midst of movement and chaos, keep stillness inside of you."  
-> — **Deepak Chopra**
+> "Don't hate the player. Change the game."  
+> — **Steve Harvey**
 
 ---
 
-_Last updated: 13 June 2025 ⏳_
+_Last updated: 14 June 2025 ⏳_
