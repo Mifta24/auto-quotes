@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
-> — **Martin Luther**
+> "Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain."  
+> — **Kabir**
 
 ---
 
