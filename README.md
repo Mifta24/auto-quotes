@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
-> — **Sathya Sai Baba**
+> "Throw your heart over the bar and your body will follow."  
+> — **Norman Vincent Peale**
 
 ---
 

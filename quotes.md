@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Best be yourself, imperial, plain, and true."  
-> — **Robert Browning**
+> "Throw your heart over the bar and your body will follow."  
+> — **Norman Vincent Peale**
 
 ---
 
