@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain."  
-> — **Kabir**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 
-_Last updated: 14 June 2025 ⏳_
+_Last updated: 15 June 2025 ⏳_

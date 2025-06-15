@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
-> — **Martin Luther**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 
-_Last updated: 14 June 2025 ⏳_
+_Last updated: 15 June 2025 ⏳_
