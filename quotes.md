@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
-> — **Nicolas Chamfort**
+> "Have the fearless attitude of a hero and the loving heart of a child."  
+> — **Soyen Shaku**
 
 ---
 
