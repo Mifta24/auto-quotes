@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the bar and your body will follow."  
-> — **Norman Vincent Peale**
+> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
+> — **Margaret Mead**
 
 ---
 
