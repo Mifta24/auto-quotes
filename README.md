@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your face to the sun, as flowers know how to do."  
-> — **Ming-Dao Deng**
+> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
+> — **Sathya Sai Baba**
 
 ---
 
