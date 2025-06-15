@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. "  
-> — **Margaret Mead**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
