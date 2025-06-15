@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "There is always risk, so learn to manage risk instead of avoiding it."  
+> — **Robert Kiyosaki**
 
 ---
 
