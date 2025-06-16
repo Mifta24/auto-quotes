@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To love means loving the unlovable."  
-> — **Gilbert Chesterton**
+> "If we are not able to smile, then the world will not have peace."  
+> — **Thich Nhat Hanh**
 
 ---
 

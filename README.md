@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only place where success comes before work is in the dictionary."  
-> — **Vidal Sassoon**
+> "If we are not able to smile, then the world will not have peace."  
+> — **Thich Nhat Hanh**
 
 ---
 
