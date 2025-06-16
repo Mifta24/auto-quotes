@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is sometimes the best answer."  
-> — **Dalai Lama**
+> "The only place where success comes before work is in the dictionary."  
+> — **Vidal Sassoon**
 
 ---
 
