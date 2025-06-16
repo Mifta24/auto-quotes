@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is sometimes the best answer."  
-> — **Dalai Lama**
+> "Till it has loved, no man or woman can become itself."  
+> — **Emily Dickinson**
 
 ---
 
