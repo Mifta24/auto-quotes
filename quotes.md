@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't try to be young. Just open your mind. Stay interested in stuff."  
-> — **Betty White**
+> "The only place where success comes before work is in the dictionary."  
+> — **Vidal Sassoon**
 
 ---
 

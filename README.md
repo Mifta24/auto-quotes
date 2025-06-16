@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Till it has loved, no man or woman can become itself."  
-> — **Emily Dickinson**
+> "The only place where success comes before work is in the dictionary."  
+> — **Vidal Sassoon**
 
 ---
 
