@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we are not able to smile, then the world will not have peace."  
-> — **Thich Nhat Hanh**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 
