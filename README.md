@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man can get rich himself unless he enriches others."  
-> — **Earl Nightingale**
+> "Silence is sometimes the best answer."  
+> — **Dalai Lama**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "Silence is sometimes the best answer."  
+> — **Dalai Lama**
 
 ---
 
