@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "No man can get rich himself unless he enriches others."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 15 June 2025 ⏳_
+_Last updated: 16 June 2025 ⏳_

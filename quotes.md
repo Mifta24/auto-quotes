@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is always risk, so learn to manage risk instead of avoiding it."  
-> — **Robert Kiyosaki**
+> "No man can get rich himself unless he enriches others."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 15 June 2025 ⏳_
+_Last updated: 16 June 2025 ⏳_
