@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man can get rich himself unless he enriches others."  
-> — **Earl Nightingale**
+> "The Art of Peace begins with you."  
+> — **Morihei Ueshiba**
 
 ---
 
