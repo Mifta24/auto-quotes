@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Till it has loved, no man or woman can become itself."  
-> — **Emily Dickinson**
+> "Don't try to be young. Just open your mind. Stay interested in stuff."  
+> — **Betty White**
 
 ---
 
