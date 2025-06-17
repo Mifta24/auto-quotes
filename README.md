@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we are not able to smile, then the world will not have peace."  
-> — **Thich Nhat Hanh**
+> "Remain calm. Be kind."  
+> — **Colin Powell**
 
 ---
 
-_Last updated: 16 June 2025 ⏳_
+_Last updated: 17 June 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "Remain calm. Be kind."  
+> — **Colin Powell**
 
 ---
 
-_Last updated: 16 June 2025 ⏳_
+_Last updated: 17 June 2025 ⏳_
