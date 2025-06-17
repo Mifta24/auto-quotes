@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't want anything. Then you get everything."  
-> — **Seungsahn**
+> "Nothing that results in human progress is achieved with unanimous consent."  
+> — **Christopher Columbus**
 
 ---
 

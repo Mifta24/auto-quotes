@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The art of being happy lies in the power of extracting happiness from common things."  
-> — **Henry Ward Beecher**
+> "Nothing that results in human progress is achieved with unanimous consent."  
+> — **Christopher Columbus**
 
 ---
 
