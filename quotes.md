@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing that results in human progress is achieved with unanimous consent."  
-> — **Christopher Columbus**
+> "Saying nothing sometimes says the most."  
+> — **Emily Dickinson**
 
 ---
 
