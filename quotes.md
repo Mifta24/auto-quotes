@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always do what is right. It will gratify half of mankind and astound the other."  
-> — **Mark Twain**
+> "Don't spend major time on minor things."  
+> — **Jim Rohn**
 
 ---
 

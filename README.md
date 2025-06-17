@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who realize their folly are not true fools."  
-> — **Zhuangzi**
+> "Don't spend major time on minor things."  
+> — **Jim Rohn**
 
 ---
 
