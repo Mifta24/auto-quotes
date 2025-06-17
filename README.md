@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing that results in human progress is achieved with unanimous consent."  
-> — **Christopher Columbus**
+> "Those who realize their folly are not true fools."  
+> — **Zhuangzi**
 
 ---
 

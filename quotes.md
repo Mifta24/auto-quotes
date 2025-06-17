@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Saying nothing sometimes says the most."  
-> — **Emily Dickinson**
+> "Those who realize their folly are not true fools."  
+> — **Zhuangzi**
 
 ---
 
