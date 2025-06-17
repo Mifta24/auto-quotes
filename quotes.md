@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remain calm. Be kind."  
-> — **Colin Powell**
+> "Peace begins with a smile."  
+> — **Mother Teresa**
 
 ---
 
