@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who realize their folly are not true fools."  
-> — **Zhuangzi**
+> "Always do what is right. It will gratify half of mankind and astound the other."  
+> — **Mark Twain**
 
 ---
 
