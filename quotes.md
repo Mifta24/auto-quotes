@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't spend major time on minor things."  
-> — **Jim Rohn**
+> "The energy of the mind is the essence of life."  
+> — **Aristotle**
 
 ---
 
