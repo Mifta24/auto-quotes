@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace begins with a smile."  
-> — **Mother Teresa**
+> "The art of being happy lies in the power of extracting happiness from common things."  
+> — **Henry Ward Beecher**
 
 ---
 
