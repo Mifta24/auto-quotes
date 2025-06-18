@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words without actions are the assassins of idealism."  
-> — **Herbert Hoover**
+> "Be happy in the moment, that's enough. Each moment is all we need, not more."  
+> — **Mother Teresa**
 
 ---
 

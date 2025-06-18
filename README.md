@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I know of only one duty, and that is to love."  
-> — **George Bernard Shaw**
+> "Be happy in the moment, that's enough. Each moment is all we need, not more."  
+> — **Mother Teresa**
 
 ---
 
