@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness must be grown in one's own garden."  
-> — **Mary Engelbreit**
+> "Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold."  
+> — **Elon Musk**
 
 ---
 
