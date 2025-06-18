@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold."  
-> — **Elon Musk**
+> "Those who cannot change their minds cannot change anything."  
+> — **George Bernard Shaw**
 
 ---
 
