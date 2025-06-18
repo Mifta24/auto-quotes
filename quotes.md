@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know."  
-> — **Colin Powell**
+> "Happiness must be grown in one's own garden."  
+> — **Mary Engelbreit**
 
 ---
 
