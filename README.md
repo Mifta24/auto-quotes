@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be happy in the moment, that's enough. Each moment is all we need, not more."  
-> — **Mother Teresa**
+> "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know."  
+> — **Colin Powell**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forgive those who have hurt you."  
-> — **Les Brown**
+> "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know."  
+> — **Colin Powell**
 
 ---
 
