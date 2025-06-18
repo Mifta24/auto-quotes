@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who cannot change their minds cannot change anything."  
-> — **George Bernard Shaw**
+> "Follow your heart, listen to your inner voice, stop caring about what others think."  
+> — **Roy T. Bennett**
 
 ---
 

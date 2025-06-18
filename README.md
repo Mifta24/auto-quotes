@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold."  
-> — **Elon Musk**
+> "Follow your heart, listen to your inner voice, stop caring about what others think."  
+> — **Roy T. Bennett**
 
 ---
 
