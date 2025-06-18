@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "I know of only one duty, and that is to love."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 17 June 2025 ⏳_
+_Last updated: 18 June 2025 ⏳_
