@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I know of only one duty, and that is to love."  
-> — **George Bernard Shaw**
+> "Words without actions are the assassins of idealism."  
+> — **Herbert Hoover**
 
 ---
 
