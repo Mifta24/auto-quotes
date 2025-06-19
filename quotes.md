@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True wealth is of the heart, not of the purse."  
-> — **Og Mandino**
+> "Insanity is relative. It depends on who has who locked in what cage.  "  
+> — **Ray Bradbury**
 
 ---
 

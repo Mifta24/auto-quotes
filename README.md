@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Big people don't make people feel small."  
-> — **Robin Sharma**
+> "Insanity is relative. It depends on who has who locked in what cage.  "  
+> — **Ray Bradbury**
 
 ---
 
