@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a process. We are a process. The universe is a process."  
-> — **Anne Wilson Schaef**
+> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
+> — **Og Mandino**
 
 ---
 
