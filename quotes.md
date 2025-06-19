@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Where violence reigns, reason is weak."  
-> — **Nicolas Chamfort**
+> "We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right."  
+> — **Sonia Ricotti**
 
 ---
 
-_Last updated: 18 June 2025 ⏳_
+_Last updated: 19 June 2025 ⏳_
