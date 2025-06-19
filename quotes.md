@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Problems remain as problems because people are busy defending them rather than finding solutions."  
-> — **Celestine Chua**
+> "A successful man is one who can lay a firm foundation with the bricks others have thrown at him.  "  
+> — **David Brinkley**
 
 ---
 
