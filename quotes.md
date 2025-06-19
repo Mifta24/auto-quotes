@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity is relative. It depends on who has who locked in what cage.  "  
-> — **Ray Bradbury**
+> "It doesn't matter where you are coming from. All that matters is where you are going. "  
+> — **Brian Tracy**
 
 ---
 
