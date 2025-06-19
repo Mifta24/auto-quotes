@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity."  
-> — **Og Mandino**
+> "Problems remain as problems because people are busy defending them rather than finding solutions."  
+> — **Celestine Chua**
 
 ---
 

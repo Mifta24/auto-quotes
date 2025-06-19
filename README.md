@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a process. We are a process. The universe is a process."  
-> — **Anne Wilson Schaef**
+> "Problems remain as problems because people are busy defending them rather than finding solutions."  
+> — **Celestine Chua**
 
 ---
 
