@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Big people don't make people feel small."  
-> — **Robin Sharma**
+> "True wealth is of the heart, not of the purse."  
+> — **Og Mandino**
 
 ---
 
