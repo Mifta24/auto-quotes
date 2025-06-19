@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter where you are coming from. All that matters is where you are going. "  
-> — **Brian Tracy**
+> "Life is a process. We are a process. The universe is a process."  
+> — **Anne Wilson Schaef**
 
 ---
 

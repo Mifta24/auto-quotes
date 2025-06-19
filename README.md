@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity is relative. It depends on who has who locked in what cage.  "  
-> — **Ray Bradbury**
+> "Life is a process. We are a process. The universe is a process."  
+> — **Anne Wilson Schaef**
 
 ---
 
