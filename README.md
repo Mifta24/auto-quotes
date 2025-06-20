@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Problems remain as problems because people are busy defending them rather than finding solutions."  
-> — **Celestine Chua**
+> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
+> — **Paramahansa Yogananda**
 
 ---
 
-_Last updated: 19 June 2025 ⏳_
+_Last updated: 20 June 2025 ⏳_

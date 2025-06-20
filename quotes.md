@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A successful man is one who can lay a firm foundation with the bricks others have thrown at him.  "  
-> — **David Brinkley**
+> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
+> — **Paramahansa Yogananda**
 
 ---
 
-_Last updated: 19 June 2025 ⏳_
+_Last updated: 20 June 2025 ⏳_
