@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People are not disturbed by things, but by the views they take of them."  
-> — **Epictetus**
+> "Never be bored, and you will never be boring."  
+> — **Eleanor Roosevelt**
 
 ---
 
