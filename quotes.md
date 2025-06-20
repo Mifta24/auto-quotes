@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
-> — **Paramahansa Yogananda**
+> "Absurdity is the ecstasy of intellectualism."  
+> — **Criss Jami**
 
 ---
 
