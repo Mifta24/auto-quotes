@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who never made a mistake never tried anything new."  
-> — **Albert Einstein**
+> "If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else."  
+> — **Simon Sinek**
 
 ---
 
