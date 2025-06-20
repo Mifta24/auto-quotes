@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you make a choice, you change the future."  
-> — **Deepak Chopra**
+> "The person who never made a mistake never tried anything new."  
+> — **Albert Einstein**
 
 ---
 
