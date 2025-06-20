@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who never made a mistake never tried anything new."  
-> — **Albert Einstein**
+> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
+> — **Mark Twain**
 
 ---
 
