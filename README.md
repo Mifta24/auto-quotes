@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
-> — **Paramahansa Yogananda**
+> "When you make a choice, you change the future."  
+> — **Deepak Chopra**
 
 ---
 

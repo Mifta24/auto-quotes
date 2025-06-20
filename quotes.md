@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absurdity is the ecstasy of intellectualism."  
-> — **Criss Jami**
+> "When you make a choice, you change the future."  
+> — **Deepak Chopra**
 
 ---
 
