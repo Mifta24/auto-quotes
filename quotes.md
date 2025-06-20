@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never be bored, and you will never be boring."  
-> — **Eleanor Roosevelt**
+> "Better to die fighting for freedom than be a prisoner all the days of your life."  
+> — **Bob Marley**
 
 ---
 
