@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never be bored, and you will never be boring."  
-> — **Eleanor Roosevelt**
+> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
+> — **Denis Waitley**
 
 ---
 
-_Last updated: 20 June 2025 ⏳_
+_Last updated: 21 June 2025 ⏳_
