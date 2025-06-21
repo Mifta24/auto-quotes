@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you're curious, you find lots of interesting things to do."  
-> — **Walt Disney**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 

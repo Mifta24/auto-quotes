@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
-> — **Denis Waitley**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 
