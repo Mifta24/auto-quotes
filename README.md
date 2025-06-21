@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
+> "Tall oaks grow from little acorns."  
 > — **Andrew Carnegie**
 
 ---

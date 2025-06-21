@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we will be quiet and ready enough, we shall find compensation in every disappointment."  
-> — **Henry David Thoreau**
+> "Tall oaks grow from little acorns."  
+> — **Andrew Carnegie**
 
 ---
 
