@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspiration exists, but it has to find you working."  
-> — **Pablo Picasso**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 

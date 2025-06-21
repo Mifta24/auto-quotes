@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you've never eaten while crying you don t know what life tastes like."  
-> — **Johann Wolfgang von Goethe**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 
