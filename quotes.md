@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our joy does not have to be based on our circumstances."  
-> — **Joyce Meyer**
+> "Optimism is the one quality more associated with success and happiness than any other."  
+> — **Brian Tracy**
 
 ---
 
