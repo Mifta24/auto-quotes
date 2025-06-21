@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you've never eaten while crying you don t know what life tastes like."  
-> — **Johann Wolfgang von Goethe**
+> "Inspiration exists, but it has to find you working."  
+> — **Pablo Picasso**
 
 ---
 
