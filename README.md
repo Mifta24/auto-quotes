@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tall oaks grow from little acorns."  
-> — **Andrew Carnegie**
+> "If you've never eaten while crying you don t know what life tastes like."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

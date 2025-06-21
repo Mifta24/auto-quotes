@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day."  
-> — **Paulo Coelho**
+> "If you've never eaten while crying you don t know what life tastes like."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
