@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "If we will be quiet and ready enough, we shall find compensation in every disappointment."  
+> — **Henry David Thoreau**
 
 ---
 
