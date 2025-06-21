@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
-> — **Denis Waitley**
+> "When you're curious, you find lots of interesting things to do."  
+> — **Walt Disney**
 
 ---
 
