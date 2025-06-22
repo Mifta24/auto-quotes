@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything that is done in the world is done by hope."  
-> — **Martin Luther**
+> "The way to get started is to quit talking and begin doing."  
+> — **Walt Disney**
 
 ---
 
