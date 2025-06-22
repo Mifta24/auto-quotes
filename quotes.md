@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "I believe that one of life's greatest risks is never daring to risk."  
+> — **Oprah Winfrey**
 
 ---
 
