@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all."  
-> — **Miguel de Cervantes**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."  
-> — **Socrates**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 
