@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you're halfway there."  
-> — **Theodore Roosevelt**
+> "Don't be afraid to go slowly. Be afraid of stopping."  
+> — **Zen Proverb**
 
 ---
 
