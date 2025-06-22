@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "If you love life, don't waste time, for time is what life is made up of. "  
+> — **Bruce Lee**
 
 ---
 
