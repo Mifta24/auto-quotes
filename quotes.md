@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way to get started is to quit talking and begin doing."  
-> — **Walt Disney**
+> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."  
+> — **Socrates**
 
 ---
 
