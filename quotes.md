@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you love life, don't waste time, for time is what life is made up of. "  
-> — **Bruce Lee**
+> "Life is what happens to you while you're busy making other plans."  
+> — **John Lennon**
 
 ---
 
