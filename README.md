@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart that gives, gathers."  
-> — **Lao Tzu**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 

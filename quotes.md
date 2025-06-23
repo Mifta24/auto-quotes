@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "When you're the only sane person, you look like the only insane person."  
+> — **Criss Jami**
 
 ---
 
