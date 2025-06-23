@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no such thing as a great talent without great willpower."  
-> — **Honore de Balzac**
+> "You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible."  
+> — **Norman Vincent Peale**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about choice. You can choose to be a victim or anything else you like to be."  
-> — **Celestine Chua**
+> "You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible."  
+> — **Norman Vincent Peale**
 
 ---
 
