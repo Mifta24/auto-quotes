@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Start each day with a positive thought and a grateful heart."  
-> — **Roy T. Bennett**
+> "The heart that gives, gathers."  
+> — **Lao Tzu**
 
 ---
 
