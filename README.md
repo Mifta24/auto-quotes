@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you're the only sane person, you look like the only insane person."  
-> — **Criss Jami**
+> "Be like a postage stamp. Stick to it until you get there."  
+> — **Bob Proctor**
 
 ---
 
