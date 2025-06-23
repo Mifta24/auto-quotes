@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible."  
-> — **Norman Vincent Peale**
+> "Start each day with a positive thought and a grateful heart."  
+> — **Roy T. Bennett**
 
 ---
 
