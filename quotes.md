@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you're the only sane person, you look like the only insane person."  
-> — **Criss Jami**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
