@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I believe that one of life's greatest risks is never daring to risk."  
-> — **Oprah Winfrey**
+> "Life is about choice. You can choose to be a victim or anything else you like to be."  
+> — **Celestine Chua**
 
 ---
 
-_Last updated: 22 June 2025 ⏳_
+_Last updated: 23 June 2025 ⏳_

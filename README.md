@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "Life is about choice. You can choose to be a victim or anything else you like to be."  
+> — **Celestine Chua**
 
 ---
 
-_Last updated: 22 June 2025 ⏳_
+_Last updated: 23 June 2025 ⏳_
