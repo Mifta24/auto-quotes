@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about choice. You can choose to be a victim or anything else you like to be."  
-> — **Celestine Chua**
+> "There is no such thing as a great talent without great willpower."  
+> — **Honore de Balzac**
 
 ---
 
