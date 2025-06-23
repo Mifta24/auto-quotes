@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart that gives, gathers."  
-> — **Lao Tzu**
+> "There's no next time. It's now or never."  
+> — **Celestine Chua**
 
 ---
 
