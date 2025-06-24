@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to make time, even for something as universal as staring at the stars."  
-> — **W.P. Kinsella**
+> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."  
+> — **Henry Ward Beecher**
 
 ---
 
