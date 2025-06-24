@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only man who never makes mistakes is the man who never does anything."  
-> — **Theodore Roosevelt**
+> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
+> — **Nikola Tesla**
 
 ---
 

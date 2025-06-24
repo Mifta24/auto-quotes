@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No valid plans for the future can be made by those who have no capacity for living now."  
-> — **Alan Watts**
+> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
+> — **Nikola Tesla**
 
 ---
 
