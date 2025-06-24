@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be like a postage stamp. Stick to it until you get there."  
-> — **Bob Proctor**
+> "You have to make time, even for something as universal as staring at the stars."  
+> — **W.P. Kinsella**
 
 ---
 
-_Last updated: 23 June 2025 ⏳_
+_Last updated: 24 June 2025 ⏳_
