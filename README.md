@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
-> — **Nikola Tesla**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 

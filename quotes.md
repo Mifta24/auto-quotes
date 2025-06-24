@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Given the choice between the experience of pain and nothing, I would choose pain."  
-> — **William Faulkner**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 
