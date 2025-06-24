@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to make time, even for something as universal as staring at the stars."  
-> — **W.P. Kinsella**
+> "The only man who never makes mistakes is the man who never does anything."  
+> — **Theodore Roosevelt**
 
 ---
 
