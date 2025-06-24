@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were."  
+> — **Kahlil Gibran**
 
 ---
 
