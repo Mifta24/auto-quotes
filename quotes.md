@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only man who never makes mistakes is the man who never does anything."  
-> — **Theodore Roosevelt**
+> "No valid plans for the future can be made by those who have no capacity for living now."  
+> — **Alan Watts**
 
 ---
 
