@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
+> — **Dogen**
 
 ---
 
