@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "Admire as much as you can. Most people do not admire enough."  
+> — **Vincent van Gogh**
 
 ---
 
