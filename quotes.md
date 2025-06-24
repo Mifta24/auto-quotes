@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
-> — **Nikola Tesla**
+> "Given the choice between the experience of pain and nothing, I would choose pain."  
+> — **William Faulkner**
 
 ---
 
