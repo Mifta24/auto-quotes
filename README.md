@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust in dreams, for in them is the hidden gate to eternity.  "  
-> — **Kahlil Gibran**
+> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
+> — **Bob Proctor**
 
 ---
 

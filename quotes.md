@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
+> — **Bob Proctor**
 
 ---
 
