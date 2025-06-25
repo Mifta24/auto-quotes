@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For your life to be great, your faith must be bigger than your fear."  
-> — **Robin Sharma**
+> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
+> — **Roy T. Bennett**
 
 ---
 
