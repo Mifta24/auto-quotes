@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader is one who knows the way, goes the way, and shows the way."  
-> — **Unknown**
+> "Don't let the fear of losing be greater than the excitement of winning."  
+> — **Robert Kiyosaki**
 
 ---
 
