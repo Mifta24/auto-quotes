@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
-> — **Brian Tracy**
+> "Never put off to tomorrow what you can do to-day."  
+> — **Thomas Jefferson**
 
 ---
 
