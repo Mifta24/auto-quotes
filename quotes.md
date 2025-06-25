@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
-> — **Bob Proctor**
+> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
+> — **Brian Tracy**
 
 ---
 
