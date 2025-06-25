@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader is one who knows the way, goes the way, and shows the way."  
-> — **Unknown**
+> "Trust in dreams, for in them is the hidden gate to eternity.  "  
+> — **Kahlil Gibran**
 
 ---
 

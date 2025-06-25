@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the fear of losing be greater than the excitement of winning."  
-> — **Robert Kiyosaki**
+> "Trust in dreams, for in them is the hidden gate to eternity.  "  
+> — **Kahlil Gibran**
 
 ---
 
