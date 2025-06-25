@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "For your life to be great, your faith must be bigger than your fear."  
+> — **Robin Sharma**
 
 ---
 
-_Last updated: 24 June 2025 ⏳_
+_Last updated: 25 June 2025 ⏳_

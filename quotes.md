@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were."  
-> — **Kahlil Gibran**
+> "For your life to be great, your faith must be bigger than your fear."  
+> — **Robin Sharma**
 
 ---
 
-_Last updated: 24 June 2025 ⏳_
+_Last updated: 25 June 2025 ⏳_
