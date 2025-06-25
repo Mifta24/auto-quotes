@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
-> — **Roy T. Bennett**
+> "A leader is one who knows the way, goes the way, and shows the way."  
+> — **Unknown**
 
 ---
 
