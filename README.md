@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "Obstacles don't block the path, they are the path."  
+> — **Zen Proverb**
 
 ---
 

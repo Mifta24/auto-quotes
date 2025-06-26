@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do Something. If it works, do more of it. If it doesn't, do something else."  
-> — **Franklin D. Roosevelt**
+> "Obstacles don't block the path, they are the path."  
+> — **Zen Proverb**
 
 ---
 
