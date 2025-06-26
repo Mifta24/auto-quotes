@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "Do Something. If it works, do more of it. If it doesn't, do something else."  
+> — **Franklin D. Roosevelt**
 
 ---
 
