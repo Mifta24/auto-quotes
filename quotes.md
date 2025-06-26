@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To create more positive results in your life, replace 'if only' with 'next time'."  
-> — **Celestine Chua**
+> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
