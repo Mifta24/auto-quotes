@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is not a lover who does not love forever."  
-> — **Euripides**
+> "To create more positive results in your life, replace 'if only' with 'next time'."  
+> — **Celestine Chua**
 
 ---
 
