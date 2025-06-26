@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To create more positive results in your life, replace 'if only' with 'next time'."  
-> — **Celestine Chua**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 

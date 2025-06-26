@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
-> — **Carlos Ruiz Zafon**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
