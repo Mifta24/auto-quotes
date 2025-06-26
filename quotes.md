@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
-> — **Og Mandino**
+> "Most people dabble their way through life, never deciding to master anything in particular."  
+> — **Tony Robbins**
 
 ---
 
