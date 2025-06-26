@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles don't block the path, they are the path."  
-> — **Zen Proverb**
+> "The goal is not to be perfect by the end, the goal is to be better today."  
+> — **Simon Sinek**
 
 ---
 
