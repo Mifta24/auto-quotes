@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
-> — **Og Mandino**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 

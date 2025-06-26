@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people dabble their way through life, never deciding to master anything in particular."  
-> — **Tony Robbins**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 
