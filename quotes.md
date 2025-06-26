@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
-> — **Heraclitus**
+> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
+> — **Og Mandino**
 
 ---
 
-_Last updated: 25 June 2025 ⏳_
+_Last updated: 26 June 2025 ⏳_
