@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "Where the willingness is great, the difficulties cannot be great."  
+> — **Niccolo Machiavelli**
 
 ---
 
