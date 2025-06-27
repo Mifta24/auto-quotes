@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Go for it now. The future is promised to no one. "  
-> — **Wayne Dyer**
+> "Life is like a beautiful melody, only the lyrics are messed up."  
+> — **Hans Christian Andersen**
 
 ---
 
