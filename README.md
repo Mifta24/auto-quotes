@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Go for it now. The future is promised to no one. "  
-> — **Wayne Dyer**
+> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
+> — **Kahlil Gibran**
 
 ---
 

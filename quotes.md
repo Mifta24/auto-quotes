@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a beautiful melody, only the lyrics are messed up."  
-> — **Hans Christian Andersen**
+> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
+> — **Kahlil Gibran**
 
 ---
 
