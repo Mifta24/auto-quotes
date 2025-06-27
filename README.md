@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tis not too late to seek a newer world."  
-> — **Heraclitus**
+> "People spend too much time doing and not enough time thinking about what they should be doing."  
+> — **Naval Ravikant**
 
 ---
 
