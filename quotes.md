@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tis not too late to seek a newer world."  
-> — **Heraclitus**
+> "By changing nothing, nothing changes."  
+> — **Celestine Chua**
 
 ---
 
