@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where the willingness is great, the difficulties cannot be great."  
-> — **Niccolo Machiavelli**
+> "Tis not too late to seek a newer world."  
+> — **Heraclitus**
 
 ---
 

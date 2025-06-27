@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "Tis not too late to seek a newer world."  
+> — **Heraclitus**
 
 ---
 
