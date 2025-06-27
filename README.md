@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
-> — **Kahlil Gibran**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 

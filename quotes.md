@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Productize your perspective."  
-> — **Jack Butcher**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 
