@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The goal is not to be perfect by the end, the goal is to be better today."  
-> — **Simon Sinek**
+> "Go for it now. The future is promised to no one. "  
+> — **Wayne Dyer**
 
 ---
 
-_Last updated: 26 June 2025 ⏳_
+_Last updated: 27 June 2025 ⏳_

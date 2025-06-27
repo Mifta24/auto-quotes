@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Obstacles don't block the path, they are the path."  
-> — **Zen Proverb**
+> "Go for it now. The future is promised to no one. "  
+> — **Wayne Dyer**
 
 ---
 
-_Last updated: 26 June 2025 ⏳_
+_Last updated: 27 June 2025 ⏳_
