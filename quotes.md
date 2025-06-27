@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 
