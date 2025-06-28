@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with the rat race is that even if you win, you're still a rat."  
-> — **Lily Tomlin**
+> "Our happiness depends on the habit of mind we cultivate."  
+> — **Norman Vincent Peale**
 
 ---
 
