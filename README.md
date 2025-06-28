@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our happiness depends on the habit of mind we cultivate."  
-> — **Norman Vincent Peale**
+> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
+> — **James Matthew Barrie**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."  
-> — **Yoko Ono**
+> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
+> — **James Matthew Barrie**
 
 ---
 
