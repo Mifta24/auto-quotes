@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
-> — **James Matthew Barrie**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
