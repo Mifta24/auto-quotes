@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "Enthusiasm is a vital element toward the individual success of every man or woman."  
+> — **Conrad Hilton**
 
 ---
 
-_Last updated: 27 June 2025 ⏳_
+_Last updated: 28 June 2025 ⏳_

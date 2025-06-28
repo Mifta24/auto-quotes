@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you can handle rejection, you'll learn to get everything you want."  
-> — **Tony Robbins**
+> "Enthusiasm is a vital element toward the individual success of every man or woman."  
+> — **Conrad Hilton**
 
 ---
 
-_Last updated: 27 June 2025 ⏳_
+_Last updated: 28 June 2025 ⏳_
