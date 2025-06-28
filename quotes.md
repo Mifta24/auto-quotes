@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
-> — **Roy T. Bennett**
+> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
+> — **Osho**
 
 ---
 
