@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enthusiasm is a vital element toward the individual success of every man or woman."  
-> — **Conrad Hilton**
+> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
+> — **Roy T. Bennett**
 
 ---
 

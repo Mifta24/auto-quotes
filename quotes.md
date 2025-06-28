@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Within every desire is the mechanics of its fulfillment."  
-> — **Deepak Chopra**
+> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
+> — **Roy T. Bennett**
 
 ---
 
