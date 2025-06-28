@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
-> — **Osho**
+> "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul."  
+> — **Marcus Aurelius**
 
 ---
 
