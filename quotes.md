@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
+> — **Mark Twain**
 
 ---
 
