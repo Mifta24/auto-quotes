@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can live a whole life time never being awake."  
-> — **Dan Millman**
+> "A strong man overcomes an obstacle, a wise man goes the whole way."  
+> — **Zen Proverb**
 
 ---
 

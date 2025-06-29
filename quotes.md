@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest room in the world is the room for improvement."  
-> — **Unknown**
+> "A strong man overcomes an obstacle, a wise man goes the whole way."  
+> — **Zen Proverb**
 
 ---
 
