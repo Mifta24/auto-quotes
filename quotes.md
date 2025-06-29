@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can live a whole life time never being awake."  
-> — **Dan Millman**
+> "The biggest room in the world is the room for improvement."  
+> — **Unknown**
 
 ---
 
