@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "You can live a whole life time never being awake."  
+> — **Dan Millman**
 
 ---
 
