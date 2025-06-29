@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ripe fruit falls by itself - but it doesn't fall in your mouth. "  
-> — **Chinese Proverb**
+> "Whatever you think the world is withholding from you, you are withholding from the world."  
+> — **Eckhart Tolle**
 
 ---
 
