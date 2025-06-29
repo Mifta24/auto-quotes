@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "By the practice of meditation, you will find that you are carrying within your heart a portable paradise."  
+> — **Paramahansa Yogananda**
 
 ---
 
