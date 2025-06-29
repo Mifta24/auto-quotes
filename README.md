@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A strong man overcomes an obstacle, a wise man goes the whole way."  
-> — **Zen Proverb**
+> "Everything flows, nothing stands still."  
+> — **Heraclitus**
 
 ---
 

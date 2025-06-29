@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the average of the five people you spend most time with."  
-> — **Jim Rohn**
+> "Everything flows, nothing stands still."  
+> — **Heraclitus**
 
 ---
 
