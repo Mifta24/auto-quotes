@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If ever you feel like an animal among men, be a lion."  
-> — **Criss Jami**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 

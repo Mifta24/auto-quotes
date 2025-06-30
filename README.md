@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to give up the good to go for the great."  
-> — **John D. Rockefeller**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 
