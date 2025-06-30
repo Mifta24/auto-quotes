@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "The universe doesn't allow perfection."  
+> — **Stephen Hawking**
 
 ---
 

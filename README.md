@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "The universe doesn't allow perfection."  
+> — **Stephen Hawking**
 
 ---
 
