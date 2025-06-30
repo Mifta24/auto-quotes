@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't try to be young. Just open your mind. Stay interested in stuff."  
-> — **Betty White**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 

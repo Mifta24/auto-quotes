@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 
