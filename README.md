@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The universe doesn't allow perfection."  
-> — **Stephen Hawking**
+> "Be willing to be a beginner every single morning."  
+> — **Meister Eckhart**
 
 ---
 

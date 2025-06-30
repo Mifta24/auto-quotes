@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead an orchestra, you must turn your back on the crowd."  
-> — **Aristotle**
+> "Be willing to be a beginner every single morning."  
+> — **Meister Eckhart**
 
 ---
 
