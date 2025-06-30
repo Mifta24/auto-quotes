@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be willing to be a beginner every single morning."  
-> — **Meister Eckhart**
+> "Older men declare war. But it is youth that must fight and die."  
+> — **Herbert Hoover**
 
 ---
 
