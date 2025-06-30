@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "The way out is in."  
+> — **Thich Nhat Hanh**
 
 ---
 
