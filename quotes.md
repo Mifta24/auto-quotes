@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
-> — **Mark Twain**
+> "Don't be afraid to give up the good to go for the great."  
+> — **John D. Rockefeller**
 
 ---
 
-_Last updated: 29 June 2025 ⏳_
+_Last updated: 30 June 2025 ⏳_
