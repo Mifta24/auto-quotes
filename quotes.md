@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "Don't try to be young. Just open your mind. Stay interested in stuff."  
+> — **Betty White**
 
 ---
 
