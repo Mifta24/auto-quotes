@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The universe doesn't allow perfection."  
-> — **Stephen Hawking**
+> "To lead an orchestra, you must turn your back on the crowd."  
+> — **Aristotle**
 
 ---
 
