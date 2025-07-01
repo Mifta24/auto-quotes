@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "When you are content to be simply yourself and don't compare or compete, everybody will respect you. "  
+> — **Lao Tzu**
 
 ---
 
