@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The finish line is just the beginning of a whole new race."  
-> — **Unknown**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 
