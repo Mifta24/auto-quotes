@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you let your head get too big, it'll break your neck."  
-> — **Elvis Presley**
+> "Do not look for a sanctuary in anyone except your self."  
+> — **Buddha**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no accidents... there is only some purpose that we haven't yet understood."  
-> — **Deepak Chopra**
+> "Do not look for a sanctuary in anyone except your self."  
+> — **Buddha**
 
 ---
 
