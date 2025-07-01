@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Older men declare war. But it is youth that must fight and die."  
-> — **Herbert Hoover**
+> "If you let your head get too big, it'll break your neck."  
+> — **Elvis Presley**
 
 ---
 
-_Last updated: 30 June 2025 ⏳_
+_Last updated: 01 July 2025 ⏳_
