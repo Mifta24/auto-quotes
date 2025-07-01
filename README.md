@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look for a sanctuary in anyone except your self."  
-> — **Buddha**
+> "The finish line is just the beginning of a whole new race."  
+> — **Unknown**
 
 ---
 
