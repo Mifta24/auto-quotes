@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The finish line is just the beginning of a whole new race."  
-> — **Unknown**
+> "The purpose of life is the life of purpose."  
+> — **Robin Sharma**
 
 ---
 
