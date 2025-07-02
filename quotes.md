@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Looking after my health today gives me a better hope for tomorrow. "  
-> — **Anne Wilson Schaef**
+> "The two most powerful warriors are patience and time."  
+> — **Leo Tolstoy**
 
 ---
 
