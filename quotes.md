@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence breeds beauty.  "  
-> — **Estee Lauder**
+> "No matter what happens, always be yourself."  
+> — **Dale Carnegie**
 
 ---
 
