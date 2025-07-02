@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The two most powerful warriors are patience and time."  
-> — **Leo Tolstoy**
+> "For things to change, you have to change."  
+> — **Jim Rohn**
 
 ---
 
