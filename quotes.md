@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!"  
-> — **Robert Kiyosaki**
+> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
+> — **Ralph Waldo Emerson**
 
 ---
 
-_Last updated: 01 July 2025 ⏳_
+_Last updated: 02 July 2025 ⏳_
