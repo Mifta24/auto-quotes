@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens, always be yourself."  
-> — **Dale Carnegie**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 
