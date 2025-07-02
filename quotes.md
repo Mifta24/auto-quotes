@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "Whenever you do a thing, act as if all the world were watching."  
+> — **Thomas Jefferson**
 
 ---
 
