@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment."  
-> — **Buddha**
+> "Looking after my health today gives me a better hope for tomorrow. "  
+> — **Anne Wilson Schaef**
 
 ---
 
