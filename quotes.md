@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember to look up at the stars and not down at your feet."  
-> — **Stephen Hawking**
+> "Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment."  
+> — **Buddha**
 
 ---
 
