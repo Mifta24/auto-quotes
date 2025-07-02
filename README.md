@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The two most powerful warriors are patience and time."  
-> — **Leo Tolstoy**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For things to change, you have to change."  
-> — **Jim Rohn**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 
