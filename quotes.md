@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win."  
-> — **Zig Ziglar**
+> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."  
+> — **Dr. Seuss**
 
 ---
 

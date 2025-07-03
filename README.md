@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life isn't about finding yourself. Life is about creating yourself."  
-> — **George Bernard Shaw**
+> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."  
+> — **Dr. Seuss**
 
 ---
 
