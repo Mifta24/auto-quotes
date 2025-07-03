@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life isn't about finding yourself. Life is about creating yourself."  
-> — **George Bernard Shaw**
+> "You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win."  
+> — **Zig Ziglar**
 
 ---
 
