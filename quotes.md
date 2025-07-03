@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is passion that makes man live; wisdom makes one only last."  
-> — **Nicolas Chamfort**
+> "Let us always meet each other with smile, for the smile is the beginning of love."  
+> — **Mother Teresa**
 
 ---
 
