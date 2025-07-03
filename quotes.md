@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."  
-> — **Dr. Seuss**
+> "Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness."  
+> — **Steve Maraboli**
 
 ---
 
