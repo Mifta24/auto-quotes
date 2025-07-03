@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
-> — **Jon Kabat-Zinn**
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
+> — **Henry Ward Beecher**
 
 ---
 

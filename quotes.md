@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let not your mind run on what you lack as much as on what you have already."  
-> — **Marcus Aurelius**
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
+> — **Henry Ward Beecher**
 
 ---
 
