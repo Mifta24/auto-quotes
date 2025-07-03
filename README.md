@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is passion that makes man live; wisdom makes one only last."  
-> — **Nicolas Chamfort**
+> "Life isn't about finding yourself. Life is about creating yourself."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let us always meet each other with smile, for the smile is the beginning of love."  
-> — **Mother Teresa**
+> "Life isn't about finding yourself. Life is about creating yourself."  
+> — **George Bernard Shaw**
 
 ---
 
