@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
-> — **Jon Kabat-Zinn**
+> "Let not your mind run on what you lack as much as on what you have already."  
+> — **Marcus Aurelius**
 
 ---
 
