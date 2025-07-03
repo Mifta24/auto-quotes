@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best teacher is experience and not through someone's distorted point of view."  
-> — **Jack Kerouac**
+> "It is passion that makes man live; wisdom makes one only last."  
+> — **Nicolas Chamfort**
 
 ---
 

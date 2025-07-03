@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
-> — **Henry Ward Beecher**
+> "It is passion that makes man live; wisdom makes one only last."  
+> — **Nicolas Chamfort**
 
 ---
 
