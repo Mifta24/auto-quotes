@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "Be happy now, without reason - or you never will be at all."  
+> — **Dan Millman**
 
 ---
 
