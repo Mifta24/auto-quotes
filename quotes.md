@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
-> — **Brian Tracy**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 
