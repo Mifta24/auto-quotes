@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be happy now, without reason - or you never will be at all."  
-> — **Dan Millman**
+> "The season of failure is the best time for sowing the seeds of success. "  
+> — **Paramahansa Yogananda**
 
 ---
 
