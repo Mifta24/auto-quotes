@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The season of failure is the best time for sowing the seeds of success. "  
-> — **Paramahansa Yogananda**
+> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
+> — **Eleanor Roosevelt**
 
 ---
 
