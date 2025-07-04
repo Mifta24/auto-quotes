@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
-> — **Eleanor Roosevelt**
+> "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees."  
+> — **Amelia Earhart**
 
 ---
 

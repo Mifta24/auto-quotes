@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The season of failure is the best time for sowing the seeds of success. "  
-> — **Paramahansa Yogananda**
+> "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees."  
+> — **Amelia Earhart**
 
 ---
 
