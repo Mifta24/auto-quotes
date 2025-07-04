@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life does not get better by chance, it gets better by change."  
-> — **Jim Rohn**
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
+> — **Brian Tracy**
 
 ---
 
