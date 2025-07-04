@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees."  
-> — **Amelia Earhart**
+> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
+> — **Samuel Butler**
 
 ---
 
