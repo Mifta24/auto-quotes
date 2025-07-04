@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
