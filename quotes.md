@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."  
+> — **Theodore Roosevelt**
 
 ---
 
