@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
-> — **Samuel Butler**
+> "Judgments prevent us from seeing the good that lies beyond appearances.  "  
+> — **Wayne Dyer**
 
 ---
 
-_Last updated: 04 July 2025 ⏳_
+_Last updated: 05 July 2025 ⏳_
