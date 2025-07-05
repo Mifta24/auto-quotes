@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judgments prevent us from seeing the good that lies beyond appearances.  "  
-> — **Wayne Dyer**
+> "I would rather die on my feet than live on my knees."  
+> — **Euripides**
 
 ---
 
