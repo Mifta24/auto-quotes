@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Leadership starts at the top."  
-> — **Morgan Wootten**
+> "There are as many opinions as there are experts."  
+> — **Franklin D. Roosevelt**
 
 ---
 
