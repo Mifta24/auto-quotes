@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judgments prevent us from seeing the good that lies beyond appearances.  "  
-> — **Wayne Dyer**
+> "We would accomplish many more things if we did not think of them as impossible."  
+> — **Vince Lombardi**
 
 ---
 
