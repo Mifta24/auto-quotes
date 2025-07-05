@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take into account that great love and great achievements involve great risk."  
-> — **Dalai Lama**
+> "Leadership starts at the top."  
+> — **Morgan Wootten**
 
 ---
 
