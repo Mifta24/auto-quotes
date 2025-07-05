@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather die on my feet than live on my knees."  
-> — **Euripides**
+> "Take into account that great love and great achievements involve great risk."  
+> — **Dalai Lama**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is a natural reaction to moving closer to the truth."  
-> — **Pema Chodron**
+> "Take into account that great love and great achievements involve great risk."  
+> — **Dalai Lama**
 
 ---
 
