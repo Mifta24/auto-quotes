@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take into account that great love and great achievements involve great risk."  
-> — **Dalai Lama**
+> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
+> — **Unknown**
 
 ---
 
