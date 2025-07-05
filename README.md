@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Leadership starts at the top."  
-> — **Morgan Wootten**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 

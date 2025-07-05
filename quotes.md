@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are as many opinions as there are experts."  
-> — **Franklin D. Roosevelt**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 
