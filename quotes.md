@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather die on my feet than live on my knees."  
-> — **Euripides**
+> "Fear is a natural reaction to moving closer to the truth."  
+> — **Pema Chodron**
 
 ---
 
