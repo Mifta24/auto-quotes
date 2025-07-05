@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to dance than to march through life."  
-> — **Yoko Ono**
+> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
+> — **Deepak Chopra**
 
 ---
 
