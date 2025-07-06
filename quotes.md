@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let them drag you down by rumors. Just go with what you believe in."  
-> — **Michael Jordan**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
