@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what you make it. Always has been, always will be."  
-> — **Eleanor Roosevelt**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 

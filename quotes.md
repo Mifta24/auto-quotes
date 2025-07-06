@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Character is the result of two things: mental attitude and the way we spend our time."  
-> — **Elbert Hubbard**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
