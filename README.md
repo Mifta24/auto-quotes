@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is what you have before you understand the problem."  
-> — **Woody Allen**
+> "Life is what you make it. Always has been, always will be."  
+> — **Eleanor Roosevelt**
 
 ---
 

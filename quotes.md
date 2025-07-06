@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything that is done in the world is done by hope."  
-> — **Martin Luther**
+> "Life is what you make it. Always has been, always will be."  
+> — **Eleanor Roosevelt**
 
 ---
 
