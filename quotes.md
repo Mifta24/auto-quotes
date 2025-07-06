@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
-> — **James Matthew Barrie**
+> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
+> — **Steve Maraboli**
 
 ---
 
