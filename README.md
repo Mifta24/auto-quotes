@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
-> — **James Matthew Barrie**
+> "Confidence is what you have before you understand the problem."  
+> — **Woody Allen**
 
 ---
 
