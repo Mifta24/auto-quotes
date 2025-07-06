@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is what you have before you understand the problem."  
-> — **Woody Allen**
+> "Everything that is done in the world is done by hope."  
+> — **Martin Luther**
 
 ---
 
