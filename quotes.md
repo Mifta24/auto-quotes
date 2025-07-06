@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
+> — **James Matthew Barrie**
 
 ---
 
-_Last updated: 05 July 2025 ⏳_
+_Last updated: 06 July 2025 ⏳_
