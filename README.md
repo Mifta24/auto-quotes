@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "Don't let them drag you down by rumors. Just go with what you believe in."  
+> — **Michael Jordan**
 
 ---
 

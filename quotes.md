@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are possessed by nothing possess everything."  
-> — **Morihei Ueshiba**
+> "Don't let them drag you down by rumors. Just go with what you believe in."  
+> — **Michael Jordan**
 
 ---
 
