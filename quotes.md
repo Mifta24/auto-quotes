@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what you make it. Always has been, always will be."  
-> — **Eleanor Roosevelt**
+> "Character is the result of two things: mental attitude and the way we spend our time."  
+> — **Elbert Hubbard**
 
 ---
 
