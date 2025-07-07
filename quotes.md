@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
-> — **Norman Vincent Peale**
+> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
+> — **James Allen**
 
 ---
 
