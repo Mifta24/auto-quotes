@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everybody needs a passion. That's what keeps life interesting."  
-> — **Betty White**
+> "Trust is built and maintained by many small actions over time."  
+> — **Lolly Daskal**
 
 ---
 
