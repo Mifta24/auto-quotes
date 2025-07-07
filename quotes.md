@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is possible. The impossible just takes longer."  
-> — **Dan Brown**
+> "Truth is like most opinions - best unexpressed."  
+> — **Kenneth Branagh**
 
 ---
 
