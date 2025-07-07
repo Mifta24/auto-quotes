@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "If you see someone without a smile give them one of yours."  
+> — **Unknown**
 
 ---
 
