@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "Everybody needs a passion. That's what keeps life interesting."  
+> — **Betty White**
 
 ---
 

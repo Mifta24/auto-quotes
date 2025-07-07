@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see someone without a smile give them one of yours."  
-> — **Unknown**
+> "Everybody needs a passion. That's what keeps life interesting."  
+> — **Betty White**
 
 ---
 
