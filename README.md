@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't let them drag you down by rumors. Just go with what you believe in."  
-> — **Michael Jordan**
+> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
+> — **Vincent van Gogh**
 
 ---
 
-_Last updated: 06 July 2025 ⏳_
+_Last updated: 07 July 2025 ⏳_
