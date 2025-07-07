@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
-> — **Billie Jean King**
+> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
+> — **Norman Vincent Peale**
 
 ---
 
