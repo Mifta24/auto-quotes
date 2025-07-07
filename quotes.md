@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
-> — **Vincent van Gogh**
+> "Everything is possible. The impossible just takes longer."  
+> — **Dan Brown**
 
 ---
 
