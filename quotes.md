@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
-> — **James Allen**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 07 July 2025 ⏳_
+_Last updated: 08 July 2025 ⏳_

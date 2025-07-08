@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
-> — **Norman Vincent Peale**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 07 July 2025 ⏳_
+_Last updated: 08 July 2025 ⏳_
