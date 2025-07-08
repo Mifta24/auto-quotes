@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each time we don't say what we wanna say, we're dying."  
-> — **Yoko Ono**
+> "Words without actions are the assassins of idealism."  
+> — **Herbert Hoover**
 
 ---
 

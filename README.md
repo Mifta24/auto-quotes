@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "Words without actions are the assassins of idealism."  
+> — **Herbert Hoover**
 
 ---
 
