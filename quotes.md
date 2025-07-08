@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Superstars think like superstars long before the fans or the press anoint them."  
-> — **John Eliot**
+> "The opposite of courage in our society is not cowardice... it is conformity."  
+> — **Earl Nightingale**
 
 ---
 
