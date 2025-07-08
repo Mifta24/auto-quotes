@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "Each time we don't say what we wanna say, we're dying."  
+> — **Yoko Ono**
 
 ---
 
