@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now!"  
-> — **Tony Robbins**
+> "The single biggest problem in communication is the illusion that it has taken place."  
+> — **George Bernard Shaw**
 
 ---
 

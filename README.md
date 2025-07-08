@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words without actions are the assassins of idealism."  
-> — **Herbert Hoover**
+> "The single biggest problem in communication is the illusion that it has taken place."  
+> — **George Bernard Shaw**
 
 ---
 
