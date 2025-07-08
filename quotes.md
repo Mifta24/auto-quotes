@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opposite of courage in our society is not cowardice... it is conformity."  
-> — **Earl Nightingale**
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
+> — **Roy T. Bennett**
 
 ---
 
