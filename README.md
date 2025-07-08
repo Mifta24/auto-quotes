@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The single biggest problem in communication is the illusion that it has taken place."  
-> — **George Bernard Shaw**
+> "The secret of success lies not in doing your own work, but in recognizing the right man to do it."  
+> — **Andrew Carnegie**
 
 ---
 
