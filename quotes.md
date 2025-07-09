@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste not fresh tears over old griefs."  
-> — **Euripides**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 
