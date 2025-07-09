@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good stance and posture reflect a proper state of mind."  
-> — **Morihei Ueshiba**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
+> — **Stephen King**
 
 ---
 
