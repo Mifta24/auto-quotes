@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "Enjoy every minute of life. Never second-guess life."  
+> — **Michael Jordan**
 
 ---
 
