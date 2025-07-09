@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
-> — **Wayne Gretzky**
+> "The best time to plant a tree was 20 years ago. The second best time is now."  
+> — **Zen Proverb**
 
 ---
 
