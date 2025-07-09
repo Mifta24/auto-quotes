@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else. "  
-> — **Margaret Mead**
+> "Every one of us is the sum total of his own thoughts."  
+> — **Earl Nightingale**
 
 ---
 
