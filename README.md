@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 

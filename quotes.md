@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy every minute of life. Never second-guess life."  
-> — **Michael Jordan**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 
