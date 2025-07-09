@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man who cannot tolerate small misfortunes can never accomplish great things."  
-> — **Chinese Proverb**
+> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
+> — **Wayne Gretzky**
 
 ---
 
