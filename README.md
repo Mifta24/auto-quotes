@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else. "  
-> — **Margaret Mead**
+> "A man who cannot tolerate small misfortunes can never accomplish great things."  
+> — **Chinese Proverb**
 
 ---
 
