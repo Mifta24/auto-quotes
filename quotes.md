@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."  
-> — **Naval Ravikant**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 
