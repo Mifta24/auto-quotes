@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot teach a crab to walk straight."  
-> — **Aristophanes**
+> "Man should fear never beginning to live."  
+> — **Marcus Aurelius**
 
 ---
 
