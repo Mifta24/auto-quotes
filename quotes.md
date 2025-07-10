@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we have no peace, it is because we have forgotten that we belong to each other."  
-> — **Mother Teresa**
+> "You cannot teach a crab to walk straight."  
+> — **Aristophanes**
 
 ---
 
