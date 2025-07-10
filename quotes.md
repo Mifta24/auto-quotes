@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Intelligence is the ability to adapt to change."  
-> — **Stephen Hawking**
+> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."  
+> — **Naval Ravikant**
 
 ---
 

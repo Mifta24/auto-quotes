@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A comfort zone is a beautiful place, but nothing ever grows there."  
-> — **Unknown**
+> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."  
+> — **Naval Ravikant**
 
 ---
 
