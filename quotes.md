@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is often safer to be in chains than to be free. "  
-> — **Franz Kafka**
+> "A comfort zone is a beautiful place, but nothing ever grows there."  
+> — **Unknown**
 
 ---
 

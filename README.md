@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing brings down walls as surely as acceptance."  
-> — **Deepak Chopra**
+> "A comfort zone is a beautiful place, but nothing ever grows there."  
+> — **Unknown**
 
 ---
 
