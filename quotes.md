@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A comfort zone is a beautiful place, but nothing ever grows there."  
-> — **Unknown**
+> "Intelligence is the ability to adapt to change."  
+> — **Stephen Hawking**
 
 ---
 
