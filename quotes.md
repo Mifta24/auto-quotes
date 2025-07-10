@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man should fear never beginning to live."  
-> — **Marcus Aurelius**
+> "The person who says something is impossible should not interrupt the person who is doing it."  
+> — **Chinese Proverb**
 
 ---
 
