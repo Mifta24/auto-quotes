@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
-> — **Stephen King**
+> "Nothing brings down walls as surely as acceptance."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 09 July 2025 ⏳_
+_Last updated: 10 July 2025 ⏳_
