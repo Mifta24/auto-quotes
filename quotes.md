@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing brings down walls as surely as acceptance."  
-> — **Deepak Chopra**
+> "It is often safer to be in chains than to be free. "  
+> — **Franz Kafka**
 
 ---
 
