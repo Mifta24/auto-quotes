@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make peace with your inner turmoil."  
-> — **Unknown**
+> "For fast-acting relief try slowing down."  
+> — **Lily Tomlin**
 
 ---
 
