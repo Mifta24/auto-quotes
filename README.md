@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The person who says something is impossible should not interrupt the person who is doing it."  
-> — **Chinese Proverb**
+> "People who bite the hand that feeds them usually lick the boot that kicks them."  
+> — **Eric Hoffer**
 
 ---
 
-_Last updated: 10 July 2025 ⏳_
+_Last updated: 11 July 2025 ⏳_

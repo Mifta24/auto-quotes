@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way."  
-> — **Robert Kiyosaki**
+> "People who bite the hand that feeds them usually lick the boot that kicks them."  
+> — **Eric Hoffer**
 
 ---
 
-_Last updated: 10 July 2025 ⏳_
+_Last updated: 11 July 2025 ⏳_
