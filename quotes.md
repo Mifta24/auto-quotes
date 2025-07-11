@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is an essence of when you are fearless, you become more creative."  
-> — **Gurbaksh Chahal**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 
