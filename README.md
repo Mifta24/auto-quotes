@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who bite the hand that feeds them usually lick the boot that kicks them."  
-> — **Eric Hoffer**
+> "Make peace with your inner turmoil."  
+> — **Unknown**
 
 ---
 
