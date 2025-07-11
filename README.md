@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "There is an essence of when you are fearless, you become more creative."  
+> — **Gurbaksh Chahal**
 
 ---
 

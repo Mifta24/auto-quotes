@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty."  
-> — **Winston Churchill**
+> "There is an essence of when you are fearless, you become more creative."  
+> — **Gurbaksh Chahal**
 
 ---
 
