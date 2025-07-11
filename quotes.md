@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For fast-acting relief try slowing down."  
-> — **Lily Tomlin**
+> "Everyone you meet is fighting a battle you know nothing about. Be kind. Always."  
+> — **Robin Williams**
 
 ---
 

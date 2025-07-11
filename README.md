@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make peace with your inner turmoil."  
-> — **Unknown**
+> "Everyone you meet is fighting a battle you know nothing about. Be kind. Always."  
+> — **Robin Williams**
 
 ---
 
