@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone you meet is fighting a battle you know nothing about. Be kind. Always."  
-> — **Robin Williams**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 

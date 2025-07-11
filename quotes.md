@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't set your own goals by what other people make important."  
-> — **Lolly Daskal**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 
