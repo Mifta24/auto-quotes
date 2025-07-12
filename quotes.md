@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Genius is patience."  
-> — **Isaac Newton**
+> "Tension is who you think you should be. Relaxation is who you are."  
+> — **Chinese Proverb**
 
 ---
 

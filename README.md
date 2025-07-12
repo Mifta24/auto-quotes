@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Treat everyone with politeness and kindness, not because they are nice, but because you are."  
-> — **Roy T. Bennett**
+> "Tension is who you think you should be. Relaxation is who you are."  
+> — **Chinese Proverb**
 
 ---
 
