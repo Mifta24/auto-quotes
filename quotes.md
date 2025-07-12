@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
-> — **Josh Waitzkin**
+> "Inner peace is when you realize that, in the end, nothing matters."  
+> — **Maxime Lagace**
 
 ---
 
