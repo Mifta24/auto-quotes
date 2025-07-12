@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
+> — **Josh Waitzkin**
 
 ---
 

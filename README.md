@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing."  
-> — **Morihei Ueshiba**
+> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
+> — **Josh Waitzkin**
 
 ---
 
