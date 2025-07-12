@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The man who moved the mountain was the one who began carrying away the smallest stones."  
-> — **Zen Proverb**
+> "Treat everyone with politeness and kindness, not because they are nice, but because you are."  
+> — **Roy T. Bennett**
 
 ---
 
