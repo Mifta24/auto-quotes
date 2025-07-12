@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest mistake you can make in life is to be continually fearing you will make one."  
-> — **Elbert Hubbard**
+> "The man who moved the mountain was the one who began carrying away the smallest stones."  
+> — **Zen Proverb**
 
 ---
 
