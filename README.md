@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is an essence of when you are fearless, you become more creative."  
-> — **Gurbaksh Chahal**
+> "There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing."  
+> — **Morihei Ueshiba**
 
 ---
 
-_Last updated: 11 July 2025 ⏳_
+_Last updated: 12 July 2025 ⏳_

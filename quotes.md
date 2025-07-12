@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Stop wasting time defending your problems and work on addressing them instead."  
-> — **Celestine Chua**
+> "There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing."  
+> — **Morihei Ueshiba**
 
 ---
 
-_Last updated: 11 July 2025 ⏳_
+_Last updated: 12 July 2025 ⏳_
