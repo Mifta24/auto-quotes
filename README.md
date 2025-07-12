@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
-> — **Josh Waitzkin**
+> "The greatest mistake you can make in life is to be continually fearing you will make one."  
+> — **Elbert Hubbard**
 
 ---
 

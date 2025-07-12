@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inner peace is when you realize that, in the end, nothing matters."  
-> — **Maxime Lagace**
+> "The greatest mistake you can make in life is to be continually fearing you will make one."  
+> — **Elbert Hubbard**
 
 ---
 
