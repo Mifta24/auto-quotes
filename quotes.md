@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "Our truest life is when we are in dreams awake."  
+> — **Henry David Thoreau**
 
 ---
 
