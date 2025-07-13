@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Tension is who you think you should be. Relaxation is who you are."  
-> — **Chinese Proverb**
+> "The grass is greener where you water it."  
+> — **Neil Barringham**
 
 ---
 
-_Last updated: 12 July 2025 ⏳_
+_Last updated: 13 July 2025 ⏳_
