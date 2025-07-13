@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take care of your cents: dollars will take care of themselves."  
-> — **Thomas Jefferson**
+> "Time flies whether you are having fun or not."  
+> — **Mary Engelbreit**
 
 ---
 

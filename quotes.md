@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong does not cease to be wrong because the majority share in it."  
-> — **Leo Tolstoy**
+> "Time flies whether you are having fun or not."  
+> — **Mary Engelbreit**
 
 ---
 
