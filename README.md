@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The grass is greener where you water it."  
-> — **Neil Barringham**
+> "A good system shortens the road to the goal. "  
+> — **Orison Swett Marden**
 
 ---
 

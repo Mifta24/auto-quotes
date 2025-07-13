@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give so much away people insist on paying you."  
-> — **Jack Butcher**
+> "A good system shortens the road to the goal. "  
+> — **Orison Swett Marden**
 
 ---
 
