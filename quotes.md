@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Expect the best of yourself, and then do what is necessary to make it a reality."  
-> — **Ralph Marston**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 

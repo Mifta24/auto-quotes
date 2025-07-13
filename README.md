@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good system shortens the road to the goal. "  
-> — **Orison Swett Marden**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 
