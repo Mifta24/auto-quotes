@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "Take care of your cents: dollars will take care of themselves."  
+> — **Thomas Jefferson**
 
 ---
 

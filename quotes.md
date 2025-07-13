@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our truest life is when we are in dreams awake."  
-> — **Henry David Thoreau**
+> "Take care of your cents: dollars will take care of themselves."  
+> — **Thomas Jefferson**
 
 ---
 
