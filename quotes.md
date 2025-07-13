@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take care of your cents: dollars will take care of themselves."  
-> — **Thomas Jefferson**
+> "Wrong does not cease to be wrong because the majority share in it."  
+> — **Leo Tolstoy**
 
 ---
 
