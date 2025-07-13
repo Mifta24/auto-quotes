@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The grass is greener where you water it."  
-> — **Neil Barringham**
+> "Give so much away people insist on paying you."  
+> — **Jack Butcher**
 
 ---
 
