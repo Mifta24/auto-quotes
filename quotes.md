@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."  
-> — **Elvis Presley**
+> "Life is one long process of getting tired."  
+> — **Samuel Butler**
 
 ---
 

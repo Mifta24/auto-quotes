@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
-> — **Oprah Winfrey**
+> "Life is one long process of getting tired."  
+> — **Samuel Butler**
 
 ---
 
