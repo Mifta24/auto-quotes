@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
-> — **Oprah Winfrey**
+> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."  
+> — **Elvis Presley**
 
 ---
 
