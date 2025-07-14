@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is one long process of getting tired."  
-> — **Samuel Butler**
+> "Re-examine all that you have been told... dismiss that which insults your soul."  
+> — **Walt Whitman**
 
 ---
 
