@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not take life too seriously. You will never get out of it alive."  
-> — **Elbert Hubbard**
+> "Be where your enemy is not."  
+> — **Sun Tzu**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "Be where your enemy is not."  
+> — **Sun Tzu**
 
 ---
 
