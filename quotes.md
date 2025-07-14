@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "Do not take life too seriously. You will never get out of it alive."  
+> — **Elbert Hubbard**
 
 ---
 
