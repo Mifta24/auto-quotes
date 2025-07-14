@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be where your enemy is not."  
-> — **Sun Tzu**
+> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
+> — **Maxime Lagace**
 
 ---
 

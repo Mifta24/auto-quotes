@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
-> — **Mark Manson**
+> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
+> — **Maxime Lagace**
 
 ---
 
