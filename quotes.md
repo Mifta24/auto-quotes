@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
-> — **Maxime Lagace**
+> "He suffers more than necessary, who suffers before it is necessary.  "  
+> — **Seneca**
 
 ---
 
