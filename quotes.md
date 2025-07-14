@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Re-examine all that you have been told... dismiss that which insults your soul."  
-> — **Walt Whitman**
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
+> — **Maxime Lagace**
 
 ---
 

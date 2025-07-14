@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is one long process of getting tired."  
-> — **Samuel Butler**
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
+> — **Maxime Lagace**
 
 ---
 
