@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you."  
-> — **Sonia Ricotti**
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 13 July 2025 ⏳_
+_Last updated: 14 July 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Time flies whether you are having fun or not."  
-> — **Mary Engelbreit**
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 13 July 2025 ⏳_
+_Last updated: 14 July 2025 ⏳_
