@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "Nothing is easier than fault finding."  
+> — **Og Mandino**
 
 ---
 

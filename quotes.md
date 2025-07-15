@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A single dream is more powerful than a thousand realities."  
-> — **J.R.R. Tolkien**
+> "Nothing is easier than fault finding."  
+> — **Og Mandino**
 
 ---
 
