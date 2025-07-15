@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "He suffers more than necessary, who suffers before it is necessary.  "  
-> — **Seneca**
+> "Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 14 July 2025 ⏳_
+_Last updated: 15 July 2025 ⏳_

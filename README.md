@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
-> — **Maxime Lagace**
+> "Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 14 July 2025 ⏳_
+_Last updated: 15 July 2025 ⏳_
