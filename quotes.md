@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 

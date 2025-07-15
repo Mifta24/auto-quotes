@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window."  
-> — **Peter Drucker**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 
