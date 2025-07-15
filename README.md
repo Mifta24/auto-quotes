@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
-> — **Og Mandino**
+> "Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window."  
+> — **Peter Drucker**
 
 ---
 

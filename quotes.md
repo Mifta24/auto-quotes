@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
-> — **Og Mandino**
+> "Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window."  
+> — **Peter Drucker**
 
 ---
 
