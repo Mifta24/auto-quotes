@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "A single dream is more powerful than a thousand realities."  
+> — **J.R.R. Tolkien**
 
 ---
 
