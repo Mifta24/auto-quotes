@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
+> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
 > — **Og Mandino**
 
 ---
