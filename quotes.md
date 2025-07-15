@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words, once they are printed, have a life of their own."  
-> — **Carol Burnett**
+> "The first man gets the oyster, the second man gets the shell."  
+> — **Andrew Carnegie**
 
 ---
 
