@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very strange that the people you love are often the people you're most cruel to."  
-> — **Kenneth Branagh**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 
