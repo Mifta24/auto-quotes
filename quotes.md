@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real loss is only possible when you love something more than you love yourself."  
-> — **Robin Williams**
+> "Life is like a beautiful melody, only the lyrics are messed up."  
+> — **Hans Christian Andersen**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "Life is like a beautiful melody, only the lyrics are messed up."  
+> — **Hans Christian Andersen**
 
 ---
 
