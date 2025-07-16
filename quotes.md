@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Leadership starts at the top."  
-> — **Morgan Wootten**
+> "Experience is simply the name we give our mistakes. "  
+> — **Oscar Wilde**
 
 ---
 

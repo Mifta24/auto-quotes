@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people."  
-> — **Jack Butcher**
+> "Experience is simply the name we give our mistakes. "  
+> — **Oscar Wilde**
 
 ---
 
