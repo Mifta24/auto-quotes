@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 15 July 2025 ⏳_
+_Last updated: 16 July 2025 ⏳_
