@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a beautiful melody, only the lyrics are messed up."  
-> — **Hans Christian Andersen**
+> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
+> — **Og Mandino**
 
 ---
 
