@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "Real loss is only possible when you love something more than you love yourself."  
+> — **Robin Williams**
 
 ---
 
