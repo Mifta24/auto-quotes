@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
-> — **Ralph Waldo Emerson**
+> "The biggest adventure you can ever take is to live the life of your dreams. "  
+> — **Oprah Winfrey**
 
 ---
 
