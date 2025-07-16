@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only thing worse than being blind is having sight but no vision."  
-> — **Helen Keller**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 

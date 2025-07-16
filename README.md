@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Experience is simply the name we give our mistakes. "  
-> — **Oscar Wilde**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 
