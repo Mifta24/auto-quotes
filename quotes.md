@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
-> — **Og Mandino**
+> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
+> — **Ralph Waldo Emerson**
 
 ---
 

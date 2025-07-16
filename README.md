@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a beautiful melody, only the lyrics are messed up."  
-> — **Hans Christian Andersen**
+> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
+> — **Ralph Waldo Emerson**
 
 ---
 
