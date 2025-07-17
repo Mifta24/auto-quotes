@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have a dream, you've got to grab it and never let go."  
-> — **Carol Burnett**
+> "Courage is the price that life exacts for granting peace."  
+> — **Amelia Earhart**
 
 ---
 
