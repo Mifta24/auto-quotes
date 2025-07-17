@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "Do not allow your inner doubts to keep you from achieving what you can do."  
+> — **Lolly Daskal**
 
 ---
 
