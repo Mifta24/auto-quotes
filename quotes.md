@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is not something outside to be discovered, it is something inside to be realized."  
-> — **Osho**
+> "The person who is his own master cannot tolerate another boss. "  
+> — **Chinese Proverb**
 
 ---
 
