@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is the price that life exacts for granting peace."  
-> — **Amelia Earhart**
+> "Success is a consequence and must not be a goal."  
+> — **Gustave Flaubert**
 
 ---
 
