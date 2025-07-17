@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "Do not fear failure but rather fear not trying."  
+> — **Roy T. Bennett**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All wealth is the product of labor."  
-> — **John Locke**
+> "Do not fear failure but rather fear not trying."  
+> — **Roy T. Bennett**
 
 ---
 
