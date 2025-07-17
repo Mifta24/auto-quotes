@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "Loss is nothing else but change and change is nature's delight."  
+> — **Marcus Aurelius**
 
 ---
 

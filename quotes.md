@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not allow your inner doubts to keep you from achieving what you can do."  
-> — **Lolly Daskal**
+> "Loss is nothing else but change and change is nature's delight."  
+> — **Marcus Aurelius**
 
 ---
 
