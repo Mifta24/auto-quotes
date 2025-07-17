@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is not something outside to be discovered, it is something inside to be realized."  
-> — **Osho**
+> "When you have a dream, you've got to grab it and never let go."  
+> — **Carol Burnett**
 
 ---
 

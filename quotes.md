@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who is his own master cannot tolerate another boss. "  
-> — **Chinese Proverb**
+> "When you have a dream, you've got to grab it and never let go."  
+> — **Carol Burnett**
 
 ---
 
