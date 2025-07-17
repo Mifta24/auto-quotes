@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The biggest adventure you can ever take is to live the life of your dreams. "  
-> — **Oprah Winfrey**
+> "Truth is not something outside to be discovered, it is something inside to be realized."  
+> — **Osho**
 
 ---
 
-_Last updated: 16 July 2025 ⏳_
+_Last updated: 17 July 2025 ⏳_

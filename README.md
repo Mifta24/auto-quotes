@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not go where the path may lead, go instead where there is no path and leave a trail."  
-> — **Ralph Waldo Emerson**
+> "Truth is not something outside to be discovered, it is something inside to be realized."  
+> — **Osho**
 
 ---
 
-_Last updated: 16 July 2025 ⏳_
+_Last updated: 17 July 2025 ⏳_
