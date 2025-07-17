@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "All wealth is the product of labor."  
+> — **John Locke**
 
 ---
 
