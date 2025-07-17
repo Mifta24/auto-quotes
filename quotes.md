@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loss is nothing else but change and change is nature's delight."  
-> — **Marcus Aurelius**
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
+> — **Aristotle**
 
 ---
 
