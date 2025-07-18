@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are tough on yourself, life is going to be infinitely easier on you.  "  
-> — **Zig Ziglar**
+> "Nothing will work unless you do."  
+> — **Maya Angelou**
 
 ---
 
