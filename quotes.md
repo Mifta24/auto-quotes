@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Deliberately seek the company of people who influence you to think and act on building the life you desire."  
-> — **Napoleon Hill**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 

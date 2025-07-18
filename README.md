@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more I want to get something done, the less I call it work."  
-> — **Richard Bach**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 
