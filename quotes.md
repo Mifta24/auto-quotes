@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
-> — **Aristotle**
+> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 17 July 2025 ⏳_
+_Last updated: 18 July 2025 ⏳_
