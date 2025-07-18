@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
-> — **Alfred Adler**
+> "The nearer a man comes to a calm mind, the closer he is to strength."  
+> — **Marcus Aurelius**
 
 ---
 
