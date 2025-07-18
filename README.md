@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
-> — **Alfred Adler**
+> "The more I want to get something done, the less I call it work."  
+> — **Richard Bach**
 
 ---
 

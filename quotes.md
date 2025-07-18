@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The nearer a man comes to a calm mind, the closer he is to strength."  
-> — **Marcus Aurelius**
+> "The more I want to get something done, the less I call it work."  
+> — **Richard Bach**
 
 ---
 
