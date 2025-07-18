@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more I want to get something done, the less I call it work."  
-> — **Richard Bach**
+> "Deliberately seek the company of people who influence you to think and act on building the life you desire."  
+> — **Napoleon Hill**
 
 ---
 
