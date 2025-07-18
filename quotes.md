@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing will work unless you do."  
-> — **Maya Angelou**
+> "Decide what your truth is. Then live it."  
+> — **Kamal Ravikant**
 
 ---
 
