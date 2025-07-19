@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot change anything unless we accept it."  
-> — **Carl Jung**
+> "Truth is not something outside to be discovered, it is something inside to be realized."  
+> — **Osho**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
-> — **Rumi**
+> "Truth is not something outside to be discovered, it is something inside to be realized."  
+> — **Osho**
 
 ---
 
