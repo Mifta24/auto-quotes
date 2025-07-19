@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."  
-> — **John Carmack**
+> "The only way to make sense out of change is to plunge into it, move with it, and join the dance."  
+> — **Alan Watts**
 
 ---
 
