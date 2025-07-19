@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
+> — **Steve Maraboli**
 
 ---
 
-_Last updated: 18 July 2025 ⏳_
+_Last updated: 19 July 2025 ⏳_
