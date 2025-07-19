@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is not something outside to be discovered, it is something inside to be realized."  
-> — **Osho**
+> "The greatest of empires, is the empire over one's self."  
+> — **Publilius Syrus**
 
 ---
 
