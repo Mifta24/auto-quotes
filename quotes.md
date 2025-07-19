@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
-> — **Steve Maraboli**
+> "To be calm is the highest achievement of the self."  
+> — **Zen Proverb**
 
 ---
 
