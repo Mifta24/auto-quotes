@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be calm is the highest achievement of the self."  
-> — **Zen Proverb**
+> "Silence is a source of great strength."  
+> — **Lao Tzu**
 
 ---
 
