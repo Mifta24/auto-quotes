@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is not something outside to be discovered, it is something inside to be realized."  
-> — **Osho**
+> "Focus is a matter of deciding what things you're not going to do."  
+> — **John Carmack**
 
 ---
 

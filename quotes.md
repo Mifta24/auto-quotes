@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest of empires, is the empire over one's self."  
-> — **Publilius Syrus**
+> "Focus is a matter of deciding what things you're not going to do."  
+> — **John Carmack**
 
 ---
 
