@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make yourself so useful to other people, that they think you are irreplaceable."  
-> — **Og Mandino**
+> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
+> — **Rumi**
 
 ---
 
