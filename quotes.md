@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is a source of great strength."  
-> — **Lao Tzu**
+> "Make yourself so useful to other people, that they think you are irreplaceable."  
+> — **Og Mandino**
 
 ---
 
