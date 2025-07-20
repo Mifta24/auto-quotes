@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "True life is lived when tiny changes occur."  
+> — **Leo Tolstoy**
 
 ---
 
