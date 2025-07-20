@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about creating value."  
-> — **Candice Carpenter**
+> "The more something threatens your identity, the more you will avoid it."  
+> — **Mark Manson**
 
 ---
 
