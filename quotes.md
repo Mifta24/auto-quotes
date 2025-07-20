@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have no methods; all I do is accept people as they are."  
-> — **Joan Rivers**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 
