@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man is happy who does not think himself so."  
-> — **Norman Vincent Peale**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 

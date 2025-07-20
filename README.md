@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace of mind is that mental condition in which you have accepted the worst."  
-> — **Lin Yutang**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 
