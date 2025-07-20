@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must be free not because we claim freedom, but because we practice it."  
-> — **William Faulkner**
+> "I have no methods; all I do is accept people as they are."  
+> — **Joan Rivers**
 
 ---
 
