@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."  
-> — **John Carmack**
+> "Success is about creating value."  
+> — **Candice Carpenter**
 
 ---
 
-_Last updated: 19 July 2025 ⏳_
+_Last updated: 20 July 2025 ⏳_

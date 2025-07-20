@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only way to make sense out of change is to plunge into it, move with it, and join the dance."  
-> — **Alan Watts**
+> "Success is about creating value."  
+> — **Candice Carpenter**
 
 ---
 
-_Last updated: 19 July 2025 ⏳_
+_Last updated: 20 July 2025 ⏳_
