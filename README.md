@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "We must be free not because we claim freedom, but because we practice it."  
+> — **William Faulkner**
 
 ---
 

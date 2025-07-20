@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True life is lived when tiny changes occur."  
-> — **Leo Tolstoy**
+> "We must be free not because we claim freedom, but because we practice it."  
+> — **William Faulkner**
 
 ---
 
