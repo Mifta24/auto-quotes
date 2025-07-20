@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief enemy of creativity is good sense."  
-> — **Pablo Picasso**
+> "I never said it would be easy, I only said it would be worth it."  
+> — **Mae West**
 
 ---
 
