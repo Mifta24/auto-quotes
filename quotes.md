@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something threatens your identity, the more you will avoid it."  
-> — **Mark Manson**
+> "Peace of mind is that mental condition in which you have accepted the worst."  
+> — **Lin Yutang**
 
 ---
 

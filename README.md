@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about creating value."  
-> — **Candice Carpenter**
+> "Peace of mind is that mental condition in which you have accepted the worst."  
+> — **Lin Yutang**
 
 ---
 
