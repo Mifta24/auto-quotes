@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace of mind is that mental condition in which you have accepted the worst."  
-> — **Lin Yutang**
+> "No man is happy who does not think himself so."  
+> — **Norman Vincent Peale**
 
 ---
 
