@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't set your own goals by what other people make important."  
-> — **Lolly Daskal**
+> "Your problem isn't the problem. Your reaction is the problem."  
+> — **Unknown**
 
 ---
 
