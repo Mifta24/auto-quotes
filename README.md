@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Weeds are flowers too, once you get to know them."  
-> — **A.A. Milne**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 

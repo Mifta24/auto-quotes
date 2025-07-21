@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People rarely succeed unless they have fun in what they are doing."  
-> — **Dale Carnegie**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 
