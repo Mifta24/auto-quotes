@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't set your own goals by what other people make important."  
-> — **Lolly Daskal**
+> "The truth is not for all men, but for those who seek it."  
+> — **Ayn Rand**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your problem isn't the problem. Your reaction is the problem."  
-> — **Unknown**
+> "The truth is not for all men, but for those who seek it."  
+> — **Ayn Rand**
 
 ---
 
