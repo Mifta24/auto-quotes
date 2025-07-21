@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I never said it would be easy, I only said it would be worth it."  
-> — **Mae West**
+> "The real meditation is how you live your life."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 20 July 2025 ⏳_
+_Last updated: 21 July 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The chief enemy of creativity is good sense."  
-> — **Pablo Picasso**
+> "The real meditation is how you live your life."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 20 July 2025 ⏳_
+_Last updated: 21 July 2025 ⏳_
