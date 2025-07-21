@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can handle rejection, you'll learn to get everything you want."  
-> — **Tony Robbins**
+> "Happiness is not something ready made. It comes from your own actions."  
+> — **Dalai Lama**
 
 ---
 
