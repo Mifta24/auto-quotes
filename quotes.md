@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real meditation is how you live your life."  
-> — **Jon Kabat-Zinn**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
