@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is not for all men, but for those who seek it."  
-> — **Ayn Rand**
+> "Weeds are flowers too, once you get to know them."  
+> — **A.A. Milne**
 
 ---
 

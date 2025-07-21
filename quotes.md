@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throughout this life, you can never be certain of living long enough to take another breath."  
-> — **Zen Proverb**
+> "Weeds are flowers too, once you get to know them."  
+> — **A.A. Milne**
 
 ---
 
