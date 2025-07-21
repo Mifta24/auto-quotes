@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real meditation is how you live your life."  
-> — **Jon Kabat-Zinn**
+> "Don't set your own goals by what other people make important."  
+> — **Lolly Daskal**
 
 ---
 

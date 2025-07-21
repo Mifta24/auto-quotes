@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "Don't set your own goals by what other people make important."  
+> — **Lolly Daskal**
 
 ---
 
