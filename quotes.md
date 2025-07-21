@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is not for all men, but for those who seek it."  
-> — **Ayn Rand**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
