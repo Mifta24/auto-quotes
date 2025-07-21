@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Weeds are flowers too, once you get to know them."  
-> — **A.A. Milne**
+> "People rarely succeed unless they have fun in what they are doing."  
+> — **Dale Carnegie**
 
 ---
 
