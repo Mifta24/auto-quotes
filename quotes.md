@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to light a single candle than to curse the darkness."  
-> — **Eleanor Roosevelt**
+> "The most important single ingredient in the formula of success is knowing how to get along with people."  
+> — **Theodore Roosevelt**
 
 ---
 

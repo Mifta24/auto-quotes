@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't change your mind just because people are offended; change your mind if you're wrong."  
-> — **Criss Jami**
+> "The most important single ingredient in the formula of success is knowing how to get along with people."  
+> — **Theodore Roosevelt**
 
 ---
 
