@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness is not something ready made. It comes from your own actions."  
-> — **Dalai Lama**
+> "It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends."  
+> — **Albus Dumbledore**
 
 ---
 
-_Last updated: 21 July 2025 ⏳_
+_Last updated: 22 July 2025 ⏳_
