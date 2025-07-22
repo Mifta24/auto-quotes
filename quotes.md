@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the only real obstacle in your path to a fulfilling life."  
-> — **Les Brown**
+> "Don't change your mind just because people are offended; change your mind if you're wrong."  
+> — **Criss Jami**
 
 ---
 

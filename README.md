@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Still your waters."  
-> — **Josh Waitzkin**
+> "Don't change your mind just because people are offended; change your mind if you're wrong."  
+> — **Criss Jami**
 
 ---
 
