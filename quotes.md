@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the only prayer you ever say in your entire life is thank you, it will be enough."  
-> — **Meister Eckhart**
+> "Still your waters."  
+> — **Josh Waitzkin**
 
 ---
 
