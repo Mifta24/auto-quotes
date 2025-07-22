@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends."  
-> — **Albus Dumbledore**
+> "If the only prayer you ever say in your entire life is thank you, it will be enough."  
+> — **Meister Eckhart**
 
 ---
 
