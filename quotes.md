@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Still your waters."  
-> — **Josh Waitzkin**
+> "You are the only real obstacle in your path to a fulfilling life."  
+> — **Les Brown**
 
 ---
 
