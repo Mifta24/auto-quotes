@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All men are equal before fish."  
-> — **Herbert Hoover**
+> "You never know when a moment and a few sincere words can have an impact on a life.  "  
+> — **Zig Ziglar**
 
 ---
 
