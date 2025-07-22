@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't change your mind just because people are offended; change your mind if you're wrong."  
-> — **Criss Jami**
+> "It is better to light a single candle than to curse the darkness."  
+> — **Eleanor Roosevelt**
 
 ---
 
