@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important single ingredient in the formula of success is knowing how to get along with people."  
-> — **Theodore Roosevelt**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 
