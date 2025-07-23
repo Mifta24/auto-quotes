@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "Life and the simple beauty of it is too good to pass up."  
+> — **Christopher McCandless**
 
 ---
 
