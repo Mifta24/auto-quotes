@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and the simple beauty of it is too good to pass up."  
-> — **Christopher McCandless**
+> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
+> — **George Bernard Shaw**
 
 ---
 
