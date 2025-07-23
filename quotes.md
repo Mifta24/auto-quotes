@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "There is a difference between giving directions and giving direction."  
+> — **Simon Sinek**
 
 ---
 
