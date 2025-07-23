@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even the finest sword plunged into salt water will eventually rust."  
-> — **Sun Tzu**
+> "Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become."  
+> — **Paramahansa Yogananda**
 
 ---
 
