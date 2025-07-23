@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become."  
-> — **Paramahansa Yogananda**
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
+> — **Roy T. Bennett**
 
 ---
 
