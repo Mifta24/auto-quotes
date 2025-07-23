@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
+> — **Zig Ziglar**
 
 ---
 
