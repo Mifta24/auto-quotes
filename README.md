@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and the simple beauty of it is too good to pass up."  
-> — **Christopher McCandless**
+> "Luck is a matter of preparation meeting opportunity."  
+> — **Oprah Winfrey**
 
 ---
 
