@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Muddy water is best cleared by leaving it alone."  
-> — **Alan Watts**
+> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
+> — **Roy T. Bennett**
 
 ---
 
