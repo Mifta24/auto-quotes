@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "You change the world by being yourself."  
+> — **Yoko Ono**
 
 ---
 

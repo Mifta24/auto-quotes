@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't talk about what you have done or what you are going to do."  
-> — **Thomas Jefferson**
+> "You change the world by being yourself."  
+> — **Yoko Ono**
 
 ---
 
