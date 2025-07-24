@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "Don't talk about what you have done or what you are going to do."  
+> — **Thomas Jefferson**
 
 ---
 
