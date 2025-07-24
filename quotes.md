@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
-> — **Roy T. Bennett**
+> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
+> — **Morihei Ueshiba**
 
 ---
 

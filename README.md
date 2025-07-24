@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Muddy water is best cleared by leaving it alone."  
-> — **Alan Watts**
+> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
+> — **Morihei Ueshiba**
 
 ---
 
