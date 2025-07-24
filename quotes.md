@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At first dreams seem impossible, then improbable, then inevitable."  
-> — **Christopher Reeve**
+> "Those who are easily shocked should be shocked more often."  
+> — **Mae West**
 
 ---
 
