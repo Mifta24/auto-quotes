@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
-> — **Morihei Ueshiba**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
