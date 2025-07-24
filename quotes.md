@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You change the world by being yourself."  
-> — **Yoko Ono**
+> "Sometimes adversity is what you need to face in order to become successful."  
+> — **Zig Ziglar**
 
 ---
 
