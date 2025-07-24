@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At first dreams seem impossible, then improbable, then inevitable."  
-> — **Christopher Reeve**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 

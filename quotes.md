@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are easily shocked should be shocked more often."  
-> — **Mae West**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 
