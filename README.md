@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
-> — **Morihei Ueshiba**
+> "At first dreams seem impossible, then improbable, then inevitable."  
+> — **Christopher Reeve**
 
 ---
 

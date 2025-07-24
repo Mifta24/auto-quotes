@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
-> — **Dan Millman**
+> "At first dreams seem impossible, then improbable, then inevitable."  
+> — **Christopher Reeve**
 
 ---
 
