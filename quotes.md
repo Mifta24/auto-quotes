@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who never made a mistake never tried anything new."  
-> — **Albert Einstein**
+> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."  
+> — **Bhagavad Gita**
 
 ---
 
