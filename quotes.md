@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "You do not read a book for the book's sake, but for your own."  
+> — **Earl Nightingale**
 
 ---
 
