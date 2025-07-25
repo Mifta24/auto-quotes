@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Charms strike the sight, but merit wins the soul."  
-> — **Alexander Pope**
+> "Friends ask you questions; enemies question you."  
+> — **Criss Jami**
 
 ---
 

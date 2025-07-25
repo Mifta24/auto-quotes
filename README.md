@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is trying things to see if they work."  
-> — **Ray Bradbury**
+> "Friends ask you questions; enemies question you."  
+> — **Criss Jami**
 
 ---
 
