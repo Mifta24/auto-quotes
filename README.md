@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every blessing ignored becomes a curse."  
-> — **Paulo Coelho**
+> "The person who never made a mistake never tried anything new."  
+> — **Albert Einstein**
 
 ---
 
