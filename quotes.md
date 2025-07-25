@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is trying things to see if they work."  
-> — **Ray Bradbury**
+> "Charms strike the sight, but merit wins the soul."  
+> — **Alexander Pope**
 
 ---
 
