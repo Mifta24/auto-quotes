@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who never made a mistake never tried anything new."  
-> — **Albert Einstein**
+> "Life is trying things to see if they work."  
+> — **Ray Bradbury**
 
 ---
 
