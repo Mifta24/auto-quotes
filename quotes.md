@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes adversity is what you need to face in order to become successful."  
-> — **Zig Ziglar**
+> "Every blessing ignored becomes a curse."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 24 July 2025 ⏳_
+_Last updated: 25 July 2025 ⏳_

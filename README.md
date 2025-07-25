@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You change the world by being yourself."  
-> — **Yoko Ono**
+> "Every blessing ignored becomes a curse."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 24 July 2025 ⏳_
+_Last updated: 25 July 2025 ⏳_
