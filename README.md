@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
+> — **Estee Lauder**
 
 ---
 
