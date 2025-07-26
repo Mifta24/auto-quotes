@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Blessed is he who expects nothing, for he shall never be disappointed."  
-> — **Alexander Pope**
+> "You only live once, but if you do it right, once is enough."  
+> — **Mae West**
 
 ---
 
