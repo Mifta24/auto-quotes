@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It ain't where you start in life, it's where you end up, and what you did along the way."  
-> — **Colin Powell**
+> "The quieter you become, the more you are able to hear."  
+> — **Rumi**
 
 ---
 
