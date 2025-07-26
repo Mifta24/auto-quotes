@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future belongs to those who believe in the beauty of their dreams."  
-> — **Eleanor Roosevelt**
+> "Blessed is he who expects nothing, for he shall never be disappointed."  
+> — **Alexander Pope**
 
 ---
 

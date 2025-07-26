@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
-> — **Charles Dickens**
+> "Blessed is he who expects nothing, for he shall never be disappointed."  
+> — **Alexander Pope**
 
 ---
 
