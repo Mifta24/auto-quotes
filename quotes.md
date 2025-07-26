@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future belongs to those who believe in the beauty of their dreams."  
-> — **Eleanor Roosevelt**
+> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
+> — **Charles Dickens**
 
 ---
 
