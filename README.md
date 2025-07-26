@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles must begin with a single step."  
-> — **Lao Tzu**
+> "It ain't where you start in life, it's where you end up, and what you did along the way."  
+> — **Colin Powell**
 
 ---
 

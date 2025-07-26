@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important battle is one to conquer yourself."  
-> — **Yanni**
+> "It ain't where you start in life, it's where you end up, and what you did along the way."  
+> — **Colin Powell**
 
 ---
 
