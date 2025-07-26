@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles must begin with a single step."  
-> — **Lao Tzu**
+> "The most important battle is one to conquer yourself."  
+> — **Yanni**
 
 ---
 
