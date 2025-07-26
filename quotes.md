@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "A journey of a thousand miles must begin with a single step."  
+> — **Lao Tzu**
 
 ---
 
