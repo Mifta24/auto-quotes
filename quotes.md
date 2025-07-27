@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
-> — **Tony Robbins**
+> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
+> — **James Allen**
 
 ---
 
