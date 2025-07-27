@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."  
-> — **Bob Dylan**
+> "What the mind can conceive and believe, and the heart desire, you can achieve."  
+> — **Norman Vincent Peale**
 
 ---
 
