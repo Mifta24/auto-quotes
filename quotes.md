@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What the mind can conceive and believe, and the heart desire, you can achieve."  
-> — **Norman Vincent Peale**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 
