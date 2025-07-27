@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us. "  
-> — **Beverly Sills**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
