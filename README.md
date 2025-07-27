@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Blessed is he who expects nothing, for he shall never be disappointed."  
-> — **Alexander Pope**
+> "The danger of an adventure is worth a thousand days of ease and comfort."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 26 July 2025 ⏳_
+_Last updated: 27 July 2025 ⏳_

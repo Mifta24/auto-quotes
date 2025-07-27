@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You only live once, but if you do it right, once is enough."  
-> — **Mae West**
+> "The danger of an adventure is worth a thousand days of ease and comfort."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 26 July 2025 ⏳_
+_Last updated: 27 July 2025 ⏳_
