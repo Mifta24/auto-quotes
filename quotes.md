@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."  
-> — **Bob Dylan**
+> "Plants grow weak without wind."  
+> — **Maxime Lagace**
 
 ---
 
