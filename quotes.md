@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide whether or not the goal is worth the risks involved. If it is, stop worrying."  
-> — **Amelia Earhart**
+> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
+> — **Tony Robbins**
 
 ---
 
