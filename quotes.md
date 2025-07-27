@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "Curiosity is the most powerful thing you own."  
+> — **James Cameron**
 
 ---
 
