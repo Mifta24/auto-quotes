@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is much more successfully looked at from a single window."  
-> — **F. Scott Fitzgerald**
+> "Character is destiny."  
+> — **Heraclitus**
 
 ---
 
