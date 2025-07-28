@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "The older you get, the more you understand how your conscience works."  
+> — **Criss Jami**
 
 ---
 

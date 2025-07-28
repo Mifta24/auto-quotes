@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many of life's failures are people who did not realize how close they were to success when they gave up."  
-> — **Thomas Edison**
+> "The older you get, the more you understand how your conscience works."  
+> — **Criss Jami**
 
 ---
 
