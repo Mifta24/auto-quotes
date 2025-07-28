@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is to console those who are broken by life."  
-> — **Vincent van Gogh**
+> "Everyone has oceans to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries."  
+> — **Amelia Earhart**
 
 ---
 

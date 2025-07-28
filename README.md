@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next."  
-> — **Herbert Hoover**
+> "Everyone has oceans to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries."  
+> — **Amelia Earhart**
 
 ---
 
