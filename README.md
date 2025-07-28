@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
-> — **Tony Robbins**
+> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next."  
+> — **Herbert Hoover**
 
 ---
 
-_Last updated: 27 July 2025 ⏳_
+_Last updated: 28 July 2025 ⏳_
