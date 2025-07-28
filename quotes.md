@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get, the more you understand how your conscience works."  
-> — **Criss Jami**
+> "Most people fail in life because they major in minor things."  
+> — **Tony Robbins**
 
 ---
 
