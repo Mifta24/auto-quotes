@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people fail in life because they major in minor things."  
-> — **Tony Robbins**
+> "Life is much more successfully looked at from a single window."  
+> — **F. Scott Fitzgerald**
 
 ---
 

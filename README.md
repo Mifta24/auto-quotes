@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get, the more you understand how your conscience works."  
-> — **Criss Jami**
+> "Life is much more successfully looked at from a single window."  
+> — **F. Scott Fitzgerald**
 
 ---
 
