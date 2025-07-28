@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "Many of life's failures are people who did not realize how close they were to success when they gave up."  
+> — **Thomas Edison**
 
 ---
 
