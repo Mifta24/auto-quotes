@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't learn to do, but learn in doing."  
-> — **Samuel Butler**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 

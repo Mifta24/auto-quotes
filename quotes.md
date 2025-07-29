@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unhappiness enters through a door that has been left open."  
-> — **Zen Proverb**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 
