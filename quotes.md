@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Character is destiny."  
-> — **Heraclitus**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 
-_Last updated: 28 July 2025 ⏳_
+_Last updated: 29 July 2025 ⏳_
