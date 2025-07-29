@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage Is a Love Affair with the Unknown"  
-> — **Osho**
+> "Don't criticize what you can't understand. "  
+> — **Bob Dylan**
 
 ---
 
