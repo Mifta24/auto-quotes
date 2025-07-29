@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must embrace pain and burn it as fuel for our journey."  
-> — **Kenji Miyazawa**
+> "Don't learn to do, but learn in doing."  
+> — **Samuel Butler**
 
 ---
 
