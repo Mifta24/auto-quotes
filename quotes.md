@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't learn to do, but learn in doing."  
-> — **Samuel Butler**
+> "Unhappiness enters through a door that has been left open."  
+> — **Zen Proverb**
 
 ---
 
