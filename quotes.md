@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "Public opinion is the worst of all opinions."  
+> — **Nicolas Chamfort**
 
 ---
 
