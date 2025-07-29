@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Public opinion is the worst of all opinions."  
-> — **Nicolas Chamfort**
+> "We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality."  
+> — **Vaclav Havel**
 
 ---
 

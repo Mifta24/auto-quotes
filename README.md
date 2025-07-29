@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality."  
+> — **Vaclav Havel**
 
 ---
 
