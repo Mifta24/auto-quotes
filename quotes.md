@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
-> — **Conrad Hilton**
+> "You are the sky. Everything else - it's just the weather."  
+> — **Pema Chodron**
 
 ---
 
