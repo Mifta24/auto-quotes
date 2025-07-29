@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the sky. Everything else - it's just the weather."  
-> — **Pema Chodron**
+> "Courage Is a Love Affair with the Unknown"  
+> — **Osho**
 
 ---
 
