@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never fear quarrels, but seek hazardous adventures."  
-> — **Alexandre Dumas**
+> "All life is an experiment. The more experiments you make, the better."  
+> — **Ralph Waldo Emerson**
 
 ---
 

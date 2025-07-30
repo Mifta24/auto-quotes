@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
-> — **Thich Nhat Hanh**
+> "All life is an experiment. The more experiments you make, the better."  
+> — **Ralph Waldo Emerson**
 
 ---
 
