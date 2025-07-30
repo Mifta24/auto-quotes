@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All life is an experiment. The more experiments you make, the better."  
-> — **Ralph Waldo Emerson**
+> "This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play."  
+> — **Alan Watts**
 
 ---
 
