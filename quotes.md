@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death walks faster than the wind and never returns what he has taken."  
-> — **Hans Christian Andersen**
+> "Either write something worth reading or do something worth writing."  
+> — **Benjamin Franklin**
 
 ---
 
