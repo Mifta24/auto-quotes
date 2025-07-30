@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you resist, persists."  
-> — **Carl Jung**
+> "Life is trying things to see if they work."  
+> — **Ray Bradbury**
 
 ---
 
