@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is trying things to see if they work."  
-> — **Ray Bradbury**
+> "Never let the things you can't do stop you from doing what you can."  
+> — **Ronald Reagan**
 
 ---
 
