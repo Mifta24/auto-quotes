@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Courage Is a Love Affair with the Unknown"  
-> — **Osho**
+> "Death walks faster than the wind and never returns what he has taken."  
+> — **Hans Christian Andersen**
 
 ---
 
-_Last updated: 29 July 2025 ⏳_
+_Last updated: 30 July 2025 ⏳_
