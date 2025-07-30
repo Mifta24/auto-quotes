@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death walks faster than the wind and never returns what he has taken."  
-> — **Hans Christian Andersen**
+> "Never fear quarrels, but seek hazardous adventures."  
+> — **Alexandre Dumas**
 
 ---
 

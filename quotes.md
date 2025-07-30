@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either write something worth reading or do something worth writing."  
-> — **Benjamin Franklin**
+> "Never fear quarrels, but seek hazardous adventures."  
+> — **Alexandre Dumas**
 
 ---
 
