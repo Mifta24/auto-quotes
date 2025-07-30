@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All life is an experiment. The more experiments you make, the better."  
-> — **Ralph Waldo Emerson**
+> "Selfishness and greed, individual or national, cause most of our troubles."  
+> — **Harry S. Truman**
 
 ---
 
