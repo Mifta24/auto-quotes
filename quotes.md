@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never let the things you can't do stop you from doing what you can."  
-> — **Ronald Reagan**
+> "The trouble with most of us is that we'd rather be ruined by praise than saved by criticism."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 30 July 2025 ⏳_
+_Last updated: 31 July 2025 ⏳_
