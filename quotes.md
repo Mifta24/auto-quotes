@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with most of us is that we'd rather be ruined by praise than saved by criticism."  
-> — **Norman Vincent Peale**
+> "Life has more imagination than we carry in our dreams."  
+> — **Christopher Columbus**
 
 ---
 
