@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always seek out the seed of triumph in every adversity."  
-> — **Og Mandino**
+> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
+> — **Mark Twain**
 
 ---
 
