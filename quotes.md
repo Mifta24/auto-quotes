@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has more imagination than we carry in our dreams."  
-> — **Christopher Columbus**
+> "It's your outlook on life that counts."  
+> — **Betty White**
 
 ---
 
