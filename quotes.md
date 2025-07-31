@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pain of parting is nothing to the joy of meeting again."  
-> — **Charles Dickens**
+> "The purpose of life is to contribute in some way to making things better."  
+> — **Robert F. Kennedy**
 
 ---
 
