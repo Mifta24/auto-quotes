@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is getting what you want... Happiness is wanting what you get."  
-> — **Dale Carnegie**
+> "The pain of parting is nothing to the joy of meeting again."  
+> — **Charles Dickens**
 
 ---
 
