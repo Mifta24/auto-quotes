@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world."  
-> — **Henry Ward Beecher**
+> "Heroes don't need to talk about what they did."  
+> — **W.P. Kinsella**
 
 ---
 
