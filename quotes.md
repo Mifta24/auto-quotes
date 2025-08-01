@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace."  
-> — **Ming-Dao Deng**
+> "It is not enough to win a war; it is more important to organize the peace."  
+> — **Aristotle**
 
 ---
 
