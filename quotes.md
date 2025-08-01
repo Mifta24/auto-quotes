@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive."  
+> — **Anne Wilson Schaef**
 
 ---
 
