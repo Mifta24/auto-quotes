@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive."  
-> — **Anne Wilson Schaef**
+> "Sometimes you will never know the value of something, until it becomes a memory."  
+> — **Dr. Seuss**
 
 ---
 
