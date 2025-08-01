@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To handle yourself, use your head; to handle others, use your heart."  
-> — **Eleanor Roosevelt**
+> "Victims recite problems, leaders provide solutions."  
+> — **Robin Sharma**
 
 ---
 
