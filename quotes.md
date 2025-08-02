@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is not a lover who does not love forever."  
-> — **Euripides**
+> "Riches don't make a man rich, they only make him busier."  
+> — **Christopher Columbus**
 
 ---
 
