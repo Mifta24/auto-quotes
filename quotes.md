@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "The smallest of actions is always better than the noblest of intentions."  
+> — **Robin Sharma**
 
 ---
 
