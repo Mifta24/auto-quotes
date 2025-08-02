@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Few things are more deceptive than memories."  
-> — **Carlos Ruiz Zafon**
+> "The whole of life, from the moment you are born to the moment you die, is a process of learning."  
+> — **Jiddu Krishnamurti**
 
 ---
 
