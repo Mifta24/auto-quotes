@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 

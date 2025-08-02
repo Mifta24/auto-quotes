@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The smallest of actions is always better than the noblest of intentions."  
-> — **Robin Sharma**
+> "He is not a lover who does not love forever."  
+> — **Euripides**
 
 ---
 
