@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest doer must also be a great dreamer."  
-> — **Theodore Roosevelt**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
