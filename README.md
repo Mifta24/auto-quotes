@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way we feel is the direct result of what we think."  
-> — **Peter A. Cohen**
+> "Few things are more deceptive than memories."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
