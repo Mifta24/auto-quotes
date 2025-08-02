@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest doer must also be a great dreamer."  
-> — **Theodore Roosevelt**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 

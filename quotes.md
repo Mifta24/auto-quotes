@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 
