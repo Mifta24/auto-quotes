@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace."  
-> — **Ming-Dao Deng**
+> "The way we feel is the direct result of what we think."  
+> — **Peter A. Cohen**
 
 ---
 
-_Last updated: 01 August 2025 ⏳_
+_Last updated: 02 August 2025 ⏳_

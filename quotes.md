@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is not enough to win a war; it is more important to organize the peace."  
-> — **Aristotle**
+> "The way we feel is the direct result of what we think."  
+> — **Peter A. Cohen**
 
 ---
 
-_Last updated: 01 August 2025 ⏳_
+_Last updated: 02 August 2025 ⏳_
