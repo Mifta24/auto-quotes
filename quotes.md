@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole of life, from the moment you are born to the moment you die, is a process of learning."  
-> — **Jiddu Krishnamurti**
+> "The greatest doer must also be a great dreamer."  
+> — **Theodore Roosevelt**
 
 ---
 

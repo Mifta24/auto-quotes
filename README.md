@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Few things are more deceptive than memories."  
-> — **Carlos Ruiz Zafon**
+> "The greatest doer must also be a great dreamer."  
+> — **Theodore Roosevelt**
 
 ---
 
