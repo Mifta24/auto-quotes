@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way we feel is the direct result of what we think."  
-> — **Peter A. Cohen**
+> "Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt."  
+> — **Honore de Balzac**
 
 ---
 
