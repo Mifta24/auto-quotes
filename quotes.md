@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Normality is a paved road: It's comfortable to walk, but no flowers grow on it."  
-> — **Vincent van Gogh**
+> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
+> — **Bette Midler**
 
 ---
 
