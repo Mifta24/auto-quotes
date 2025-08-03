@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who violates another's honor loses his own."  
-> — **Publilius Syrus**
+> "You become a worrier by practicing worry. You become free of worry by practicing the opposite."  
+> — **Norman Vincent Peale**
 
 ---
 
