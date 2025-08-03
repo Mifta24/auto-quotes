@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
-> — **Wayne Gretzky**
+> "If you always do what you've always done, you'll always get what you've always got. "  
+> — **Henry Ford**
 
 ---
 

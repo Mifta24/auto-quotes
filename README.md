@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."  
-> — **Yoko Ono**
+> "If you always do what you've always done, you'll always get what you've always got. "  
+> — **Henry Ford**
 
 ---
 
