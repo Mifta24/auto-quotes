@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."  
-> — **Yoko Ono**
+> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
+> — **Wayne Gretzky**
 
 ---
 
