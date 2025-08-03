@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you always do what you've always done, you'll always get what you've always got. "  
-> — **Henry Ford**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 
