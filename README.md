@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who violates another's honor loses his own."  
-> — **Publilius Syrus**
+> "Normality is a paved road: It's comfortable to walk, but no flowers grow on it."  
+> — **Vincent van Gogh**
 
 ---
 

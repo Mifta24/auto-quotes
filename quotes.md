@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You become a worrier by practicing worry. You become free of worry by practicing the opposite."  
-> — **Norman Vincent Peale**
+> "Normality is a paved road: It's comfortable to walk, but no flowers grow on it."  
+> — **Vincent van Gogh**
 
 ---
 
