@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "Some people are old at 18 and some are young at 90. Time is a concept that humans created."  
+> — **Yoko Ono**
 
 ---
 
