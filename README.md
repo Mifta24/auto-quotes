@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of thinking outside the box, get rid of the box."  
-> — **Deepak Chopra**
+> "Challenge yourself to find the good and beautiful thing inside of everyone."  
+> — **Mark Manson**
 
 ---
 

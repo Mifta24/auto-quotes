@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not the drop in the ocean, but the ocean in the drop."  
-> — **Deepak Chopra**
+> "Challenge yourself to find the good and beautiful thing inside of everyone."  
+> — **Mark Manson**
 
 ---
 
