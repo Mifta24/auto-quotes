@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give out what you most want to come back."  
-> — **Robin Sharma**
+> "Dreams provide nourishment for the soul, just as a meal does for the body."  
+> — **Paulo Coelho**
 
 ---
 
