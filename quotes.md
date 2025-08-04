@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Challenge yourself to find the good and beautiful thing inside of everyone."  
-> — **Mark Manson**
+> "The difference between impossible and possible is a willing heart."  
+> — **Lolly Daskal**
 
 ---
 
