@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
-> — **Bette Midler**
+> "Instead of thinking outside the box, get rid of the box."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 03 August 2025 ⏳_
+_Last updated: 04 August 2025 ⏳_

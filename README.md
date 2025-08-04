@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Normality is a paved road: It's comfortable to walk, but no flowers grow on it."  
-> — **Vincent van Gogh**
+> "Instead of thinking outside the box, get rid of the box."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 03 August 2025 ⏳_
+_Last updated: 04 August 2025 ⏳_
