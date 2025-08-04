@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is an option here. If things are not failing, you are not innovating enough."  
-> — **Elon Musk**
+> "If you can change your mind, you can change your life."  
+> — **William James**
 
 ---
 

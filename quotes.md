@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to learn late than never."  
-> — **Publilius Syrus**
+> "If you can change your mind, you can change your life."  
+> — **William James**
 
 ---
 
