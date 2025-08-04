@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can change your mind, you can change your life."  
-> — **William James**
+> "Decide what your truth is. Then live it."  
+> — **Kamal Ravikant**
 
 ---
 
