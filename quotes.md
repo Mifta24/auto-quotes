@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Instead of thinking outside the box, get rid of the box."  
+> "You are not the drop in the ocean, but the ocean in the drop."  
 > — **Deepak Chopra**
 
 ---
