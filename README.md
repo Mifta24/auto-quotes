@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can change your mind, you can change your life."  
-> — **William James**
+> "Give out what you most want to come back."  
+> — **Robin Sharma**
 
 ---
 

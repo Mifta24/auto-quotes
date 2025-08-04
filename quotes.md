@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide what your truth is. Then live it."  
-> — **Kamal Ravikant**
+> "Give out what you most want to come back."  
+> — **Robin Sharma**
 
 ---
 
