@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between impossible and possible is a willing heart."  
-> — **Lolly Daskal**
+> "Failure is an option here. If things are not failing, you are not innovating enough."  
+> — **Elon Musk**
 
 ---
 

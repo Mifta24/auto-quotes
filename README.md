@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Challenge yourself to find the good and beautiful thing inside of everyone."  
-> — **Mark Manson**
+> "Failure is an option here. If things are not failing, you are not innovating enough."  
+> — **Elon Musk**
 
 ---
 
