@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is an option here. If things are not failing, you are not innovating enough."  
-> — **Elon Musk**
+> "It is better to learn late than never."  
+> — **Publilius Syrus**
 
 ---
 
