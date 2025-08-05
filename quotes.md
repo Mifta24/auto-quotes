@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are today where your thoughts have brought you."  
-> — **James Allen**
+> "The few who do are the envy of the many who only watch."  
+> — **Jim Rohn**
 
 ---
 
