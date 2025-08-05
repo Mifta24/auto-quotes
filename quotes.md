@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
-> — **Roy T. Bennett**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 

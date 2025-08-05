@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "TEAMWORK: the fuel that allows common people attain uncommon results."  
-> — **Andrew Carnegie**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 
