@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something scares you, the more you should do it."  
-> — **Mark Manson**
+> "Saying nothing sometimes says the most."  
+> — **Emily Dickinson**
 
 ---
 
