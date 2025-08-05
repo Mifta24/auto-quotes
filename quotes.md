@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is not contented with what he has, would not be contented with what he would like to have."  
-> — **Socrates**
+> "The season of failure is the best time for sowing the seeds of success. "  
+> — **Paramahansa Yogananda**
 
 ---
 
