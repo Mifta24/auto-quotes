@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Give out what you most want to come back."  
-> — **Robin Sharma**
+> "TEAMWORK: the fuel that allows common people attain uncommon results."  
+> — **Andrew Carnegie**
 
 ---
 
-_Last updated: 04 August 2025 ⏳_
+_Last updated: 05 August 2025 ⏳_
