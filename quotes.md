@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 
