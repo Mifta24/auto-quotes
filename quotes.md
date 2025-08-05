@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The season of failure is the best time for sowing the seeds of success. "  
-> — **Paramahansa Yogananda**
+> "The more something scares you, the more you should do it."  
+> — **Mark Manson**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is not contented with what he has, would not be contented with what he would like to have."  
-> — **Socrates**
+> "The more something scares you, the more you should do it."  
+> — **Mark Manson**
 
 ---
 
