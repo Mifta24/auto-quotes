@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something scares you, the more you should do it."  
-> — **Mark Manson**
+> "You are today where your thoughts have brought you."  
+> — **James Allen**
 
 ---
 

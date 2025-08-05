@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Saying nothing sometimes says the most."  
-> — **Emily Dickinson**
+> "You are today where your thoughts have brought you."  
+> — **James Allen**
 
 ---
 
