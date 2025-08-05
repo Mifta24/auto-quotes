@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The few who do are the envy of the many who only watch."  
-> — **Jim Rohn**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 

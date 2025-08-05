@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are today where your thoughts have brought you."  
-> — **James Allen**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 
