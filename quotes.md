@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
-> — **Benjamin Franklin**
+> "Life itself is the most wonderful fairy tale."  
+> — **Hans Christian Andersen**
 
 ---
 

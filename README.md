@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is the quality of your relationships."  
-> — **Tony Robbins**
+> "Life itself is the most wonderful fairy tale."  
+> — **Hans Christian Andersen**
 
 ---
 
