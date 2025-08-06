@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life itself is the most wonderful fairy tale."  
-> — **Hans Christian Andersen**
+> "No one returns from a long journey the same person they were before."  
+> — **Zen Proverb**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Youth has no age."  
-> — **Pablo Picasso**
+> "No one returns from a long journey the same person they were before."  
+> — **Zen Proverb**
 
 ---
 
