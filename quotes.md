@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
-> — **Paulo Coelho**
+> "No matter what happens in life, never lose sight of who you are."  
+> — **Yanni**
 
 ---
 
-_Last updated: 05 August 2025 ⏳_
+_Last updated: 06 August 2025 ⏳_
