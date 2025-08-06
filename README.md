@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "It is impossible for a man to learn what he thinks he already knows."  
+> — **Epictetus**
 
 ---
 

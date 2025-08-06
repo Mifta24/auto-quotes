@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do good by stealth, and blush to find it fame."  
-> — **Alexander Pope**
+> "It is impossible for a man to learn what he thinks he already knows."  
+> — **Epictetus**
 
 ---
 
