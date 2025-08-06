@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one returns from a long journey the same person they were before."  
-> — **Zen Proverb**
+> "Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny."  
+> — **Steve Maraboli**
 
 ---
 
