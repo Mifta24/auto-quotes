@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is impossible for a man to learn what he thinks he already knows."  
-> — **Epictetus**
+> "The quality of your life is the quality of your relationships."  
+> — **Tony Robbins**
 
 ---
 

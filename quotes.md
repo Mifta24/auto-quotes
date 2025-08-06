@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Alone we can do so little; together we can do so much."  
-> — **Helen Keller**
+> "The quality of your life is the quality of your relationships."  
+> — **Tony Robbins**
 
 ---
 
