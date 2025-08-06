@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is the quality of your relationships."  
-> — **Tony Robbins**
+> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
+> — **Benjamin Franklin**
 
 ---
 
