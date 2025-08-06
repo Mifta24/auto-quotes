@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life itself is the most wonderful fairy tale."  
-> — **Hans Christian Andersen**
+> "Youth has no age."  
+> — **Pablo Picasso**
 
 ---
 
