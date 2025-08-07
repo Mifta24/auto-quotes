@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I cannot do great things. I can do small things in a great way."  
-> — **Martin Luther King, Jr.**
+> "The friendship that can cease has never been real. "  
+> — **St. Jerome**
 
 ---
 
