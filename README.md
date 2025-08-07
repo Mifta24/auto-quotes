@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
-> — **Paramahansa Yogananda**
+> "If I cannot do great things. I can do small things in a great way."  
+> — **Martin Luther King, Jr.**
 
 ---
 

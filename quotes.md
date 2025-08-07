@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person is only by the thoughts that he chooses."  
-> — **James Allen**
+> "If I cannot do great things. I can do small things in a great way."  
+> — **Martin Luther King, Jr.**
 
 ---
 
