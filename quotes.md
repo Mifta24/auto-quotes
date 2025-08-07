@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about doing the right thing, not about doing everything right."  
-> — **Gary Keller**
+> "Truth is not something outside to be discovered, it is something inside to be realized."  
+> — **Osho**
 
 ---
 
