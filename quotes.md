@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 
