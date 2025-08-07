@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No one returns from a long journey the same person they were before."  
-> — **Zen Proverb**
+> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
+> — **Paramahansa Yogananda**
 
 ---
 
-_Last updated: 06 August 2025 ⏳_
+_Last updated: 07 August 2025 ⏳_
