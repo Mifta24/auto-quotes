@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Creative people are often found either disagreeable or intimidating by mediocrities."  
-> — **Criss Jami**
+> "No idea, no matter how good, will work if it doesn't get used."  
+> — **Peter A. Cohen**
 
 ---
 
