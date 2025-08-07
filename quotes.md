@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is not something outside to be discovered, it is something inside to be realized."  
-> — **Osho**
+> "Creative people are often found either disagreeable or intimidating by mediocrities."  
+> — **Criss Jami**
 
 ---
 

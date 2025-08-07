@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about doing the right thing, not about doing everything right."  
-> — **Gary Keller**
+> "Creative people are often found either disagreeable or intimidating by mediocrities."  
+> — **Criss Jami**
 
 ---
 
