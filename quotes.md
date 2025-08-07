@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Creative people are often found either disagreeable or intimidating by mediocrities."  
-> — **Criss Jami**
+> "Facts are the enemy of truth. "  
+> — **Miguel de Cervantes**
 
 ---
 
