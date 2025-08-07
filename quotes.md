@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
-> — **Paramahansa Yogananda**
+> "A person is only by the thoughts that he chooses."  
+> — **James Allen**
 
 ---
 
