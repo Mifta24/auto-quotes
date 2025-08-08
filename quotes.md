@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not how much we have, but how much we enjoy, that makes happiness."  
-> — **Charles Spurgeon**
+> "Our deeds determine us, as much as we determine our deeds."  
+> — **George Eliot**
 
 ---
 
