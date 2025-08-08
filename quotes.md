@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity is relative. It depends on who has who locked in what cage.  "  
-> — **Ray Bradbury**
+> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
+> — **Ralph Marston**
 
 ---
 
