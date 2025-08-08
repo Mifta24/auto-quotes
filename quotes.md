@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone is a moon, and has a dark side which he never shows to anybody."  
-> — **Mark Twain**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
