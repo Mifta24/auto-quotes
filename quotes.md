@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
-> — **James Cameron**
+> "It is not how much we have, but how much we enjoy, that makes happiness."  
+> — **Charles Spurgeon**
 
 ---
 
