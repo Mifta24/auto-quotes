@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No idea, no matter how good, will work if it doesn't get used."  
-> — **Peter A. Cohen**
+> "Everyone is a moon, and has a dark side which he never shows to anybody."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 07 August 2025 ⏳_
+_Last updated: 08 August 2025 ⏳_
