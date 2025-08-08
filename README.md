@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our deeds determine us, as much as we determine our deeds."  
-> — **George Eliot**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 

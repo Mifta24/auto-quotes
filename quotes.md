@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not wait for leaders; do it alone, person to person."  
-> — **Mother Teresa**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 
