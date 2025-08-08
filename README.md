@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone is a moon, and has a dark side which he never shows to anybody."  
-> — **Mark Twain**
+> "Insanity is relative. It depends on who has who locked in what cage.  "  
+> — **Ray Bradbury**
 
 ---
 
