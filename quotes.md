@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our deeds determine us, as much as we determine our deeds."  
-> — **George Eliot**
+> "Do not wait for leaders; do it alone, person to person."  
+> — **Mother Teresa**
 
 ---
 
