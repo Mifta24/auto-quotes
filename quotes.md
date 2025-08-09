@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We tend to live up to our expectations."  
-> — **Earl Nightingale**
+> "How much pain they have cost us, the evils which have never happened."  
+> — **Thomas Jefferson**
 
 ---
 
