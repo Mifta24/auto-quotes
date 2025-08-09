@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
-> — **Zen Proverb**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 

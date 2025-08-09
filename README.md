@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't know, the thing to do is not to get scared, but to learn."  
-> — **Ayn Rand**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 
