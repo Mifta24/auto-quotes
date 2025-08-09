@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
-> — **Robert Kiyosaki**
+> "It is impossible for a man to learn what he thinks he already knows."  
+> — **Epictetus**
 
 ---
 
