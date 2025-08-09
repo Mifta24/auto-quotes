@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We tend to live up to our expectations."  
-> — **Earl Nightingale**
+> "All that we see or seem is but a dream within a dream."  
+> — **Edgar Allan Poe**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How much pain they have cost us, the evils which have never happened."  
-> — **Thomas Jefferson**
+> "All that we see or seem is but a dream within a dream."  
+> — **Edgar Allan Poe**
 
 ---
 
