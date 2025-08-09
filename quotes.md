@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even in the grave, all is not lost."  
-> — **Edgar Allan Poe**
+> "Change is hardest at the beginning, messiest in the middle and best at the end."  
+> — **Robin Sharma**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All that we see or seem is but a dream within a dream."  
-> — **Edgar Allan Poe**
+> "Change is hardest at the beginning, messiest in the middle and best at the end."  
+> — **Robin Sharma**
 
 ---
 
