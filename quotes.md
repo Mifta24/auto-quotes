@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is hardest at the beginning, messiest in the middle and best at the end."  
-> — **Robin Sharma**
+> "I don't ever give up. I'd have to be dead or completely incapacitated."  
+> — **Elon Musk**
 
 ---
 
