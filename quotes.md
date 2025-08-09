@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't know, the thing to do is not to get scared, but to learn."  
-> — **Ayn Rand**
+> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
+> — **Zen Proverb**
 
 ---
 
