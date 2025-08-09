@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "If you don't know, the thing to do is not to get scared, but to learn."  
+> — **Ayn Rand**
 
 ---
 
-_Last updated: 08 August 2025 ⏳_
+_Last updated: 09 August 2025 ⏳_
