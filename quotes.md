@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "All that we see or seem is but a dream within a dream."  
+> "Even in the grave, all is not lost."  
 > — **Edgar Allan Poe**
 
 ---
