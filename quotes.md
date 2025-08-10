@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
+> — **Alfred Adler**
 
 ---
 
