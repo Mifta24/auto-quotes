@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Life is not a problem to be solved, but a reality to be experienced."  
+> — **Soren Kierkegaard**
 
 ---
 
