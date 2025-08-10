@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep away from people who try to belittle your ambitions."  
-> — **Mark Twain**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 

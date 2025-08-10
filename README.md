@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victims recite problems, leaders provide solutions."  
-> — **Robin Sharma**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 
