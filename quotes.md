@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victims recite problems, leaders provide solutions."  
-> — **Robin Sharma**
+> "Keep away from people who try to belittle your ambitions."  
+> — **Mark Twain**
 
 ---
 
