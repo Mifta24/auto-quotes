@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You get in life what you have the courage to ask for."  
-> — **Oprah Winfrey**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 

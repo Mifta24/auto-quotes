@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no limitations to the mind except those we acknowledge..."  
-> — **Napoleon Hill**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
