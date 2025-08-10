@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "Invisible things are the only realities."  
+> — **Edgar Allan Poe**
 
 ---
 
