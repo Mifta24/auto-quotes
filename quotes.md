@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not a problem to be solved, but a reality to be experienced."  
-> — **Soren Kierkegaard**
+> "A diamond is a piece of charcoal that handled stress exceptionally well."  
+> — **Unknown**
 
 ---
 
