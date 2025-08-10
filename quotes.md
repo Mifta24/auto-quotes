@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no limitations to the mind except those we acknowledge..."  
-> — **Napoleon Hill**
+> "You get in life what you have the courage to ask for."  
+> — **Oprah Winfrey**
 
 ---
 
