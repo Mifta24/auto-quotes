@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I don't ever give up. I'd have to be dead or completely incapacitated."  
-> — **Elon Musk**
+> "Victims recite problems, leaders provide solutions."  
+> — **Robin Sharma**
 
 ---
 
-_Last updated: 09 August 2025 ⏳_
+_Last updated: 10 August 2025 ⏳_
