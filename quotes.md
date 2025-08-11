@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "If you change the way you look at things, the things you look at change. "  
+> — **Wayne Dyer**
 
 ---
 
