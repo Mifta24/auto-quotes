@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The nearer a man comes to a calm mind, the closer he is to strength."  
-> — **Marcus Aurelius**
+> "Learn to value yourself, which means: fight for your happiness."  
+> — **Ayn Rand**
 
 ---
 
