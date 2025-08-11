@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is not a problem to be solved, but a reality to be experienced."  
-> — **Soren Kierkegaard**
+> "Men are equal; it is not birth but virtue that makes the difference."  
+> — **Voltaire**
 
 ---
 
-_Last updated: 10 August 2025 ⏳_
+_Last updated: 11 August 2025 ⏳_

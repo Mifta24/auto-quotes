@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A diamond is a piece of charcoal that handled stress exceptionally well."  
-> — **Unknown**
+> "Men are equal; it is not birth but virtue that makes the difference."  
+> — **Voltaire**
 
 ---
 
-_Last updated: 10 August 2025 ⏳_
+_Last updated: 11 August 2025 ⏳_
