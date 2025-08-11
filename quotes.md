@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn to value yourself, which means: fight for your happiness."  
-> — **Ayn Rand**
+> "Wit is educated insolence."  
+> — **Aristotle**
 
 ---
 
