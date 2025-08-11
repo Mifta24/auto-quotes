@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
-> — **Tony Robbins**
+> "In three words I can sum up everything I've learned about life: it goes on."  
+> — **Robert Frost**
 
 ---
 
