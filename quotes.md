@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In three words I can sum up everything I've learned about life: it goes on."  
-> — **Robert Frost**
+> "The nearer a man comes to a calm mind, the closer he is to strength."  
+> — **Marcus Aurelius**
 
 ---
 

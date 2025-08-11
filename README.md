@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
-> — **Tony Robbins**
+> "The nearer a man comes to a calm mind, the closer he is to strength."  
+> — **Marcus Aurelius**
 
 ---
 
