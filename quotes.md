@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you change the way you look at things, the things you look at change. "  
-> — **Wayne Dyer**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
