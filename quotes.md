@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy when you can, and endure when you must."  
-> — **Johann Wolfgang von Goethe**
+> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
+> — **Tony Robbins**
 
 ---
 

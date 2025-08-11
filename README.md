@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
+> — **Tony Robbins**
 
 ---
 
