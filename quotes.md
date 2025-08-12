@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't like something change it. If you can't change it, change your attitude about it. Don't complain."  
-> — **Maya Angelou**
+> "Until you change how you get things done, you'll never know what works best."  
+> — **Roy T. Bennett**
 
 ---
 

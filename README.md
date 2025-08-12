@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to give up some of the old so that you can make room for the new."  
-> — **Yanni**
+> "Until you change how you get things done, you'll never know what works best."  
+> — **Roy T. Bennett**
 
 ---
 
