@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A path is made by walking on it."  
-> — **Zhuangzi**
+> "You do not read a book for the book's sake, but for your own."  
+> — **Earl Nightingale**
 
 ---
 
