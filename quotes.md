@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Genius, in truth, means little more than the faculty of perceiving in an unhabitual way."  
-> — **William James**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 
