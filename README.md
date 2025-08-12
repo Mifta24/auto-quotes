@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A path is made by walking on it."  
-> — **Zhuangzi**
+> "Everything flows, nothing stands still."  
+> — **Heraclitus**
 
 ---
 
