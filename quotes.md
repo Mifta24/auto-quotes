@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to give up some of the old so that you can make room for the new."  
-> — **Yanni**
+> "If you don't like something change it. If you can't change it, change your attitude about it. Don't complain."  
+> — **Maya Angelou**
 
 ---
 
