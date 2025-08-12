@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Until you change how you get things done, you'll never know what works best."  
-> — **Roy T. Bennett**
+> "Genius, in truth, means little more than the faculty of perceiving in an unhabitual way."  
+> — **William James**
 
 ---
 
