@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Genius, in truth, means little more than the faculty of perceiving in an unhabitual way."  
-> — **William James**
+> "A path is made by walking on it."  
+> — **Zhuangzi**
 
 ---
 

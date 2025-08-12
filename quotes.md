@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whoever is happy will make others happy too."  
-> — **Anne Frank**
+> "A path is made by walking on it."  
+> — **Zhuangzi**
 
 ---
 
