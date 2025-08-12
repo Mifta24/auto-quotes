@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Wit is educated insolence."  
-> — **Aristotle**
+> "You have to give up some of the old so that you can make room for the new."  
+> — **Yanni**
 
 ---
 
-_Last updated: 11 August 2025 ⏳_
+_Last updated: 12 August 2025 ⏳_
