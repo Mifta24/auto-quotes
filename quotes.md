@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
-> — **Criss Jami**
+> "Respect is earned by effort not age, all things age without effort."  
+> — **C. Sean McGee**
 
 ---
 
-_Last updated: 12 August 2025 ⏳_
+_Last updated: 13 August 2025 ⏳_
