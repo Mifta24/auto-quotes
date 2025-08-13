@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is trying things to see if they work."  
-> — **Ray Bradbury**
+> "Desire is suffering."  
+> — **Naval Ravikant**
 
 ---
 

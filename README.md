@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe nothing you hear, and only one half that you see."  
-> — **Edgar Allan Poe**
+> "Desire is suffering."  
+> — **Naval Ravikant**
 
 ---
 
