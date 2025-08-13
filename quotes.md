@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe nothing you hear, and only one half that you see."  
-> — **Edgar Allan Poe**
+> "Life is trying things to see if they work."  
+> — **Ray Bradbury**
 
 ---
 
