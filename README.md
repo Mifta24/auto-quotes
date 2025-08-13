@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "Believe nothing you hear, and only one half that you see."  
+> — **Edgar Allan Poe**
 
 ---
 
