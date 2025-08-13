@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time is a game played beautifully by children."  
-> — **Heraclitus**
+> "Supreme excellence consists of breaking the enemy's resistance without fighting."  
+> — **Sun Tzu**
 
 ---
 
