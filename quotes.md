@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
-> — **Zen Proverb**
+> "Here is the test to find whether your mission on earth is finished. If you're alive, it isn't."  
+> — **Richard Bach**
 
 ---
 
