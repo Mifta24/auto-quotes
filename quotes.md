@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
+> — **Maya Angelou**
 
 ---
 
