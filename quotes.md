@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is passion that makes man live; wisdom makes one only last."  
-> — **Nicolas Chamfort**
+> "Time is a game played beautifully by children."  
+> — **Heraclitus**
 
 ---
 
