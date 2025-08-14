@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "It doesn't matter where you are, you are nowhere compared to where you can go."  
+> — **Bob Proctor**
 
 ---
 
