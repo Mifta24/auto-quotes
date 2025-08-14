@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "An ounce of performance is worth pounds of promises."  
+> — **Mae West**
 
 ---
 
