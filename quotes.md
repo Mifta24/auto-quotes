@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter where you are, you are nowhere compared to where you can go."  
-> — **Bob Proctor**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
