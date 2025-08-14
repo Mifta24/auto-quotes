@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "Motivation gets you going and habit gets you there.  "  
+> — **Zig Ziglar**
 
 ---
 
