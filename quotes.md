@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "People inspire you, or they drain you. Pick them wisely."  
+> — **Les Brown**
 
 ---
 
