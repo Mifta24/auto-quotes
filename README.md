@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Time is a game played beautifully by children."  
-> — **Heraclitus**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
-_Last updated: 13 August 2025 ⏳_
+_Last updated: 14 August 2025 ⏳_
