@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real learning comes about when the competitive spirit has ceased."  
-> — **Jiddu Krishnamurti**
+> "The secret of happiness is not in doing what you like but in liking what you have to do."  
+> — **Sathya Sai Baba**
 
 ---
 
