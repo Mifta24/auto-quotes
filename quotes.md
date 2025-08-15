@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Catch, then, O catch the transient hour; Improve each moment as it flies! "  
-> — **St. Jerome**
+> "Every experience is a lesson. Every loss is a gain."  
+> — **Sathya Sai Baba**
 
 ---
 

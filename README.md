@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."  
-> — **Bob Dylan**
+> "Every experience is a lesson. Every loss is a gain."  
+> — **Sathya Sai Baba**
 
 ---
 
