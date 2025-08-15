@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real learning comes about when the competitive spirit has ceased."  
-> — **Jiddu Krishnamurti**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 

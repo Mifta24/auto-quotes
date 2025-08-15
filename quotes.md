@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of happiness is not in doing what you like but in liking what you have to do."  
-> — **Sathya Sai Baba**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
