@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."  
-> — **Bob Dylan**
+> "Catch, then, O catch the transient hour; Improve each moment as it flies! "  
+> — **St. Jerome**
 
 ---
 
