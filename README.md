@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest challenge after success is shutting up about it."  
-> — **Criss Jami**
+> "Real learning comes about when the competitive spirit has ceased."  
+> — **Jiddu Krishnamurti**
 
 ---
 

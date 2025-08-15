@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man is happy unless he believes he is."  
-> — **Publilius Syrus**
+> "Real learning comes about when the competitive spirit has ceased."  
+> — **Jiddu Krishnamurti**
 
 ---
 
