@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest challenge after success is shutting up about it."  
-> — **Criss Jami**
+> "No man is happy unless he believes he is."  
+> — **Publilius Syrus**
 
 ---
 
