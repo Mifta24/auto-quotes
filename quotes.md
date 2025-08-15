@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All religions, arts and sciences are branches of the same tree. "  
-> — **Albert Einstein**
+> "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast."  
+> — **Norman Vincent Peale**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every experience is a lesson. Every loss is a gain."  
-> — **Sathya Sai Baba**
+> "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast."  
+> — **Norman Vincent Peale**
 
 ---
 
