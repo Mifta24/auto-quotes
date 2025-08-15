@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is about not knowing and then doing something anyway."  
-> — **Mark Manson**
+> "The biggest challenge after success is shutting up about it."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 14 August 2025 ⏳_
+_Last updated: 15 August 2025 ⏳_
