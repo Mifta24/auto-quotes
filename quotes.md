@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even the finest sword plunged into salt water will eventually rust."  
-> — **Sun Tzu**
+> "A good teacher opens the door for you, but you must enter the room by yourself."  
+> — **Zen Proverb**
 
 ---
 
