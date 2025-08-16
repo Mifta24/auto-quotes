@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him."  
-> — **Confucius**
+> "There is no absolute success in the world, only constant progress."  
+> — **Jonathan Swift**
 
 ---
 
