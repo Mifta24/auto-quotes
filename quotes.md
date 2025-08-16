@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
-> — **Maya Angelou**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 

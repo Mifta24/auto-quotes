@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "A good stance and posture reflect a proper state of mind."  
+> — **Morihei Ueshiba**
 
 ---
 
