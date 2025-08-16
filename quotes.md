@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
-> — **Albert Einstein**
+> "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him."  
+> — **Confucius**
 
 ---
 

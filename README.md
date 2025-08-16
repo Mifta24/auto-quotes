@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good stance and posture reflect a proper state of mind."  
-> — **Morihei Ueshiba**
+> "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him."  
+> — **Confucius**
 
 ---
 
