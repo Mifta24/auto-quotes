@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always render more and better service than is expected of you, no matter what your task may be."  
-> — **Og Mandino**
+> "Admire as much as you can. Most people do not admire enough."  
+> — **Vincent van Gogh**
 
 ---
 
