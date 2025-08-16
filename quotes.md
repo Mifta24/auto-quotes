@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good stance and posture reflect a proper state of mind."  
-> — **Morihei Ueshiba**
+> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
+> — **Albert Einstein**
 
 ---
 
