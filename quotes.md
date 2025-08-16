@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good teacher opens the door for you, but you must enter the room by yourself."  
-> — **Zen Proverb**
+> "Always render more and better service than is expected of you, no matter what your task may be."  
+> — **Og Mandino**
 
 ---
 
