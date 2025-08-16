@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
+> — **Maya Angelou**
 
 ---
 
