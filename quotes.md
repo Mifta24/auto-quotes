@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "The less you respond to negative people, the more positive your life will become."  
+> — **Paulo Coelho**
 
 ---
 

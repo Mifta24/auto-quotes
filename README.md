@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "The less you respond to negative people, the more positive your life will become."  
+> — **Paulo Coelho**
 
 ---
 
