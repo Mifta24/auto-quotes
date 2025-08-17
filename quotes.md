@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I love myself I love you. If I love you I love myself."  
-> — **Rumi**
+> "I am always doing what I cannot do yet, in order to learn how to do it."  
+> — **Vincent van Gogh**
 
 ---
 
