@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
-> — **Elvis Presley**
+> "If I love myself I love you. If I love you I love myself."  
+> — **Rumi**
 
 ---
 

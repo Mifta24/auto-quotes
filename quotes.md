@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "If I love myself I love you. If I love you I love myself."  
+> — **Rumi**
 
 ---
 
