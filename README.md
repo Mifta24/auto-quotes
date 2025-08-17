@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even the smallest person can change the course of the future."  
-> — **J.R.R. Tolkien**
+> "Make failure your teacher, not your undertaker.  "  
+> — **Zig Ziglar**
 
 ---
 

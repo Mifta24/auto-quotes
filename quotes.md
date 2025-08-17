@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must embrace pain and burn it as fuel for our journey."  
-> — **Kenji Miyazawa**
+> "Make failure your teacher, not your undertaker.  "  
+> — **Zig Ziglar**
 
 ---
 
