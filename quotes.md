@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you respond to negative people, the more positive your life will become."  
-> — **Paulo Coelho**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 
