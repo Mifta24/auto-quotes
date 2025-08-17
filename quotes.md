@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "Keep others in suspense, cultivate an air of unpredictability."  
+> — **Robert Greene**
 
 ---
 
