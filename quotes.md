@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even the smallest person can change the course of the future."  
-> — **J.R.R. Tolkien**
+> "We must embrace pain and burn it as fuel for our journey."  
+> — **Kenji Miyazawa**
 
 ---
 
