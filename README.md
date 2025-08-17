@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you respond to negative people, the more positive your life will become."  
-> — **Paulo Coelho**
+> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
+> — **Elvis Presley**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
-> — **Charles Dickens**
+> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
+> — **Elvis Presley**
 
 ---
 
