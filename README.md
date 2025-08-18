@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."  
-> — **Celestine Chua**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 
