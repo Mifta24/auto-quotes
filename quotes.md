@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 
