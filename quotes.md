@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "TEAMWORK: the fuel that allows common people attain uncommon results."  
-> — **Andrew Carnegie**
+> "Don't be afraid to go slowly. Be afraid of stopping."  
+> — **Zen Proverb**
 
 ---
 
