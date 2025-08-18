@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "You can never get enough of what you don't need to make you happy."  
+> — **Eric Hoffer**
 
 ---
 
