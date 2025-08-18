@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If I love myself I love you. If I love you I love myself."  
-> — **Rumi**
+> "Productize your perspective."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 17 August 2025 ⏳_
+_Last updated: 18 August 2025 ⏳_

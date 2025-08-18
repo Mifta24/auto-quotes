@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I am always doing what I cannot do yet, in order to learn how to do it."  
-> — **Vincent van Gogh**
+> "Productize your perspective."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 17 August 2025 ⏳_
+_Last updated: 18 August 2025 ⏳_
