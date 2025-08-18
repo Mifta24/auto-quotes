@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can never get enough of what you don't need to make you happy."  
-> — **Eric Hoffer**
+> "Why fit in when you were born to stand out?"  
+> — **Dr. Seuss**
 
 ---
 

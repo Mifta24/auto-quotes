@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "Why fit in when you were born to stand out?"  
+> — **Dr. Seuss**
 
 ---
 
