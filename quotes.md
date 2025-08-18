@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."  
-> — **Celestine Chua**
+> "No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it."  
+> — **Richard Bach**
 
 ---
 
