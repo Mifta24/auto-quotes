@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enlightenment is intimacy with all things."  
-> — **Dogen**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 

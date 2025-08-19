@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone thinks of changing the world, but no one thinks of changing himself."  
-> — **Leo Tolstoy**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 
