@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
+> "Friends ask you questions; enemies question you."  
 > — **Criss Jami**
 
 ---
