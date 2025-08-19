@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "Enlightenment is intimacy with all things."  
+> — **Dogen**
 
 ---
 
