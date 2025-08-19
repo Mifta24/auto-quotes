@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
-> — **Criss Jami**
+> "The decisions of our past are the architects of our present."  
+> — **Dan Brown**
 
 ---
 
