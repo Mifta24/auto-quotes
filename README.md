@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
+> — **Criss Jami**
 
 ---
 

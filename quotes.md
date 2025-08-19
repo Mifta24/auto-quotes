@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have not failed. I've just found 10,000 ways that won't work."  
-> — **Thomas Edison**
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
+> — **Criss Jami**
 
 ---
 
