@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The decisions of our past are the architects of our present."  
-> — **Dan Brown**
+> "When you have to make a choice and don't make it, that is in itself a choice."  
+> — **William James**
 
 ---
 
