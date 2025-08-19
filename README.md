@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "Misfortune shows those who are not really friends."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 18 August 2025 ⏳_
+_Last updated: 19 August 2025 ⏳_

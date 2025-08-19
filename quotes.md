@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Decide upon your major definite purpose in life and then organize all your activities around it."  
-> — **Brian Tracy**
+> "Misfortune shows those who are not really friends."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 18 August 2025 ⏳_
+_Last updated: 19 August 2025 ⏳_
