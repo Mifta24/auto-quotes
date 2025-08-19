@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "I have not failed. I've just found 10,000 ways that won't work."  
+> — **Thomas Edison**
 
 ---
 
