@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are content to be simply yourself and don't compare or compete, everybody will respect you. "  
-> — **Lao Tzu**
+> "Where there is anger, there is always pain underneath."  
+> — **Eckhart Tolle**
 
 ---
 
