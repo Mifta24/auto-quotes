@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We've got to live, no matter how many skies have fallen."  
-> — **D. H. Lawrence**
+> "When you are content to be simply yourself and don't compare or compete, everybody will respect you. "  
+> — **Lao Tzu**
 
 ---
 

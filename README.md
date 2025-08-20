@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Debt is the slavery of the free."  
-> — **Publilius Syrus**
+> "When you are content to be simply yourself and don't compare or compete, everybody will respect you. "  
+> — **Lao Tzu**
 
 ---
 
