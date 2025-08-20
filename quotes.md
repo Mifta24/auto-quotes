@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where there is anger, there is always pain underneath."  
-> — **Eckhart Tolle**
+> "Remember that sometimes not getting what you want is a wonderful stroke of luck."  
+> — **Dalai Lama**
 
 ---
 

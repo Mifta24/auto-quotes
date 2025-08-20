@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are content to be simply yourself and don't compare or compete, everybody will respect you. "  
-> — **Lao Tzu**
+> "Remember that sometimes not getting what you want is a wonderful stroke of luck."  
+> — **Dalai Lama**
 
 ---
 
