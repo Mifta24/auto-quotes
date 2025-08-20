@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
-> — **Sigmund Freud**
+> "If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes."  
+> — **Andrew Carnegie**
 
 ---
 
