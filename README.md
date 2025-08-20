@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways."  
-> — **Sigmund Freud**
+> "A loving heart is the truest wisdom."  
+> — **Charles Dickens**
 
 ---
 
