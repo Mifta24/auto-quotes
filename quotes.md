@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A loving heart is the truest wisdom."  
-> — **Charles Dickens**
+> "Do what you can, with what you have, where you are."  
+> — **Theodore Roosevelt**
 
 ---
 
