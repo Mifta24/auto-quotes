@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you can, with what you have, where you are."  
-> — **Theodore Roosevelt**
+> "Debt is the slavery of the free."  
+> — **Publilius Syrus**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A loving heart is the truest wisdom."  
-> — **Charles Dickens**
+> "Debt is the slavery of the free."  
+> — **Publilius Syrus**
 
 ---
 
