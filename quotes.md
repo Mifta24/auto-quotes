@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Debt is the slavery of the free."  
-> — **Publilius Syrus**
+> "We've got to live, no matter how many skies have fallen."  
+> — **D. H. Lawrence**
 
 ---
 
