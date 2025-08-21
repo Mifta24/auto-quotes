@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only place success comes before work is in the dictionary."  
-> — **Vince Lombardi**
+> "The least deviation from truth will be multiplied later."  
+> — **Aristotle**
 
 ---
 
