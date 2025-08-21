@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Remember that sometimes not getting what you want is a wonderful stroke of luck."  
-> — **Dalai Lama**
+> "If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."  
+> — **Lily Tomlin**
 
 ---
 
-_Last updated: 20 August 2025 ⏳_
+_Last updated: 21 August 2025 ⏳_

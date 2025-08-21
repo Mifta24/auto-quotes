@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."  
+> — **Lily Tomlin**
 
 ---
 
-_Last updated: 20 August 2025 ⏳_
+_Last updated: 21 August 2025 ⏳_
