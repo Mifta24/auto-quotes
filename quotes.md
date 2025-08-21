@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take into account that great love and great achievements involve great risk."  
-> — **Dalai Lama**
+> "No grand idea was ever born in a conference, but a lot of foolish ideas have died there."  
+> — **F. Scott Fitzgerald**
 
 ---
 
