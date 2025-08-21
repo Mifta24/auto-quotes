@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember the entrance to the sanctuary is inside you."  
-> — **Rumi**
+> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
+> — **Henry Ward Beecher**
 
 ---
 

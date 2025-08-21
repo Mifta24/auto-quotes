@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No grand idea was ever born in a conference, but a lot of foolish ideas have died there."  
-> — **F. Scott Fitzgerald**
+> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
+> — **Henry Ward Beecher**
 
 ---
 
