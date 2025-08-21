@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "The only place success comes before work is in the dictionary."  
+> — **Vince Lombardi**
 
 ---
 

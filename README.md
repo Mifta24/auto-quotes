@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every artist dips his brush in his own soul, and paints his own nature into his pictures."  
-> — **Henry Ward Beecher**
+> "The only place success comes before work is in the dictionary."  
+> — **Vince Lombardi**
 
 ---
 
