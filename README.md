@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."  
-> — **Lily Tomlin**
+> "Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work."  
+> — **John Eliot**
 
 ---
 
