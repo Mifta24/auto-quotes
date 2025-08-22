@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "Darkness is the absence of light."  
+> — **Kamal Ravikant**
 
 ---
 
