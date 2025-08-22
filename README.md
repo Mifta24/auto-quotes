@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day your masterpiece."  
-> — **John Wooden**
+> "We love the things we love for what they are."  
+> — **Robert Frost**
 
 ---
 
