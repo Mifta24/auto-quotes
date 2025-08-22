@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Darkness is the absence of light."  
-> — **Kamal Ravikant**
+> "People inspire you, or they drain you. Pick them wisely."  
+> — **Les Brown**
 
 ---
 
