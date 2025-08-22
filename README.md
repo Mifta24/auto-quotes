@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We love the things we love for what they are."  
-> — **Robert Frost**
+> "Don't hate the player. Change the game."  
+> — **Steve Harvey**
 
 ---
 

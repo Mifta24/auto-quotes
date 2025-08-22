@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever you think the world is withholding from you, you are withholding from the world."  
-> — **Eckhart Tolle**
+> "Don't hate the player. Change the game."  
+> — **Steve Harvey**
 
 ---
 
