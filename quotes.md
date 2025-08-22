@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't hate the player. Change the game."  
-> — **Steve Harvey**
+> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."  
+> — **Wayne Dyer**
 
 ---
 
