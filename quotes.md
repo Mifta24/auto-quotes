@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day your masterpiece."  
-> — **John Wooden**
+> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy."  
+> — **Sun Tzu**
 
 ---
 
