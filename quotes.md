@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We love the things we love for what they are."  
-> — **Robert Frost**
+> "Whatever you think the world is withholding from you, you are withholding from the world."  
+> — **Eckhart Tolle**
 
 ---
 
