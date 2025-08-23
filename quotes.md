@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life would be tragic if it weren't funny."  
-> — **Stephen Hawking**
+> "The more you are grateful for what you have the more you will have to be grateful for.  "  
+> — **Zig Ziglar**
 
 ---
 
