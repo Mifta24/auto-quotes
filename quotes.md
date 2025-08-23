@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
-> — **Naval Ravikant**
+> "Your business is not to 'get somewhere' - it is to be here."  
+> — **Dan Millman**
 
 ---
 
