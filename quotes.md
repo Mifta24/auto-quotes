@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of emotion causes lack of progress and lack of motivation."  
-> — **Tony Robbins**
+> "You don't need a weatherman to know which way the wind blows."  
+> — **Bob Dylan**
 
 ---
 

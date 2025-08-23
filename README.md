@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning is a weightless treasure you can always carry easily."  
-> — **Chinese Proverb**
+> "You don't need a weatherman to know which way the wind blows."  
+> — **Bob Dylan**
 
 ---
 
