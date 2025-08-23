@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be able to forget means sanity."  
-> — **Jack London**
+> "Learning is a weightless treasure you can always carry easily."  
+> — **Chinese Proverb**
 
 ---
 
