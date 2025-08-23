@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need a weatherman to know which way the wind blows."  
-> — **Bob Dylan**
+> "We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences "  
+> — **Nikola Tesla**
 
 ---
 
