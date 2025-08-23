@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need a weatherman to know which way the wind blows."  
-> — **Bob Dylan**
+> "Life would be tragic if it weren't funny."  
+> — **Stephen Hawking**
 
 ---
 
