@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 22 August 2025 ⏳_
+_Last updated: 23 August 2025 ⏳_
