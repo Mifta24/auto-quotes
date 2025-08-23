@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning is a weightless treasure you can always carry easily."  
-> — **Chinese Proverb**
+> "Lack of emotion causes lack of progress and lack of motivation."  
+> — **Tony Robbins**
 
 ---
 
