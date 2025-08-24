@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
-> — **Morihei Ueshiba**
+> "When you move beyond your fear, you feel free."  
+> — **Spencer Johnson**
 
 ---
 

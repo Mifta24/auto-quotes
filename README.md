@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The danger of an adventure is worth a thousand days of ease and comfort."  
-> — **Paulo Coelho**
+> "When you move beyond your fear, you feel free."  
+> — **Spencer Johnson**
 
 ---
 
