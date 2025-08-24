@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can live a whole life time never being awake."  
-> — **Dan Millman**
+> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor."  
+> — **James Allen**
 
 ---
 
