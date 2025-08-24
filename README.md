@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you move beyond your fear, you feel free."  
-> — **Spencer Johnson**
+> "You can live a whole life time never being awake."  
+> — **Dan Millman**
 
 ---
 

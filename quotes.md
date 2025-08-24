@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is the rarest thing in the world. Most people exist, that is all. "  
-> — **Oscar Wilde**
+> "You can live a whole life time never being awake."  
+> — **Dan Millman**
 
 ---
 
