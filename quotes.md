@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If fear is too strong, the genius is suppressed."  
-> — **Robert Kiyosaki**
+> "Obstacles don't block the path, they are the path."  
+> — **Zen Proverb**
 
 ---
 
