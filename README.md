@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can live a whole life time never being awake."  
-> — **Dan Millman**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 

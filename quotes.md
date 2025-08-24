@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor."  
-> — **James Allen**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 
