@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The danger of an adventure is worth a thousand days of ease and comfort."  
-> — **Paulo Coelho**
+> "Do not look upon this world with fear and loathing. Bravely face whatever the gods offer."  
+> — **Morihei Ueshiba**
 
 ---
 
