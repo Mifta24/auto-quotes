@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you move beyond your fear, you feel free."  
-> — **Spencer Johnson**
+> "To live is the rarest thing in the world. Most people exist, that is all. "  
+> — **Oscar Wilde**
 
 ---
 
