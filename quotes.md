@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles don't block the path, they are the path."  
-> — **Zen Proverb**
+> "First say to yourself what you would be; and then do what you have to do."  
+> — **Epictetus**
 
 ---
 
