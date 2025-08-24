@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First say to yourself what you would be; and then do what you have to do."  
-> — **Epictetus**
+> "Discipline is the mark of intelligent living."  
+> — **Sathya Sai Baba**
 
 ---
 
