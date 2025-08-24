@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The more you are grateful for what you have the more you will have to be grateful for.  "  
-> — **Zig Ziglar**
+> "The danger of an adventure is worth a thousand days of ease and comfort."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 23 August 2025 ⏳_
+_Last updated: 24 August 2025 ⏳_

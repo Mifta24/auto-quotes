@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life would be tragic if it weren't funny."  
-> — **Stephen Hawking**
+> "The danger of an adventure is worth a thousand days of ease and comfort."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 23 August 2025 ⏳_
+_Last updated: 24 August 2025 ⏳_
