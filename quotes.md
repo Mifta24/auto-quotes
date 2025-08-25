@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way of success is the way of continuous pursuit of knowledge."  
-> — **Napoleon Hill**
+> "We cannot expect to be happy always... by experiencing evil as well as good we become wise."  
+> — **Hans Christian Andersen**
 
 ---
 
