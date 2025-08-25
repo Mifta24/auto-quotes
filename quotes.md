@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Victory is always possible for the person who refuses to stop fighting."  
+> "The way of success is the way of continuous pursuit of knowledge."  
 > — **Napoleon Hill**
 
 ---
