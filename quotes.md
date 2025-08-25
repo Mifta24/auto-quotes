@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "I cannot make my days longer so I strive to make them better."  
+> — **Henry David Thoreau**
 
 ---
 
