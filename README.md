@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "If you truly love Nature, you will find beauty everywhere. "  
+> — **Vincent van Gogh**
 
 ---
 

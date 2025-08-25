@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I cannot make my days longer so I strive to make them better."  
-> — **Henry David Thoreau**
+> "If you truly love Nature, you will find beauty everywhere. "  
+> — **Vincent van Gogh**
 
 ---
 
