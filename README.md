@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot expect to be happy always... by experiencing evil as well as good we become wise."  
-> — **Hans Christian Andersen**
+> "The pain of parting is nothing to the joy of meeting again."  
+> — **Charles Dickens**
 
 ---
 
