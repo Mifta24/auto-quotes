@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pain of parting is nothing to the joy of meeting again."  
-> — **Charles Dickens**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 
