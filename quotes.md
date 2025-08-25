@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Discipline is the mark of intelligent living."  
-> — **Sathya Sai Baba**
+> "Victory is always possible for the person who refuses to stop fighting."  
+> — **Napoleon Hill**
 
 ---
 
-_Last updated: 24 August 2025 ⏳_
+_Last updated: 25 August 2025 ⏳_

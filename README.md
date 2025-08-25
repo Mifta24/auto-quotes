@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "First say to yourself what you would be; and then do what you have to do."  
-> — **Epictetus**
+> "Victory is always possible for the person who refuses to stop fighting."  
+> — **Napoleon Hill**
 
 ---
 
-_Last updated: 24 August 2025 ⏳_
+_Last updated: 25 August 2025 ⏳_
