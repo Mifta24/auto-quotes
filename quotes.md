@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pain of parting is nothing to the joy of meeting again."  
-> — **Charles Dickens**
+> "You live by what you thrill to, and there's the end of it."  
+> — **D. H. Lawrence**
 
 ---
 
