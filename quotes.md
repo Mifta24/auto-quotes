@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot expect to be happy always... by experiencing evil as well as good we become wise."  
-> — **Hans Christian Andersen**
+> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."  
+> — **Steve Jobs**
 
 ---
 
