@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly love Nature, you will find beauty everywhere. "  
-> — **Vincent van Gogh**
+> "Forever is composed of now's."  
+> — **Emily Dickinson**
 
 ---
 
