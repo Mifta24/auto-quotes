@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "Not engaging in ignorance is wisdom. "  
+> — **Bodhidharma**
 
 ---
 

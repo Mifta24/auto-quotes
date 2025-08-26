@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "Not engaging in ignorance is wisdom. "  
+> — **Bodhidharma**
 
 ---
 
