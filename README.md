@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the love you make. It's the love you give. "  
-> — **Nikola Tesla**
+> "When you are tough on yourself, life is going to be infinitely easier on you.  "  
+> — **Zig Ziglar**
 
 ---
 

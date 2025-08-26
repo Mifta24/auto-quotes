@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
-> — **Norman Vincent Peale**
+> "When you are tough on yourself, life is going to be infinitely easier on you.  "  
+> — **Zig Ziglar**
 
 ---
 
