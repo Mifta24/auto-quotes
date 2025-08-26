@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People think about what they don't want and attract more of the same."  
-> — **Unknown**
+> "It's not the love you make. It's the love you give. "  
+> — **Nikola Tesla**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not engaging in ignorance is wisdom. "  
-> — **Bodhidharma**
+> "It's not the love you make. It's the love you give. "  
+> — **Nikola Tesla**
 
 ---
 
