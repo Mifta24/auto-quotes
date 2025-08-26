@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not engaging in ignorance is wisdom. "  
-> — **Bodhidharma**
+> "People think about what they don't want and attract more of the same."  
+> — **Unknown**
 
 ---
 
