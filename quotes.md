@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
