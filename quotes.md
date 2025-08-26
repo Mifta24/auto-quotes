@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
-> — **Dogen**
+> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
+> — **Steve Maraboli**
 
 ---
 
