@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Forever is composed of now's."  
-> — **Emily Dickinson**
+> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
+> — **Dogen**
 
 ---
 
-_Last updated: 25 August 2025 ⏳_
+_Last updated: 26 August 2025 ⏳_
