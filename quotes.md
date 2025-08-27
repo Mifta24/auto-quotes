@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is open for play, everything and everybody is mockable in a wonderful way."  
-> — **Robin Williams**
+> "Fear of death is fear of the Unknown."  
+> — **Adi Da Samraj**
 
 ---
 
