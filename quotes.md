@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams."  
-> — **D. H. Lawrence**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 
