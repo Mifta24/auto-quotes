@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams."  
-> — **D. H. Lawrence**
+> "The world is open for play, everything and everybody is mockable in a wonderful way."  
+> — **Robin Williams**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "The world is open for play, everything and everybody is mockable in a wonderful way."  
+> — **Robin Williams**
 
 ---
 
