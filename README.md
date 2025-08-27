@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live in the sunshine, swim the sea, drink the wild air."  
-> — **Ralph Waldo Emerson**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 
