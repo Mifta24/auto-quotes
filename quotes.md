@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever happens always happens on time."  
-> — **Zen Proverb**
+> "Problems remain as problems because people are busy defending them rather than finding solutions."  
+> — **Celestine Chua**
 
 ---
 
