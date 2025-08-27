@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is open for play, everything and everybody is mockable in a wonderful way."  
-> — **Robin Williams**
+> "Live in the sunshine, swim the sea, drink the wild air."  
+> — **Ralph Waldo Emerson**
 
 ---
 

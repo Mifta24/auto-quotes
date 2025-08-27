@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear of death is fear of the Unknown."  
-> — **Adi Da Samraj**
+> "Live in the sunshine, swim the sea, drink the wild air."  
+> — **Ralph Waldo Emerson**
 
 ---
 
