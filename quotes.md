@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Problems remain as problems because people are busy defending them rather than finding solutions."  
-> — **Celestine Chua**
+> "By failing to prepare, you are preparing to fail."  
+> — **Benjamin Franklin**
 
 ---
 
