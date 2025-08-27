@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you are tough on yourself, life is going to be infinitely easier on you.  "  
-> — **Zig Ziglar**
+> "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams."  
+> — **D. H. Lawrence**
 
 ---
 
-_Last updated: 26 August 2025 ⏳_
+_Last updated: 27 August 2025 ⏳_
