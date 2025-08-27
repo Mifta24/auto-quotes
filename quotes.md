@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live in the sunshine, swim the sea, drink the wild air."  
-> — **Ralph Waldo Emerson**
+> "It is better to disappoint people with the truth than to appease them with a lie."  
+> — **Simon Sinek**
 
 ---
 
