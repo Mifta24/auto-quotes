@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "If I have seen further than others, it is by standing upon the shoulders of giants."  
+> — **Isaac Newton**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "If I have seen further than others, it is by standing upon the shoulders of giants."  
+> — **Isaac Newton**
 
 ---
 
