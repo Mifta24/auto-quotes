@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I have seen further than others, it is by standing upon the shoulders of giants."  
-> — **Isaac Newton**
+> "In order for you to be the BEST you can be for others, first you must be BEST for yourself."  
+> — **Jeffrey Gitomer**
 
 ---
 
