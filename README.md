@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I have seen further than others, it is by standing upon the shoulders of giants."  
-> — **Isaac Newton**
+> "Even though you are on the right track - you will get run over if you just sit there."  
+> — **Will Rogers**
 
 ---
 

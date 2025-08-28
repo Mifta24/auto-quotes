@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order for you to be the BEST you can be for others, first you must be BEST for yourself."  
-> — **Jeffrey Gitomer**
+> "Even though you are on the right track - you will get run over if you just sit there."  
+> — **Will Rogers**
 
 ---
 
