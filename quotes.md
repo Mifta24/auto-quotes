@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a beautiful melody, only the lyrics are messed up."  
-> — **Hans Christian Andersen**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 

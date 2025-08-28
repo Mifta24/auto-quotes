@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything eaten is killed. Every meal is a sacrifice."  
-> — **Adi Da Samraj**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 
