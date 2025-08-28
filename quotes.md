@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "Do not fear failure but rather fear not trying."  
+> — **Roy T. Bennett**
 
 ---
 
