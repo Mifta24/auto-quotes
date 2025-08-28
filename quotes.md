@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "By failing to prepare, you are preparing to fail."  
-> — **Benjamin Franklin**
+> "Everything eaten is killed. Every meal is a sacrifice."  
+> — **Adi Da Samraj**
 
 ---
 
-_Last updated: 27 August 2025 ⏳_
+_Last updated: 28 August 2025 ⏳_
