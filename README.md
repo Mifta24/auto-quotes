@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even though you are on the right track - you will get run over if you just sit there."  
-> — **Will Rogers**
+> "Don't talk about what you have done or what you are going to do."  
+> — **Thomas Jefferson**
 
 ---
 

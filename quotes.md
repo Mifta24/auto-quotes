@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."  
-> — **Bhagavad Gita**
+> "Don't talk about what you have done or what you are going to do."  
+> — **Thomas Jefferson**
 
 ---
 
