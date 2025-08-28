@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything eaten is killed. Every meal is a sacrifice."  
-> — **Adi Da Samraj**
+> "Life is like a beautiful melody, only the lyrics are messed up."  
+> — **Hans Christian Andersen**
 
 ---
 
