@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even though you are on the right track - you will get run over if you just sit there."  
-> — **Will Rogers**
+> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."  
+> — **Bhagavad Gita**
 
 ---
 
