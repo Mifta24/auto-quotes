@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man is affected not by events but by the view he takes of them.  "  
-> — **Seneca**
+> "The pursuit of mastery bears gifts. "  
+> — **Gary Keller**
 
 ---
 

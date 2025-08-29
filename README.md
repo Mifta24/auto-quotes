@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not engaging in ignorance is wisdom. "  
-> — **Bodhidharma**
+> "The pursuit of mastery bears gifts. "  
+> — **Gary Keller**
 
 ---
 
