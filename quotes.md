@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves."  
-> — **Adi Da Samraj**
+> "You get paid in direct proportion to the difficulty of problems you solve."  
+> — **Elon Musk**
 
 ---
 
