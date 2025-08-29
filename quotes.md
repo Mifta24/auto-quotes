@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power to make and break habits and learning how to do that is really important."  
-> — **Naval Ravikant**
+> "an action committed in anger is an action doomed to failure. "  
+> — **Genghis Khan**
 
 ---
 
