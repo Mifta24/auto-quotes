@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
-> — **Steve Jobs**
+> "The power to make and break habits and learning how to do that is really important."  
+> — **Naval Ravikant**
 
 ---
 
