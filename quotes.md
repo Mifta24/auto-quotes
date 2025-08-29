@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
+> — **Mark Twain**
 
 ---
 
