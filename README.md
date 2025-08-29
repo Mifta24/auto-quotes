@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power to make and break habits and learning how to do that is really important."  
-> — **Naval Ravikant**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "an action committed in anger is an action doomed to failure. "  
-> — **Genghis Khan**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 
