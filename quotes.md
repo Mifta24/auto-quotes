@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not engaging in ignorance is wisdom. "  
-> — **Bodhidharma**
+> "Man is affected not by events but by the view he takes of them.  "  
+> — **Seneca**
 
 ---
 
