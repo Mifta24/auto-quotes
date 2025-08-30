@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hut full of laughter is richer than a palace full of sadness."  
-> — **Zen Proverb**
+> "The more you like yourself, the less you are like anyone else, which makes you unique."  
+> — **Walt Disney**
 
 ---
 
