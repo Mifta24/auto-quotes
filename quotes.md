@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
-> — **Mark Twain**
+> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
+> — **Bhagavad Gita**
 
 ---
 
-_Last updated: 29 August 2025 ⏳_
+_Last updated: 30 August 2025 ⏳_

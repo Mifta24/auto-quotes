@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
+> — **Bhagavad Gita**
 
 ---
 
-_Last updated: 29 August 2025 ⏳_
+_Last updated: 30 August 2025 ⏳_
