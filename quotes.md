@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader leads by example, not by force."  
-> — **Sun Tzu**
+> "A hut full of laughter is richer than a palace full of sadness."  
+> — **Zen Proverb**
 
 ---
 
