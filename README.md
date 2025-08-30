@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
-> — **Bhagavad Gita**
+> "Never stand begging for that which you have the power to earn."  
+> — **Miguel de Cervantes**
 
 ---
 
