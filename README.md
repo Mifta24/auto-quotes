@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never stand begging for that which you have the power to earn."  
-> — **Miguel de Cervantes**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 

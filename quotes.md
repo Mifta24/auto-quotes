@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What people need and what they want may be very different."  
-> — **Elbert Hubbard**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 
