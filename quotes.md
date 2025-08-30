@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead?"  
-> — **Seneca**
+> "A leader leads by example, not by force."  
+> — **Sun Tzu**
 
 ---
 
