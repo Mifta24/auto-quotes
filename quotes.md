@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never stand begging for that which you have the power to earn."  
-> — **Miguel de Cervantes**
+> "What people need and what they want may be very different."  
+> — **Elbert Hubbard**
 
 ---
 
