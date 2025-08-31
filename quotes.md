@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
-> — **Roy T. Bennett**
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
+> — **Criss Jami**
 
 ---
 
