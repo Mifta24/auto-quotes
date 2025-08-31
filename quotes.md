@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One small positive thought can change your whole day."  
-> — **Zig Ziglar**
+> "The time is now, the place is here. Stay in the present."  
+> — **Dan Millman**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all here for some special reason."  
-> — **Robin Sharma**
+> "The time is now, the place is here. Stay in the present."  
+> — **Dan Millman**
 
 ---
 
