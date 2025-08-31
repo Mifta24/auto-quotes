@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all here for some special reason."  
-> — **Robin Sharma**
+> "One small positive thought can change your whole day."  
+> — **Zig Ziglar**
 
 ---
 
