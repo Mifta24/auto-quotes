@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others have seen what is and asked why. I have seen what could be and asked why not"  
-> — **Pablo Picasso**
+> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
+> — **Roy T. Bennett**
 
 ---
 
