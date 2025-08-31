@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A hut full of laughter is richer than a palace full of sadness."  
-> — **Zen Proverb**
+> "The most tragic thing in the world is a man of genius who is not a man of honor."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 30 August 2025 ⏳_
+_Last updated: 31 August 2025 ⏳_

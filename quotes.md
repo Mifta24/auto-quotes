@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The more you like yourself, the less you are like anyone else, which makes you unique."  
-> — **Walt Disney**
+> "The most tragic thing in the world is a man of genius who is not a man of honor."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 30 August 2025 ⏳_
+_Last updated: 31 August 2025 ⏳_
