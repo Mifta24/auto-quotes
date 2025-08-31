@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is now, the place is here. Stay in the present."  
-> — **Dan Millman**
+> "I hear and I forget. I see and I remember. I do and I understand. "  
+> — **Confucius**
 
 ---
 
