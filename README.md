@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most tragic thing in the world is a man of genius who is not a man of honor."  
-> — **George Bernard Shaw**
+> "We are all here for some special reason."  
+> — **Robin Sharma**
 
 ---
 
