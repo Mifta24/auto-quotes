@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
+> — **Brian Tracy**
 
 ---
 

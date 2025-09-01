@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing is not enough, we must apply. Willing is not enough, we must do.  "  
-> — **Bruce Lee**
+> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
+> — **Brian Tracy**
 
 ---
 
