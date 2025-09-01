@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
-> — **Steve Maraboli**
+> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
+> — **F. Scott Fitzgerald**
 
 ---
 
