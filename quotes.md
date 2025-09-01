@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
-> — **Brian Tracy**
+> "Man is made by his belief. As he believes, so he is."  
+> — **Bhagavad Gita**
 
 ---
 
