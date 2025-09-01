@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man is made by his belief. As he believes, so he is."  
-> — **Bhagavad Gita**
+> "The Only Thing That Is Constant Is Change"  
+> — **Heraclitus**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
-> — **Brian Tracy**
+> "The Only Thing That Is Constant Is Change"  
+> — **Heraclitus**
 
 ---
 
