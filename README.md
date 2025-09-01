@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Knowing is not enough, we must apply. Willing is not enough, we must do.  "  
+> — **Bruce Lee**
 
 ---
 
