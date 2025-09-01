@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't make things happen then things will happen to you."  
-> — **Robert Collier**
+> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
+> — **Steve Maraboli**
 
 ---
 
