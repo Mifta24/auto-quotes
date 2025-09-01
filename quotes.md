@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Only Thing That Is Constant Is Change"  
-> — **Heraclitus**
+> "If you don't make things happen then things will happen to you."  
+> — **Robert Collier**
 
 ---
 
