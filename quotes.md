@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds are always feared by lesser minds."  
-> — **Dan Brown**
+> "The first principle of success is desire."  
+> — **Robert Collier**
 
 ---
 

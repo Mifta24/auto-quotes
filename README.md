@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "The first principle of success is desire."  
+> — **Robert Collier**
 
 ---
 
