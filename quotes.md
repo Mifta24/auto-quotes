@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "Great minds are always feared by lesser minds."  
+> — **Dan Brown**
 
 ---
 
