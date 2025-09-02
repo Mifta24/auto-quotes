@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowledge is a treasure, but practice is the key to it."  
-> — **Lao Tzu**
+> "Work as though you would live forever, and live as though you would die today. Go another mile."  
+> — **Og Mandino**
 
 ---
 
