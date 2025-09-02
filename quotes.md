@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
