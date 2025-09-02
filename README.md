@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The shoe that fits one person pinches another; there is no recipe for living that suits all cases."  
-> — **Carl Jung**
+> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
+> — **Toni Morrison**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more perfect a person is on the outside, the more demons they have on the inside."  
-> — **Sigmund Freud**
+> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
+> — **Toni Morrison**
 
 ---
 
