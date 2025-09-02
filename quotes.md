@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The shoe that fits one person pinches another; there is no recipe for living that suits all cases."  
-> — **Carl Jung**
+> "The more perfect a person is on the outside, the more demons they have on the inside."  
+> — **Sigmund Freud**
 
 ---
 
