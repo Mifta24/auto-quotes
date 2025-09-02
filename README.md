@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today."  
-> — **Steve Maraboli**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 01 September 2025 ⏳_
+_Last updated: 02 September 2025 ⏳_

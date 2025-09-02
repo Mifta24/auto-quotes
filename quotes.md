@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
-> — **F. Scott Fitzgerald**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 01 September 2025 ⏳_
+_Last updated: 02 September 2025 ⏳_
