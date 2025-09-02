@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Observe things as they are and don't pay attention to other people."  
-> — **Huang Po**
+> "The shoe that fits one person pinches another; there is no recipe for living that suits all cases."  
+> — **Carl Jung**
 
 ---
 
