@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first principle of success is desire."  
-> — **Robert Collier**
+> "Observe things as they are and don't pay attention to other people."  
+> — **Huang Po**
 
 ---
 
