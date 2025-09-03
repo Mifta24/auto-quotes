@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The purpose of life is to contribute in some way to making things better."  
-> — **Robert F. Kennedy**
+> "Do every act of your life as if it were your last."  
+> — **Marcus Aurelius**
 
 ---
 

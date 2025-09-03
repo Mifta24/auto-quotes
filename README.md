@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
-> — **William Faulkner**
+> "Do every act of your life as if it were your last."  
+> — **Marcus Aurelius**
 
 ---
 
