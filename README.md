@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Normal is the average of deviance."  
-> — **Rita Mae Brown**
+> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
+> — **William Faulkner**
 
 ---
 
