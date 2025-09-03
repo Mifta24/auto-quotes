@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no one giant step that does it. It's a lot of little steps."  
-> — **Peter A. Cohen**
+> "Over time, loneliness gets inside you and doesn't go away."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
