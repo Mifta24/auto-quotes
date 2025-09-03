@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you become is far more important than what you get."  
-> — **Jim Rohn**
+> "There is no one giant step that does it. It's a lot of little steps."  
+> — **Peter A. Cohen**
 
 ---
 

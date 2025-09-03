@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "There is no one giant step that does it. It's a lot of little steps."  
+> — **Peter A. Cohen**
 
 ---
 
