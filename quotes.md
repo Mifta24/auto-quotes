@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Normal is the average of deviance."  
-> — **Rita Mae Brown**
+> "When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head."  
+> — **Stephen King**
 
 ---
 
