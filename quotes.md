@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do every act of your life as if it were your last."  
-> — **Marcus Aurelius**
+> "The hard path is often the right one. The river teaches more than the shore."  
+> — **Maxime Lagace**
 
 ---
 
