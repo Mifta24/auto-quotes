@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Over time, loneliness gets inside you and doesn't go away."  
-> — **Carlos Ruiz Zafon**
+> "Normal is the average of deviance."  
+> — **Rita Mae Brown**
 
 ---
 
