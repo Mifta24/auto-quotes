@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you become is far more important than what you get."  
-> — **Jim Rohn**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
