@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Discipline yourself, and others won't need to."  
-> — **John Wooden**
+> "You must find the place inside yourself where nothing is impossible."  
+> — **Les Brown**
 
 ---
 
