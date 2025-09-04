@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have never in my life learned anything from any man who agreed with me."  
-> — **Dudley Field Malone**
+> "Life is like riding a bicycle. To keep your balance you must keep moving."  
+> — **Albert Einstein**
 
 ---
 
