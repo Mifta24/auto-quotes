@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must find the place inside yourself where nothing is impossible."  
-> — **Les Brown**
+> "You are not only responsible for what you say, but also for what you do not say. "  
+> — **Martin Luther**
 
 ---
 
