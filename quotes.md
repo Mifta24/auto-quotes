@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have power over your mind - not outside events. Realize this, and you will find strength."  
-> — **Marcus Aurelius**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 
