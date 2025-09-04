@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must find the place inside yourself where nothing is impossible."  
-> — **Les Brown**
+> "You have power over your mind - not outside events. Realize this, and you will find strength."  
+> — **Marcus Aurelius**
 
 ---
 
