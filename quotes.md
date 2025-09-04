@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."  
-> — **Tony Robbins**
+> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
+> — **Hans Christian Andersen**
 
 ---
 
