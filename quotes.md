@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like riding a bicycle. To keep your balance you must keep moving."  
-> — **Albert Einstein**
+> "The only thing new in the world is the history you do not know."  
+> — **Harry S. Truman**
 
 ---
 
