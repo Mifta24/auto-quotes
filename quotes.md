@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People don't care how much you know until they know how much you care."  
-> — **Theodore Roosevelt**
+> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."  
+> — **Harry S. Truman**
 
 ---
 
