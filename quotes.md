@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."  
-> — **Harry S. Truman**
+> "It's the unknown we fear when we look upon death and darkness, nothing more."  
+> — **Albus Dumbledore**
 
 ---
 
