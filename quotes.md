@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the unknown we fear when we look upon death and darkness, nothing more."  
-> — **Albus Dumbledore**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."  
-> — **Harry S. Truman**
+> "He who is not contented with what he has, would not be contented with what he would like to have."  
+> — **Socrates**
 
 ---
 
