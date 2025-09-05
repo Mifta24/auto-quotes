@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no way to happiness - happiness is the way."  
-> — **Thich Nhat Hanh**
+> "Sometimes it is more important to discover what one cannot do, than what one can do."  
+> — **Lin Yutang**
 
 ---
 
