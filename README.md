@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no way to happiness - happiness is the way."  
-> — **Thich Nhat Hanh**
+> "The art of being wise is knowing what to overlook."  
+> — **William James**
 
 ---
 

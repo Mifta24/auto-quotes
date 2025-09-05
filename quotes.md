@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is more important to discover what one cannot do, than what one can do."  
-> — **Lin Yutang**
+> "The art of being wise is knowing what to overlook."  
+> — **William James**
 
 ---
 
