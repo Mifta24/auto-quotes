@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is like riding a bicycle. To keep your balance you must keep moving."  
-> — **Albert Einstein**
+> "There is no way to happiness - happiness is the way."  
+> — **Thich Nhat Hanh**
 
 ---
 
-_Last updated: 04 September 2025 ⏳_
+_Last updated: 05 September 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only thing new in the world is the history you do not know."  
-> — **Harry S. Truman**
+> "There is no way to happiness - happiness is the way."  
+> — **Thich Nhat Hanh**
 
 ---
 
-_Last updated: 04 September 2025 ⏳_
+_Last updated: 05 September 2025 ⏳_
