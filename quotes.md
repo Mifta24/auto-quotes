@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We tend to live up to our expectations."  
-> — **Earl Nightingale**
+> "A mountain never yields to the wind no matter how strong it is."  
+> — **Zen Proverb**
 
 ---
 
