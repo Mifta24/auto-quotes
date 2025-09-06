@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Being wrong opens us up to the possibility of change."  
-> — **Mark Manson**
+> "No matter how tall the mountain is, it cannot block the sun."  
+> — **Chinese Proverb**
 
 ---
 
-_Last updated: 05 September 2025 ⏳_
+_Last updated: 06 September 2025 ⏳_
