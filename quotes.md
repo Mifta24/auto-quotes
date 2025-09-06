@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter how tall the mountain is, it cannot block the sun."  
-> — **Chinese Proverb**
+> "The scariest moment is always just before you start. After that, things can only get better."  
+> — **Stephen King**
 
 ---
 
