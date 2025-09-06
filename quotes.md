@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A mountain never yields to the wind no matter how strong it is."  
-> — **Zen Proverb**
+> "Trust is the foundation of great leadership."  
+> — **Lolly Daskal**
 
 ---
 
