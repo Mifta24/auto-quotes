@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The scariest moment is always just before you start. After that, things can only get better."  
-> — **Stephen King**
+> "The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you."  
+> — **Sonia Ricotti**
 
 ---
 

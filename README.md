@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter how tall the mountain is, it cannot block the sun."  
-> — **Chinese Proverb**
+> "The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you."  
+> — **Sonia Ricotti**
 
 ---
 
