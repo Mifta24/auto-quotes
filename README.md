@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A mountain never yields to the wind no matter how strong it is."  
-> — **Zen Proverb**
+> "Peace begins with a smile."  
+> — **Mother Teresa**
 
 ---
 
-_Last updated: 06 September 2025 ⏳_
+_Last updated: 07 September 2025 ⏳_

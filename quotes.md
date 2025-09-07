@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Trust is the foundation of great leadership."  
-> — **Lolly Daskal**
+> "Peace begins with a smile."  
+> — **Mother Teresa**
 
 ---
 
-_Last updated: 06 September 2025 ⏳_
+_Last updated: 07 September 2025 ⏳_
