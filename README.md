@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "The truth is simple. If it was complicated, everyone would understand it."  
+> — **Walt Whitman**
 
 ---
 
