@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is simple. If it was complicated, everyone would understand it."  
-> — **Walt Whitman**
+> "We turn not older with years but newer every day."  
+> — **Emily Dickinson**
 
 ---
 
