@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perplexity is the beginning of knowledge."  
-> — **Kahlil Gibran**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 
