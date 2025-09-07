@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace begins with a smile."  
-> — **Mother Teresa**
+> "There is no greatness where there is not simplicity, goodness, and truth."  
+> — **Leo Tolstoy**
 
 ---
 

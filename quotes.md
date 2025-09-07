@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
-> — **Oprah Winfrey**
+> "There is no greatness where there is not simplicity, goodness, and truth."  
+> — **Leo Tolstoy**
 
 ---
 
