@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no greatness where there is not simplicity, goodness, and truth."  
-> — **Leo Tolstoy**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 
