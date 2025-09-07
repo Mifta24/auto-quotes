@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "Perplexity is the beginning of knowledge."  
+> — **Kahlil Gibran**
 
 ---
 
