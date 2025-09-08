@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't spend time beating on a wall, hoping to transform it into a door."  
-> — **Coco Chanel**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 
