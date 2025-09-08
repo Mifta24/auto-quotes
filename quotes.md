@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't spend time beating on a wall, hoping to transform it into a door."  
-> — **Coco Chanel**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 
