@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make your mind your own business."  
-> — **Jack Butcher**
+> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
+> — **Maxime Lagace**
 
 ---
 

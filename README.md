@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
+> — **Maxime Lagace**
 
 ---
 
