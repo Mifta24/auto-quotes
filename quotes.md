@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
-> — **Napoleon Hill**
+> "By failing to prepare, you are preparing to fail."  
+> — **Benjamin Franklin**
 
 ---
 
