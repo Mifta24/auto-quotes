@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience."  
-> — **Deepak Chopra**
+> "One is never afraid of the unknown; one is afraid of the known coming to an end."  
+> — **Jiddu Krishnamurti**
 
 ---
 

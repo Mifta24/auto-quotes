@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By failing to prepare, you are preparing to fail."  
-> — **Benjamin Franklin**
+> "One is never afraid of the unknown; one is afraid of the known coming to an end."  
+> — **Jiddu Krishnamurti**
 
 ---
 
