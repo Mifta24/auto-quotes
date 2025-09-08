@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The goal is not to show how great you are to others, but how vulnerable you are to yourself."  
-> — **Maxime Lagace**
+> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
+> — **Napoleon Hill**
 
 ---
 
