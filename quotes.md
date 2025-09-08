@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "Make your mind your own business."  
+> — **Jack Butcher**
 
 ---
 
