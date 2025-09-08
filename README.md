@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The truth is simple. If it was complicated, everyone would understand it."  
-> — **Walt Whitman**
+> "Don't spend time beating on a wall, hoping to transform it into a door."  
+> — **Coco Chanel**
 
 ---
 
-_Last updated: 07 September 2025 ⏳_
+_Last updated: 08 September 2025 ⏳_

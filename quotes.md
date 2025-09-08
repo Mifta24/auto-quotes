@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "Don't spend time beating on a wall, hoping to transform it into a door."  
+> — **Coco Chanel**
 
 ---
 
-_Last updated: 07 September 2025 ⏳_
+_Last updated: 08 September 2025 ⏳_
