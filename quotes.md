@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "True life is lived when tiny changes occur."  
+> — **Leo Tolstoy**
 
 ---
 
