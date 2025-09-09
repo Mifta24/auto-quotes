@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only way out is through."  
-> — **Robert Frost**
+> "If you're really truthful with yourself, it's a wonderful guidance.  "  
+> — **Charlie Chaplin**
 
 ---
 
-_Last updated: 08 September 2025 ⏳_
+_Last updated: 09 September 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "One is never afraid of the unknown; one is afraid of the known coming to an end."  
-> — **Jiddu Krishnamurti**
+> "If you're really truthful with yourself, it's a wonderful guidance.  "  
+> — **Charlie Chaplin**
 
 ---
 
-_Last updated: 08 September 2025 ⏳_
+_Last updated: 09 September 2025 ⏳_
