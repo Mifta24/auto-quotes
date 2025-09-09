@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To do two things at once is to do neither."  
-> — **Publilius Syrus**
+> "People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."  
+> — **Brian Tracy**
 
 ---
 
