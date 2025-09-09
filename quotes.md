@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
-> — **Naval Ravikant**
+> "It's your life-but only if you make it so."  
+> — **Eleanor Roosevelt**
 
 ---
 
