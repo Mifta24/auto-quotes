@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."  
-> — **Brian Tracy**
+> "Deeds will not be less valiant because they are upraised."  
+> — **J.R.R. Tolkien**
 
 ---
 

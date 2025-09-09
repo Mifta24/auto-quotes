@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To do two things at once is to do neither."  
-> — **Publilius Syrus**
+> "Deeds will not be less valiant because they are upraised."  
+> — **J.R.R. Tolkien**
 
 ---
 
