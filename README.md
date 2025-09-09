@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "To do two things at once is to do neither."  
+> — **Publilius Syrus**
 
 ---
 

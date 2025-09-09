@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True life is lived when tiny changes occur."  
-> — **Leo Tolstoy**
+> "To do two things at once is to do neither."  
+> — **Publilius Syrus**
 
 ---
 
