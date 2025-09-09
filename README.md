@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're really truthful with yourself, it's a wonderful guidance.  "  
-> — **Charlie Chaplin**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 

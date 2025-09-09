@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction."  
-> — **Criss Jami**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 
