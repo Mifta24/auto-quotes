@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your life-but only if you make it so."  
-> — **Eleanor Roosevelt**
+> "There is no significance in life without struggle."  
+> — **Lolly Daskal**
 
 ---
 
