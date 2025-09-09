@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're really truthful with yourself, it's a wonderful guidance.  "  
-> — **Charlie Chaplin**
+> "A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction."  
+> — **Criss Jami**
 
 ---
 
