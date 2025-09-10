@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you always do what you've always done, you'll always get what you've always got. "  
-> — **Henry Ford**
+> "I will not walk backward in life."  
+> — **J.R.R. Tolkien**
 
 ---
 
