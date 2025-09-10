@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "Laziness may appear attractive, but work gives satisfaction."  
+> — **Anne Frank**
 
 ---
 
