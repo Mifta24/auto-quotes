@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Laziness may appear attractive, but work gives satisfaction."  
-> — **Anne Frank**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 

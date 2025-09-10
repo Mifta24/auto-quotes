@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 
