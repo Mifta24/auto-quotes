@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."  
-> — **Napoleon Hill**
+> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
+> — **Brian Tracy**
 
 ---
 
