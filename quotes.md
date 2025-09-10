@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "Stop being tormented by everyone else's reaction to you."  
+> — **Joyce Meyer**
 
 ---
 
