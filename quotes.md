@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
-> — **Brian Tracy**
+> "If you always do what you've always done, you'll always get what you've always got. "  
+> — **Henry Ford**
 
 ---
 
