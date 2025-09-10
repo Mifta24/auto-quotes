@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The few who do are the envy of the many who only watch."  
-> — **Jim Rohn**
+> "All wealth is the product of labor."  
+> — **John Locke**
 
 ---
 
