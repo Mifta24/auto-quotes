@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope means hoping when everything seems hopeless."  
-> — **Gilbert Chesterton**
+> "When something is important enough, you do it even if the odds are not in your favor."  
+> — **Elon Musk**
 
 ---
 
