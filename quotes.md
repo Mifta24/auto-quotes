@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope means hoping when everything seems hopeless."  
-> — **Gilbert Chesterton**
+> "Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along."  
+> — **Celestine Chua**
 
 ---
 
