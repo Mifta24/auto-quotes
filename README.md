@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed."  
+> — **Deepak Chopra**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only people without problems are those in cemeteries."  
-> — **Tony Robbins**
+> "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed."  
+> — **Deepak Chopra**
 
 ---
 
