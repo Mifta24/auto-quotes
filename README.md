@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "Better to die fighting for freedom than be a prisoner all the days of your life."  
+> — **Bob Marley**
 
 ---
 
-_Last updated: 10 September 2025 ⏳_
+_Last updated: 11 September 2025 ⏳_
