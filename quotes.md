@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "The only people without problems are those in cemeteries."  
+> — **Tony Robbins**
 
 ---
 
