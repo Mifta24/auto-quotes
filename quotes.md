@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed."  
-> — **Deepak Chopra**
+> "Live, travel, adventure, bless, and don't be sorry.  "  
+> — **Jack Kerouac**
 
 ---
 
