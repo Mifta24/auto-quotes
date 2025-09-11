@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When something is important enough, you do it even if the odds are not in your favor."  
-> — **Elon Musk**
+> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
+> — **Hans Christian Andersen**
 
 ---
 
