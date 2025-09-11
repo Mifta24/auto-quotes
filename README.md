@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed."  
-> — **Deepak Chopra**
+> "Hope means hoping when everything seems hopeless."  
+> — **Gilbert Chesterton**
 
 ---
 

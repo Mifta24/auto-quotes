@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live, travel, adventure, bless, and don't be sorry.  "  
-> — **Jack Kerouac**
+> "Hope means hoping when everything seems hopeless."  
+> — **Gilbert Chesterton**
 
 ---
 
