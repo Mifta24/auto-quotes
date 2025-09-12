@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and death are of supreme importance. Time swiftly passes by and opportunity is lost."  
-> — **Dogen**
+> "Of all men's miseries the bitterest is this: to know so much and to have control over nothing. "  
+> — **Herodotus**
 
 ---
 

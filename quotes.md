@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're on earth. There's no cure for that."  
-> — **Samuel Beckett**
+> "Of all men's miseries the bitterest is this: to know so much and to have control over nothing. "  
+> — **Herodotus**
 
 ---
 
