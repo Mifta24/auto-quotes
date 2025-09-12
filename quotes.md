@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and death are of supreme importance. Time swiftly passes by and opportunity is lost."  
-> — **Dogen**
+> "You're on earth. There's no cure for that."  
+> — **Samuel Beckett**
 
 ---
 
