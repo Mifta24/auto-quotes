@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "Life and death are of supreme importance. Time swiftly passes by and opportunity is lost."  
+> — **Dogen**
 
 ---
 
