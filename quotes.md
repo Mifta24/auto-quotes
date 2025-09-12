@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the foundation of great leadership."  
-> — **Lolly Daskal**
+> "We have no more right to consume happiness without producing it than to consume wealth without producing it."  
+> — **George Bernard Shaw**
 
 ---
 
