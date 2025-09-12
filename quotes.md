@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have no more right to consume happiness without producing it than to consume wealth without producing it."  
-> — **George Bernard Shaw**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 

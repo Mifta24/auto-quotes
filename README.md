@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the foundation of great leadership."  
-> — **Lolly Daskal**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
