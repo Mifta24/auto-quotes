@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no value in anything until it is finished. "  
-> — **Genghis Khan**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 
