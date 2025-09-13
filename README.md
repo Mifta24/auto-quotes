@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
+> — **Robert Greene**
 
 ---
 
