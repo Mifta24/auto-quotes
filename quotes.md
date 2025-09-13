@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are enlightened never stop forging themselves."  
-> — **Morihei Ueshiba**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 

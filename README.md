@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
-> — **Jon Kabat-Zinn**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
