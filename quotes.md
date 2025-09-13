@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the bar and your body will follow."  
-> — **Norman Vincent Peale**
+> "The journey, not the destination matters."  
+> — **T.S. Eliot**
 
 ---
 

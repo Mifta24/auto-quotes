@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
-> — **Robert Greene**
+> "The journey, not the destination matters."  
+> — **T.S. Eliot**
 
 ---
 
