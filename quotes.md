@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "Reversing your treatment of the man you have wronged is better than asking his forgiveness."  
+> — **Elbert Hubbard**
 
 ---
 
