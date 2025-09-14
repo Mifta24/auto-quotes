@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's what you do in the present that will redeem the past and thereby change the future."  
-> — **Paulo Coelho**
+> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
+> — **William Faulkner**
 
 ---
 
