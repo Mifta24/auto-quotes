@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is more important to discover what one cannot do, than what one can do."  
-> — **Lin Yutang**
+> "Be like a postage stamp. Stick to it until you get there."  
+> — **Bob Proctor**
 
 ---
 
