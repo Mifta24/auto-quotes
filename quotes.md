@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning is a weightless treasure you can always carry easily."  
-> — **Chinese Proverb**
+> "The only limits in our life are those we impose on ourselves."  
+> — **Bob Proctor**
 
 ---
 
