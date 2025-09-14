@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
-> — **Alexander Pope**
+> "Sometimes it is more important to discover what one cannot do, than what one can do."  
+> — **Lin Yutang**
 
 ---
 
