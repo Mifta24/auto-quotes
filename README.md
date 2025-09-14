@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is more important to discover what one cannot do, than what one can do."  
-> — **Lin Yutang**
+> "Learning is a weightless treasure you can always carry easily."  
+> — **Chinese Proverb**
 
 ---
 

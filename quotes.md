@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be like a postage stamp. Stick to it until you get there."  
-> — **Bob Proctor**
+> "Learning is a weightless treasure you can always carry easily."  
+> — **Chinese Proverb**
 
 ---
 
