@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's what you do in the present that will redeem the past and thereby change the future."  
-> — **Paulo Coelho**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
