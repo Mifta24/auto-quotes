@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Setting goals is the first step in turning the invisible into the visible."  
-> — **Tony Robbins**
+> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
+> — **Alexander Pope**
 
 ---
 
