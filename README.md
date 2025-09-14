@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning is a weightless treasure you can always carry easily."  
-> — **Chinese Proverb**
+> "It's what you do in the present that will redeem the past and thereby change the future."  
+> — **Paulo Coelho**
 
 ---
 
