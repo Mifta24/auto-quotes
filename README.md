@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "Setting goals is the first step in turning the invisible into the visible."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 13 September 2025 ⏳_
+_Last updated: 14 September 2025 ⏳_
