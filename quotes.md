@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fallacies do not cease to be fallacies because they become fashions."  
-> — **Gilbert Chesterton**
+> "Confidence comes not from always being right but not fearing to be wrong."  
+> — **Unknown**
 
 ---
 
