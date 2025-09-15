@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
-> — **Audrey Hepburn**
+> "Fallacies do not cease to be fallacies because they become fashions."  
+> — **Gilbert Chesterton**
 
 ---
 

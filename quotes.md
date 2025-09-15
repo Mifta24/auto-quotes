@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A memory is a beautiful thing, it's almost a desire that you miss."  
-> — **Gustave Flaubert**
+> "Fallacies do not cease to be fallacies because they become fashions."  
+> — **Gilbert Chesterton**
 
 ---
 
