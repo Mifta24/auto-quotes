@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
-> — **Audrey Hepburn**
+> "A memory is a beautiful thing, it's almost a desire that you miss."  
+> — **Gustave Flaubert**
 
 ---
 
