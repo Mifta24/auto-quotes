@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being wrong opens us up to the possibility of change."  
-> — **Mark Manson**
+> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
+> — **Deepak Chopra**
 
 ---
 
