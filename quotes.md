@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your goals are the road maps that guide you and show you what is possible for your life."  
-> — **Les Brown**
+> "Being wrong opens us up to the possibility of change."  
+> — **Mark Manson**
 
 ---
 
