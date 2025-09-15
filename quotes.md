@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must be free not because we claim freedom, but because we practice it."  
-> — **William Faulkner**
+> "Your goals are the road maps that guide you and show you what is possible for your life."  
+> — **Les Brown**
 
 ---
 
