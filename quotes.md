@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop being tormented by everyone else's reaction to you."  
-> — **Joyce Meyer**
+> "Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time."  
+> — **Thomas Edison**
 
 ---
 
