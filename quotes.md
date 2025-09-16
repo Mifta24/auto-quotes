@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not something ready made. It comes from your own actions."  
-> — **Dalai Lama**
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
+> — **Steve Harvey**
 
 ---
 
