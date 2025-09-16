@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
-> — **Steve Harvey**
+> "Inspiration exists, but it has to find you working."  
+> — **Pablo Picasso**
 
 ---
 
