@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Well done is better than well said."  
-> — **Benjamin Franklin**
+> "Stop being tormented by everyone else's reaction to you."  
+> — **Joyce Meyer**
 
 ---
 
