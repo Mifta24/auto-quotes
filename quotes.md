@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others."  
-> — **Dalai Lama**
+> "Take care of your body. It's the only place you have to live."  
+> — **Jim Rohn**
 
 ---
 
