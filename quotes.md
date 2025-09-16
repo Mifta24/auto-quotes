@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take care of your body. It's the only place you have to live."  
-> — **Jim Rohn**
+> "Well done is better than well said."  
+> — **Benjamin Franklin**
 
 ---
 
