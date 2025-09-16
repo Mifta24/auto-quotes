@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspiration exists, but it has to find you working."  
-> — **Pablo Picasso**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
