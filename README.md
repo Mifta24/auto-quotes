@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
-> — **Leonardo da Vinci**
+> "It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others."  
+> — **Dalai Lama**
 
 ---
 
-_Last updated: 15 September 2025 ⏳_
+_Last updated: 16 September 2025 ⏳_
