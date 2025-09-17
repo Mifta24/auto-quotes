@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
-> — **Osho**
+> "Every man desires to live long, but no man wishes to be old."  
+> — **Jonathan Swift**
 
 ---
 
