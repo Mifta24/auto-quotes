@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
-> — **Osho**
+> "Art is to console those who are broken by life."  
+> — **Vincent van Gogh**
 
 ---
 

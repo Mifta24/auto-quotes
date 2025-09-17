@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every man desires to live long, but no man wishes to be old."  
-> — **Jonathan Swift**
+> "Art is to console those who are broken by life."  
+> — **Vincent van Gogh**
 
 ---
 
