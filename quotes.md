@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To plant a garden is to believe in tomorrow.  "  
-> — **Audrey Hepburn**
+> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
+> — **Osho**
 
 ---
 
-_Last updated: 16 September 2025 ⏳_
+_Last updated: 17 September 2025 ⏳_
