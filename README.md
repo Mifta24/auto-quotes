@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must embrace pain and burn it as fuel for our journey."  
-> — **Kenji Miyazawa**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
