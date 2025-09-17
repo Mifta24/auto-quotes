@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
+> — **Aristotle**
 
 ---
 
