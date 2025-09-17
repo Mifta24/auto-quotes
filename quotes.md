@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is to console those who are broken by life."  
-> — **Vincent van Gogh**
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
+> — **George Eliot**
 
 ---
 
