@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is to console those who are broken by life."  
-> — **Vincent van Gogh**
+> "If anything is worth doing, do it with all your heart."  
+> — **Buddha**
 
 ---
 
