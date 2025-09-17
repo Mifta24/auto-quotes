@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
-> — **Aristotle**
+> "We must embrace pain and burn it as fuel for our journey."  
+> — **Kenji Miyazawa**
 
 ---
 

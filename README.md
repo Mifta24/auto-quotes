@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "We must embrace pain and burn it as fuel for our journey."  
+> — **Kenji Miyazawa**
 
 ---
 
