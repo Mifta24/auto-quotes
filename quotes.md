@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
-> — **Anne Frank**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 
