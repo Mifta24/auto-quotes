@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conquer the devils with a little thing called love."  
-> — **Bob Marley**
+> "It is better to be looked over than overlooked."  
+> — **Mae West**
 
 ---
 

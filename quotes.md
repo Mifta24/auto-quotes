@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart wants what it wants. There's no logic. "  
-> — **Woody Allen**
+> "It is better to be looked over than overlooked."  
+> — **Mae West**
 
 ---
 
