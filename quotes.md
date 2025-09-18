@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conquer the devils with a little thing called love."  
-> — **Bob Marley**
+> "The heart wants what it wants. There's no logic. "  
+> — **Woody Allen**
 
 ---
 
