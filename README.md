@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to be looked over than overlooked."  
-> — **Mae West**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 

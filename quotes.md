@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perpetual optimism is a force multiplier."  
-> — **Colin Powell**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 
