@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to be looked over than overlooked."  
-> — **Mae West**
+> "Perpetual optimism is a force multiplier."  
+> — **Colin Powell**
 
 ---
 
