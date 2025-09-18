@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "Be who you are and say what you feel because those who mind don't matter and those who matter don't mind."  
+> — **Dr. Seuss**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
-> — **Anne Frank**
+> "Be who you are and say what you feel because those who mind don't matter and those who matter don't mind."  
+> — **Dr. Seuss**
 
 ---
 
