@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties."  
-> — **Harry S. Truman**
+> "As soon as you trust yourself, you will know how to live."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
-_Last updated: 17 September 2025 ⏳_
+_Last updated: 18 September 2025 ⏳_
