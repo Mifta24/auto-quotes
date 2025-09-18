@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As soon as you trust yourself, you will know how to live."  
-> — **Johann Wolfgang von Goethe**
+> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
+> — **Aristotle**
 
 ---
 
