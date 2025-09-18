@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
-> — **Aristotle**
+> "Conquer the devils with a little thing called love."  
+> — **Bob Marley**
 
 ---
 
