@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the noise of others opinions drown out your inner voice."  
-> — **Steve Jobs**
+> "Sadness is but a wall between two gardens."  
+> — **Kahlil Gibran**
 
 ---
 
