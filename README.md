@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed."  
-> — **Mark Twain**
+> "The eye with which I see God is the same eye with which God sees me."  
+> — **Meister Eckhart**
 
 ---
 

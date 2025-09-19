@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader leads by example, not by force."  
-> — **Sun Tzu**
+> "The eye with which I see God is the same eye with which God sees me."  
+> — **Meister Eckhart**
 
 ---
 
