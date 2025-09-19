@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What keeps life fascinating is the constant creativity of the soul."  
-> — **Deepak Chopra**
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
+> — **Brian Tracy**
 
 ---
 
