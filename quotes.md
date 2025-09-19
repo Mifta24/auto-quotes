@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The eye with which I see God is the same eye with which God sees me."  
-> — **Meister Eckhart**
+> "Unless you change how you are, you will always have what you got."  
+> — **Jim Rohn**
 
 ---
 
