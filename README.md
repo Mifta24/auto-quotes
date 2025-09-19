@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The eye with which I see God is the same eye with which God sees me."  
-> — **Meister Eckhart**
+> "Don't let the noise of others opinions drown out your inner voice."  
+> — **Steve Jobs**
 
 ---
 

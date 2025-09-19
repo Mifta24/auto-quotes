@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless you change how you are, you will always have what you got."  
-> — **Jim Rohn**
+> "Don't let the noise of others opinions drown out your inner voice."  
+> — **Steve Jobs**
 
 ---
 
