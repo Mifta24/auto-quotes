@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man should never be ashamed to own that he has been in the wrong, which is but saying, that he is wiser today than yesterday."  
-> — **Jonathan Swift**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 

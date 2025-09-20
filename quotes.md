@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else. "  
-> — **Margaret Mead**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 
