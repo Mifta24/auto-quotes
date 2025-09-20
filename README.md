@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand."  
-> — **Thich Nhat Hanh**
+> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
+> — **James Matthew Barrie**
 
 ---
 
