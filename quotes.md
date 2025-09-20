@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
-> — **James Matthew Barrie**
+> "The secret of happiness is not in doing what you like but in liking what you have to do."  
+> — **Sathya Sai Baba**
 
 ---
 
