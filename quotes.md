@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man should never be ashamed to own that he has been in the wrong, which is but saying, that he is wiser today than yesterday."  
-> — **Jonathan Swift**
+> "Always remember that you are absolutely unique. Just like everyone else. "  
+> — **Margaret Mead**
 
 ---
 
