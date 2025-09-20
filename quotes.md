@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand."  
-> — **Thich Nhat Hanh**
+> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
+> — **Robert Greene**
 
 ---
 
