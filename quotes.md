@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't know where you're going, you will probably end up somewhere else."  
-> — **Laurence J. Peter**
+> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
+> — **Brian Tracy**
 
 ---
 

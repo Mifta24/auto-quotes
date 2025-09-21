@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
-> — **Sathya Sai Baba**
+> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
+> — **Brian Tracy**
 
 ---
 
