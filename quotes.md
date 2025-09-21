@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is only one thing in the world worse than being talked about, and that is not being talked about. "  
-> — **Oscar Wilde**
+> "The journey is what brings us happiness not the destination."  
+> — **Dan Millman**
 
 ---
 
