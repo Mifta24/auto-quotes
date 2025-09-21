@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
+> — **Sathya Sai Baba**
 
 ---
 
