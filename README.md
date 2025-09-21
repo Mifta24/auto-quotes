@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is only one thing in the world worse than being talked about, and that is not being talked about. "  
-> — **Oscar Wilde**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 

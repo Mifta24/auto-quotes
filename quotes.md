@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey is what brings us happiness not the destination."  
-> — **Dan Millman**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 
