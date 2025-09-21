@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast."  
+> — **Norman Vincent Peale**
 
 ---
 
