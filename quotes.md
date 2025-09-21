@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
-> — **Brian Tracy**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 
