@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you genuinely want something, don't wait for it - teach yourself."  
-> — **Gurbaksh Chahal**
+> "There is only one thing in the world worse than being talked about, and that is not being talked about. "  
+> — **Oscar Wilde**
 
 ---
 

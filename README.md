@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
-> — **C. Sean McGee**
+> "There is only one thing in the world worse than being talked about, and that is not being talked about. "  
+> — **Oscar Wilde**
 
 ---
 
