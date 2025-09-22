@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Muddy water is best cleared by leaving it alone."  
-> — **Alan Watts**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 
