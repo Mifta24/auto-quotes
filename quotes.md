@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
-> — **Nelson Mandela**
+> "We should not look back unless it is to derive useful lessons from past errors."  
+> — **George Washington**
 
 ---
 
