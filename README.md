@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "Silence is sometimes the best answer."  
+> — **Dalai Lama**
 
 ---
 

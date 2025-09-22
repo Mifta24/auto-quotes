@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In all chaos there is a cosmos, in all disorder a secret order."  
-> — **Carl Jung**
+> "Silence is sometimes the best answer."  
+> — **Dalai Lama**
 
 ---
 
