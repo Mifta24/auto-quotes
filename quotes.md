@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "In all chaos there is a cosmos, in all disorder a secret order."  
+> — **Carl Jung**
 
 ---
 
