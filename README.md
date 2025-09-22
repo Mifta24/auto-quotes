@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Muddy water is best cleared by leaving it alone."  
-> — **Alan Watts**
+> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
+> — **Nelson Mandela**
 
 ---
 

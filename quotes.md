@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
-> — **Robert Frost**
+> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
+> — **Nelson Mandela**
 
 ---
 
