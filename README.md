@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Definiteness of purpose is the starting point of all achievement. "  
-> — **W. Clement Stone**
+> "If I persist long enough I will win."  
+> — **Og Mandino**
 
 ---
 
