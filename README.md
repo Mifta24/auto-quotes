@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is sometimes the best answer."  
-> — **Dalai Lama**
+> "Muddy water is best cleared by leaving it alone."  
+> — **Alan Watts**
 
 ---
 

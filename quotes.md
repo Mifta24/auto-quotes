@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to stand by someone's side than by yourself."  
-> — **Jack London**
+> "Muddy water is best cleared by leaving it alone."  
+> — **Alan Watts**
 
 ---
 
