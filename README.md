@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
-> — **Brian Tracy**
+> "Definiteness of purpose is the starting point of all achievement. "  
+> — **W. Clement Stone**
 
 ---
 
-_Last updated: 21 September 2025 ⏳_
+_Last updated: 22 September 2025 ⏳_

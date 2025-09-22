@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most difficult times for many of us are the ones we give ourselves."  
-> — **Pema Chodron**
+> "Definiteness of purpose is the starting point of all achievement. "  
+> — **W. Clement Stone**
 
 ---
 
-_Last updated: 21 September 2025 ⏳_
+_Last updated: 22 September 2025 ⏳_
