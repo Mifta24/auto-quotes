@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is sometimes the best answer."  
-> — **Dalai Lama**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 
