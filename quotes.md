@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never close your lips to those whom you have already opened your heart."  
-> — **Charles Dickens**
+> "Even when a friend does something you do not like, he continues to be your friend. "  
+> — **Genghis Khan**
 
 ---
 
