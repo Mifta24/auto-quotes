@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To earn more you must learn more."  
-> — **Brian Tracy**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 

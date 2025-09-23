@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Things turn out best for the people who make the best of the way things turn out."  
-> — **John Wooden**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 
