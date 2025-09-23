@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To earn more you must learn more."  
-> — **Brian Tracy**
+> "Things turn out best for the people who make the best of the way things turn out."  
+> — **John Wooden**
 
 ---
 
