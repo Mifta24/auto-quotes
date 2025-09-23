@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "Today I begin a new life. I will greet this day with love in my heart."  
+> — **Og Mandino**
 
 ---
 
