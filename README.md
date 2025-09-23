@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "We must have strong minds, ready to accept facts as they are."  
+> — **Harry S. Truman**
 
 ---
 
