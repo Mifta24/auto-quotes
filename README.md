@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never close your lips to those whom you have already opened your heart."  
-> — **Charles Dickens**
+> "Man's character is his fate."  
+> — **Heraclitus**
 
 ---
 
