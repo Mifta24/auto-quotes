@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "There is always room in your life for thinking bigger, pushing limits and imagining the impossible."  
+> — **Tony Robbins**
 
 ---
 
