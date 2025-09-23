@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "Never close your lips to those whom you have already opened your heart."  
+> — **Charles Dickens**
 
 ---
 

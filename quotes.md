@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is always room in your life for thinking bigger, pushing limits and imagining the impossible."  
-> — **Tony Robbins**
+> "Never close your lips to those whom you have already opened your heart."  
+> — **Charles Dickens**
 
 ---
 
