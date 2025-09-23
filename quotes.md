@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must have strong minds, ready to accept facts as they are."  
-> — **Harry S. Truman**
+> "Fears are nothing more than a state of mind."  
+> — **Napoleon Hill**
 
 ---
 
