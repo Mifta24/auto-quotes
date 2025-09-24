@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where there is anger, there is always pain underneath."  
-> — **Eckhart Tolle**
+> "Keep your face to the sunshine and you cannot see the shadows."  
+> — **Helen Keller**
 
 ---
 
