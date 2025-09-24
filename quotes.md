@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only reason to be alive is to enjoy it."  
-> — **Rita Mae Brown**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 
