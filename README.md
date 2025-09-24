@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing ever goes away until it has taught us what we need to know."  
-> — **Pema Chodron**
+> "The only reason to be alive is to enjoy it."  
+> — **Rita Mae Brown**
 
 ---
 

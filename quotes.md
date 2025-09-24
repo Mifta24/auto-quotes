@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise accomplish all that they want without arousing the envy or scorn of others."  
-> — **Ming-Dao Deng**
+> "The only reason to be alive is to enjoy it."  
+> — **Rita Mae Brown**
 
 ---
 
