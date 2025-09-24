@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your face to the sunshine and you cannot see the shadows."  
-> — **Helen Keller**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 

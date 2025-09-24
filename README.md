@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where there is anger, there is always pain underneath."  
-> — **Eckhart Tolle**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 
