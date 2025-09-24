@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "The man who does not value himself, cannot value anything or anyone."  
+> — **Ayn Rand**
 
 ---
 
