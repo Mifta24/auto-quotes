@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "Where there is anger, there is always pain underneath."  
+> — **Eckhart Tolle**
 
 ---
 

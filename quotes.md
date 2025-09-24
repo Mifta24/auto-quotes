@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The man who does not value himself, cannot value anything or anyone."  
-> — **Ayn Rand**
+> "Where there is anger, there is always pain underneath."  
+> — **Eckhart Tolle**
 
 ---
 
