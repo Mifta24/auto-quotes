@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fears are nothing more than a state of mind."  
-> — **Napoleon Hill**
+> "We don't stop playing because we grow old; we grow old because we stop playing."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 23 September 2025 ⏳_
+_Last updated: 24 September 2025 ⏳_

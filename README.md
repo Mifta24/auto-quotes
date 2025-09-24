@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We must have strong minds, ready to accept facts as they are."  
-> — **Harry S. Truman**
+> "We don't stop playing because we grow old; we grow old because we stop playing."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 23 September 2025 ⏳_
+_Last updated: 24 September 2025 ⏳_
