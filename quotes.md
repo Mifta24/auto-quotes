@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the true magic carpet."  
-> — **Norman Vincent Peale**
+> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
+> — **Osho**
 
 ---
 
