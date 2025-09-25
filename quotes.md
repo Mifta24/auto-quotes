@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "However difficult life may seem, there is always something you can do and succeed at."  
-> — **Stephen Hawking**
+> "Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more."  
+> — **Steve Harvey**
 
 ---
 
