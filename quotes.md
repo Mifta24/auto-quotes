@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
-> — **Osho**
+> "It's always to soon to quit!"  
+> — **Norman Vincent Peale**
 
 ---
 

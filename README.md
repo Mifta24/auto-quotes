@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Imagination is the true magic carpet."  
+> "It's always to soon to quit!"  
 > — **Norman Vincent Peale**
 
 ---
