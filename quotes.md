@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The final mystery is oneself."  
-> — **Oscar Wilde**
+> "If you see yourself as prosperous, you will be."  
+> — **Robert Collier**
 
 ---
 
