@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awaken. Take heed, do not squander your life."  
-> — **Dogen**
+> "The final mystery is oneself."  
+> — **Oscar Wilde**
 
 ---
 
