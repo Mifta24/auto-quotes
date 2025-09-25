@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see yourself as prosperous, you will be."  
-> — **Robert Collier**
+> "However difficult life may seem, there is always something you can do and succeed at."  
+> — **Stephen Hawking**
 
 ---
 
