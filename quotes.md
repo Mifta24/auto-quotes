@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "Awaken. Take heed, do not squander your life."  
+> — **Dogen**
 
 ---
 
-_Last updated: 24 September 2025 ⏳_
+_Last updated: 25 September 2025 ⏳_

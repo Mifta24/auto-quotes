@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only reason to be alive is to enjoy it."  
-> — **Rita Mae Brown**
+> "Awaken. Take heed, do not squander your life."  
+> — **Dogen**
 
 ---
 
-_Last updated: 24 September 2025 ⏳_
+_Last updated: 25 September 2025 ⏳_
