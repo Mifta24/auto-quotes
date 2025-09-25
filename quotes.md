@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awaken. Take heed, do not squander your life."  
-> — **Dogen**
+> "Don't ever save anything for a special occasion. Being alive is the special occasion."  
+> — **Mary Engelbreit**
 
 ---
 
