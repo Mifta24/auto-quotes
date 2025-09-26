@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is not a lover who does not love forever."  
-> — **Euripides**
+> "Wheresoever you go, go with all your heart."  
+> — **Confucius**
 
 ---
 
