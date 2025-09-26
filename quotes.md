@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You do not read a book for the book's sake, but for your own."  
-> — **Earl Nightingale**
+> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
+> — **Kabir**
 
 ---
 
