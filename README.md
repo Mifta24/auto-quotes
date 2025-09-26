@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's always to soon to quit!"  
-> — **Norman Vincent Peale**
+> "A diamond is a piece of charcoal that handled stress exceptionally well."  
+> — **Unknown**
 
 ---
 
-_Last updated: 25 September 2025 ⏳_
+_Last updated: 26 September 2025 ⏳_
