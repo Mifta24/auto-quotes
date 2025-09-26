@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A diamond is a piece of charcoal that handled stress exceptionally well."  
-> — **Unknown**
+> "You do not read a book for the book's sake, but for your own."  
+> — **Earl Nightingale**
 
 ---
 
