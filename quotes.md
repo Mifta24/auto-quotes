@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just throw away all thoughts of imaginary things, and stand firm in that which you are."  
-> — **Kabir**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You do not read a book for the book's sake, but for your own."  
-> — **Earl Nightingale**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 
