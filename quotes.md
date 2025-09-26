@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "If you don't make things happen then things will happen to you."  
+> — **Robert Collier**
 
 ---
 
