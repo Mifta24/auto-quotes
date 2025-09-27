@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you set your goals ridiculously high and its a failure, you will fail above everyone elses success."  
-> — **James Cameron**
+> "Dreams are the royal road to the unconscious. "  
+> — **Sigmund Freud**
 
 ---
 
