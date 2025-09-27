@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talent is luck. The important thing in life is courage."  
-> — **Woody Allen**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 

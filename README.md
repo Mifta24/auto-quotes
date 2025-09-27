@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is resistance to fear, mastery of fear - not absence of fear."  
-> — **Mark Twain**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 
