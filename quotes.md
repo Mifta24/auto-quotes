@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is resistance to fear, mastery of fear - not absence of fear."  
-> — **Mark Twain**
+> "Talent is luck. The important thing in life is courage."  
+> — **Woody Allen**
 
 ---
 
