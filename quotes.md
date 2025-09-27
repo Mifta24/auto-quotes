@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "You're on earth. There's no cure for that."  
+> — **Samuel Beckett**
 
 ---
 
