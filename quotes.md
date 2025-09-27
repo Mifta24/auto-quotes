@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every poem should remind the reader that they are going to die."  
-> — **Edgar Allan Poe**
+> "Keep your friends close, and your enemies closer."  
+> — **Sun Tzu**
 
 ---
 
