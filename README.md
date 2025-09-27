@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "If you set your goals ridiculously high and its a failure, you will fail above everyone elses success."  
+> — **James Cameron**
 
 ---
 
-_Last updated: 26 September 2025 ⏳_
+_Last updated: 27 September 2025 ⏳_
