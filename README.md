@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it."  
+> — **Carl Jung**
 
 ---
 
