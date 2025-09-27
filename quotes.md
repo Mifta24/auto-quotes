@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the royal road to the unconscious. "  
-> — **Sigmund Freud**
+> "Courage is resistance to fear, mastery of fear - not absence of fear."  
+> — **Mark Twain**
 
 ---
 

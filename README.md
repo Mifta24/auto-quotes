@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you set your goals ridiculously high and its a failure, you will fail above everyone elses success."  
-> — **James Cameron**
+> "Courage is resistance to fear, mastery of fear - not absence of fear."  
+> — **Mark Twain**
 
 ---
 
