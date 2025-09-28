@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I believe that one of life's greatest risks is never daring to risk."  
-> — **Oprah Winfrey**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 
