@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Intelligent men are cruel. Stupid men are monstrously cruel."  
-> — **Jack London**
+> "A single dream is more powerful than a thousand realities."  
+> — **J.R.R. Tolkien**
 
 ---
 
