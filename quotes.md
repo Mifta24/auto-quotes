@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
+> "Intelligent men are cruel. Stupid men are monstrously cruel."  
 > — **Jack London**
 
 ---
