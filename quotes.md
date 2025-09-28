@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
+> — **Leo Tolstoy**
 
 ---
 
