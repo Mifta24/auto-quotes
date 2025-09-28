@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I believe that one of life's greatest risks is never daring to risk."  
-> — **Oprah Winfrey**
+> "Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."  
+> — **Gurbaksh Chahal**
 
 ---
 
