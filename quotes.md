@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep your friends close, and your enemies closer."  
-> — **Sun Tzu**
+> "I believe that one of life's greatest risks is never daring to risk."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 27 September 2025 ⏳_
+_Last updated: 28 September 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every poem should remind the reader that they are going to die."  
-> — **Edgar Allan Poe**
+> "I believe that one of life's greatest risks is never daring to risk."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 27 September 2025 ⏳_
+_Last updated: 28 September 2025 ⏳_
