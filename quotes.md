@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom lies in being bold."  
-> — **Robert Frost**
+> "If you look for perfection, you'll never be content."  
+> — **Leo Tolstoy**
 
 ---
 
