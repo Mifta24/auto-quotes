@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Less is more."  
-> — **Robert Browning**
+> "If you are lucky enough to find love, remember it is there and don't throw it away."  
+> — **Stephen Hawking**
 
 ---
 
