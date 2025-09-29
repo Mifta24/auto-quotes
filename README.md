@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The source of a true smile is an awakened mind."  
-> — **Thich Nhat Hanh**
+> "Less is more."  
+> — **Robert Browning**
 
 ---
 
