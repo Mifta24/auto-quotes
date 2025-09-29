@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom lies in being bold."  
-> — **Robert Frost**
+> "The source of a true smile is an awakened mind."  
+> — **Thich Nhat Hanh**
 
 ---
 

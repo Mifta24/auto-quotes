@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you look for perfection, you'll never be content."  
-> — **Leo Tolstoy**
+> "The source of a true smile is an awakened mind."  
+> — **Thich Nhat Hanh**
 
 ---
 
