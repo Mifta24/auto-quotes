@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Life was meant to be lived, and curiosity must be kept alive. One must never, for whatever reason, turn his back on life."  
+> "Work is always an antidote to depression."  
 > — **Eleanor Roosevelt**
 
 ---
