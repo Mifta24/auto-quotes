@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work is always an antidote to depression."  
-> — **Eleanor Roosevelt**
+> "The score never interested me, only the game."  
+> — **Mae West**
 
 ---
 
