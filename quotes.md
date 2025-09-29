@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault."  
-> — **Eleanor Roosevelt**
+> "Freedom lies in being bold."  
+> — **Robert Frost**
 
 ---
 
