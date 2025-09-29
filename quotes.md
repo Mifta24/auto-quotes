@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault."  
+> — **Eleanor Roosevelt**
 
 ---
 
