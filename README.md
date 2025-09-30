@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart."  
-> — **Roy T. Bennett**
+> "There are as many opinions as there are experts."  
+> — **Franklin D. Roosevelt**
 
 ---
 

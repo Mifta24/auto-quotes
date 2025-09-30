@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is a source of great strength."  
-> — **Lao Tzu**
+> "There are as many opinions as there are experts."  
+> — **Franklin D. Roosevelt**
 
 ---
 
