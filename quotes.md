@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."  
-> — **Henry Ward Beecher**
+> "You drown not by falling into a river, but by staying submerged in it."  
+> — **Paulo Coelho**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future."  
-> — **Elon Musk**
+> "You drown not by falling into a river, but by staying submerged in it."  
+> — **Paulo Coelho**
 
 ---
 
