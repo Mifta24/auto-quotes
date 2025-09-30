@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You drown not by falling into a river, but by staying submerged in it."  
-> — **Paulo Coelho**
+> "Hardly anybody recognizes the most significant moments of their life at the time they happen."  
+> — **W.P. Kinsella**
 
 ---
 
