@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By seeking and blundering we learn."  
-> — **Johann Wolfgang von Goethe**
+> "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul."  
+> — **Marcus Aurelius**
 
 ---
 
