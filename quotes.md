@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are as many opinions as there are experts."  
-> — **Franklin D. Roosevelt**
+> "By seeking and blundering we learn."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
