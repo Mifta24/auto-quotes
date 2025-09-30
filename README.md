@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul."  
-> — **Marcus Aurelius**
+> "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future."  
+> — **Elon Musk**
 
 ---
 

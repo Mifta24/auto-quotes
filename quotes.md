@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
-> — **Les Brown**
+> "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future."  
+> — **Elon Musk**
 
 ---
 
