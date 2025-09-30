@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul."  
-> — **Marcus Aurelius**
+> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."  
+> — **Les Brown**
 
 ---
 
