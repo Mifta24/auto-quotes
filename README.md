@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have to make a choice and don't make it, that is in itself a choice."  
-> — **William James**
+> "Talk to someone about themselves and they'll listen for hours."  
+> — **Dale Carnegie**
 
 ---
 

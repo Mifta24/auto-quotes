@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thought is so cunning, so clever, that it distorts everything for its own convenience."  
-> — **Jiddu Krishnamurti**
+> "Talk to someone about themselves and they'll listen for hours."  
+> — **Dale Carnegie**
 
 ---
 
