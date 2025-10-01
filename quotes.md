@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is but one dream flowing into another."  
-> — **Ming-Dao Deng**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
+> — **Stephen King**
 
 ---
 

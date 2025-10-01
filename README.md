@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The thing about smart people is that they seem like crazy people to dumb people."  
-> — **Stephen Hawking**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
+> — **Stephen King**
 
 ---
 
