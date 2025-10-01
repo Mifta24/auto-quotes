@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "Life is a journey, not a destination."  
+> — **Dan Millman**
 
 ---
 
