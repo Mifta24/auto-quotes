@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You drown not by falling into a river, but by staying submerged in it."  
-> — **Paulo Coelho**
+> "The thing about smart people is that they seem like crazy people to dumb people."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 30 September 2025 ⏳_
+_Last updated: 01 October 2025 ⏳_

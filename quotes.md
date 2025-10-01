@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Hardly anybody recognizes the most significant moments of their life at the time they happen."  
-> — **W.P. Kinsella**
+> "The thing about smart people is that they seem like crazy people to dumb people."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 30 September 2025 ⏳_
+_Last updated: 01 October 2025 ⏳_
