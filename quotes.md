@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talk to someone about themselves and they'll listen for hours."  
-> — **Dale Carnegie**
+> "The only way out is through."  
+> — **Robert Frost**
 
 ---
 
