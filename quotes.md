@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "When you have to make a choice and don't make it, that is in itself a choice."  
+> — **William James**
 
 ---
 

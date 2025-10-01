@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man's character is his fate."  
-> — **Heraclitus**
+> "When you have to make a choice and don't make it, that is in itself a choice."  
+> — **William James**
 
 ---
 
