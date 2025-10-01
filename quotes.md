@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
-> — **Stephen King**
+> "Lust, anger and greed are the three gates to self-destructive hell."  
+> — **Bhagavad Gita**
 
 ---
 
