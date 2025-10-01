@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The thing about smart people is that they seem like crazy people to dumb people."  
-> — **Stephen Hawking**
+> "Life is but one dream flowing into another."  
+> — **Ming-Dao Deng**
 
 ---
 
