@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Talk to someone about themselves and they'll listen for hours."  
-> — **Dale Carnegie**
+> "The dead receive more flowers than the living because regret is stronger than gratitude."  
+> — **Anne Frank**
 
 ---
 
-_Last updated: 01 October 2025 ⏳_
+_Last updated: 02 October 2025 ⏳_
