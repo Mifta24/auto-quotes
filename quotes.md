@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "Always try to be a little kinder than necessary."  
+> — **James Matthew Barrie**
 
 ---
 

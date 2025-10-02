@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our joy does not have to be based on our circumstances."  
-> — **Joyce Meyer**
+> "Always try to be a little kinder than necessary."  
+> — **James Matthew Barrie**
 
 ---
 
