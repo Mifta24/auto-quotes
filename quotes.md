@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always try to be a little kinder than necessary."  
-> — **James Matthew Barrie**
+> "The road to success and the road to failure are almost exactly the same."  
+> — **Colin R. Davis**
 
 ---
 
