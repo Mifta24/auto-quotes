@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste no more time arguing about what a good man should be. Be one."  
-> — **Marcus Aurelius**
+> "Begin now to be what you will be hereafter."  
+> — **St. Jerome**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dead receive more flowers than the living because regret is stronger than gratitude."  
-> — **Anne Frank**
+> "Begin now to be what you will be hereafter."  
+> — **St. Jerome**
 
 ---
 
