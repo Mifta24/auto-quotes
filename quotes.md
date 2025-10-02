@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dead receive more flowers than the living because regret is stronger than gratitude."  
-> — **Anne Frank**
+> "Waste no more time arguing about what a good man should be. Be one."  
+> — **Marcus Aurelius**
 
 ---
 
