@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Begin now to be what you will be hereafter."  
-> — **St. Jerome**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 
