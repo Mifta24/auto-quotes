@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our joy does not have to be based on our circumstances."  
-> — **Joyce Meyer**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
