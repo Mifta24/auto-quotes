@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Begin now to be what you will be hereafter."  
-> — **St. Jerome**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 

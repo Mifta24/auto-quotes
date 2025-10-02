@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 
