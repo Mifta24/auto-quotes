@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is not an act, it is a habit."  
-> — **Aristotle**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
