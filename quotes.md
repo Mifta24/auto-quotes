@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."  
-> — **Stephen Hawking**
+> "Ripe fruit falls by itself - but it doesn't fall in your mouth. "  
+> — **Chinese Proverb**
 
 ---
 
