@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ripe fruit falls by itself - but it doesn't fall in your mouth. "  
-> — **Chinese Proverb**
+> "Sadness is but a wall between two gardens."  
+> — **Kahlil Gibran**
 
 ---
 
