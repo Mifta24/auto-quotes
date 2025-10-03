@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The road to success and the road to failure are almost exactly the same."  
-> — **Colin R. Davis**
+> "The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 02 October 2025 ⏳_
+_Last updated: 03 October 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Always try to be a little kinder than necessary."  
-> — **James Matthew Barrie**
+> "The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 02 October 2025 ⏳_
+_Last updated: 03 October 2025 ⏳_
