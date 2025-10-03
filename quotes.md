@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great loves too must be endured."  
-> — **Coco Chanel**
+> "Quality is not an act, it is a habit."  
+> — **Aristotle**
 
 ---
 
