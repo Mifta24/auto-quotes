@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "Great loves too must be endured."  
+> — **Coco Chanel**
 
 ---
 

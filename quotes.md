@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art, like morality, consists of drawing the line somewhere."  
-> — **Gilbert Chesterton**
+> "Great loves too must be endured."  
+> — **Coco Chanel**
 
 ---
 
