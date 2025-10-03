@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ripe fruit falls by itself - but it doesn't fall in your mouth. "  
-> — **Chinese Proverb**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 

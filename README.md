@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."  
-> — **Stephen Hawking**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 
