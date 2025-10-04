@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no limitations to the mind except those we acknowledge..."  
-> — **Napoleon Hill**
+> "Your only obligation in any lifetime is to be true to yourself."  
+> — **Richard Bach**
 
 ---
 

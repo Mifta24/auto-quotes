@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "Your only obligation in any lifetime is to be true to yourself."  
+> — **Richard Bach**
 
 ---
 
