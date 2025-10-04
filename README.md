@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you embark on a journey of revenge, dig two graves. "  
-> — **Confucius**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 

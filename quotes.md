@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want something new, you have to stop doing something old."  
-> — **Peter Drucker**
+> "There are no limitations to the mind except those we acknowledge..."  
+> — **Napoleon Hill**
 
 ---
 
