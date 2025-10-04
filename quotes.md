@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you embark on a journey of revenge, dig two graves. "  
-> — **Confucius**
+> "If you want something new, you have to stop doing something old."  
+> — **Peter Drucker**
 
 ---
 
