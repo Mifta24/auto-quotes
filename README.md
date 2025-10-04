@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sadness is but a wall between two gardens."  
-> — **Kahlil Gibran**
+> "It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 03 October 2025 ⏳_
+_Last updated: 04 October 2025 ⏳_
