@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your only obligation in any lifetime is to be true to yourself."  
-> — **Richard Bach**
+> "In nature there is no alienation. Everything belongs."  
+> — **Ming-Dao Deng**
 
 ---
 
