@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all different. Don't judge, understand instead."  
-> — **Roy T. Bennett**
+> "Life and the simple beauty of it is too good to pass up."  
+> — **Christopher McCandless**
 
 ---
 
