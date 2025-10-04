@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all different. Don't judge, understand instead."  
-> — **Roy T. Bennett**
+> "Before you embark on a journey of revenge, dig two graves. "  
+> — **Confucius**
 
 ---
 

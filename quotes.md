@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and the simple beauty of it is too good to pass up."  
-> — **Christopher McCandless**
+> "Before you embark on a journey of revenge, dig two graves. "  
+> — **Confucius**
 
 ---
 
