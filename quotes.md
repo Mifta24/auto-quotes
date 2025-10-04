@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who look for the bad in people will surely find it."  
-> — **Abraham Lincoln**
+> "We are all different. Don't judge, understand instead."  
+> — **Roy T. Bennett**
 
 ---
 
