@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
-> — **Oprah Winfrey**
+> "Your worth consists in what you are and not in what you have."  
+> — **Thomas Edison**
 
 ---
 

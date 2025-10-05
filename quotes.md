@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "Your worth consists in what you are and not in what you have."  
+> — **Thomas Edison**
 
 ---
 
