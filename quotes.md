@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can see through others only when we can see through ourselves."  
-> — **Bruce Lee**
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
+> — **Oprah Winfrey**
 
 ---
 

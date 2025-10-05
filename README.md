@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
+> — **Oprah Winfrey**
 
 ---
 
