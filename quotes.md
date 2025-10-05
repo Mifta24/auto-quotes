@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your worth consists in what you are and not in what you have."  
-> — **Thomas Edison**
+> "Confidence is the greatest friend."  
+> — **Lao Tzu**
 
 ---
 
