@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is one long process of getting tired."  
-> — **Samuel Butler**
+> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
+> — **Robert Greene**
 
 ---
 
