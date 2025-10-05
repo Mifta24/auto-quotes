@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
-> — **Oprah Winfrey**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
