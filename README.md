@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always be a first rate version of yourself and not a second rate version of someone else."  
-> — **Judy Garland**
+> "To create more positive results in your life, replace 'if only' with 'next time'."  
+> — **Celestine Chua**
 
 ---
 
