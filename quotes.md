@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To create more positive results in your life, replace 'if only' with 'next time'."  
-> — **Celestine Chua**
+> "Loving thoughts and actions are clearly beneficial for our physical and mental health."  
+> — **Dalai Lama**
 
 ---
 
