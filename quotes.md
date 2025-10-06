@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never waste a minute of your precious life thinking about people you don't like."  
-> — **Celestine Chua**
+> "Thinking will not overcome fear but action will. "  
+> — **W. Clement Stone**
 
 ---
 
-_Last updated: 05 October 2025 ⏳_
+_Last updated: 06 October 2025 ⏳_

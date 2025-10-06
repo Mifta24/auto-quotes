@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
-> — **Robert Greene**
+> "Thinking will not overcome fear but action will. "  
+> — **W. Clement Stone**
 
 ---
 
-_Last updated: 05 October 2025 ⏳_
+_Last updated: 06 October 2025 ⏳_
