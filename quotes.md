@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real meditation is how you live your life."  
-> — **Jon Kabat-Zinn**
+> "Always be a first rate version of yourself and not a second rate version of someone else."  
+> — **Judy Garland**
 
 ---
 

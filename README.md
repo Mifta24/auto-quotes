@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Numbing the pain for a while will only make it worse when you finally feel it."  
-> — **Albus Dumbledore**
+> "Always be a first rate version of yourself and not a second rate version of someone else."  
+> — **Judy Garland**
 
 ---
 
