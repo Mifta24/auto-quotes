@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking will not overcome fear but action will. "  
-> — **W. Clement Stone**
+> "Numbing the pain for a while will only make it worse when you finally feel it."  
+> — **Albus Dumbledore**
 
 ---
 

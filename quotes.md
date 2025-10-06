@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A scientific man ought to have no wishes, no affections, - a mere heart of stone."  
-> — **Charles Darwin**
+> "Numbing the pain for a while will only make it worse when you finally feel it."  
+> — **Albus Dumbledore**
 
 ---
 
