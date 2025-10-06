@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To create more positive results in your life, replace 'if only' with 'next time'."  
-> — **Celestine Chua**
+> "Words can only have a positive effect on others if and when they are ready to listen."  
+> — **Christopher Reeve**
 
 ---
 

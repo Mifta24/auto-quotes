@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loving thoughts and actions are clearly beneficial for our physical and mental health."  
-> — **Dalai Lama**
+> "Words can only have a positive effect on others if and when they are ready to listen."  
+> — **Christopher Reeve**
 
 ---
 
