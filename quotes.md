@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Numbing the pain for a while will only make it worse when you finally feel it."  
-> — **Albus Dumbledore**
+> "The real meditation is how you live your life."  
+> — **Jon Kabat-Zinn**
 
 ---
 
