@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking will not overcome fear but action will. "  
-> — **W. Clement Stone**
+> "A scientific man ought to have no wishes, no affections, - a mere heart of stone."  
+> — **Charles Darwin**
 
 ---
 
