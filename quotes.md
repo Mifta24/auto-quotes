@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always be a first rate version of yourself and not a second rate version of someone else."  
-> — **Judy Garland**
+> "Truth is exact correspondence with reality. "  
+> — **Paramahansa Yogananda**
 
 ---
 
