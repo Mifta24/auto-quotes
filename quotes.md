@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day without laughter is a day wasted."  
-> — **Charlie Chaplin**
+> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  "  
+> — **Wayne Dyer**
 
 ---
 
