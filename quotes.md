@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  "  
-> — **Wayne Dyer**
+> "Be regular and orderly in your life, so that you may be violent and original in your work."  
+> — **Gustave Flaubert**
 
 ---
 
