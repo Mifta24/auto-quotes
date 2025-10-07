@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be great is to be misunderstood."  
-> — **Ralph Waldo Emerson**
+> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
+> — **Robert Kiyosaki**
 
 ---
 
