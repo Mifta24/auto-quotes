@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
-> — **Norman Vincent Peale**
+> "To be great is to be misunderstood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
