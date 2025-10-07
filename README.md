@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Words can only have a positive effect on others if and when they are ready to listen."  
-> — **Christopher Reeve**
+> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 06 October 2025 ⏳_
+_Last updated: 07 October 2025 ⏳_
