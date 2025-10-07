@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
-> — **Norman Vincent Peale**
+> "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams."  
+> — **Robert Greene**
 
 ---
 
