@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do all things with love."  
-> — **Og Mandino**
+> "A day without laughter is a day wasted."  
+> — **Charlie Chaplin**
 
 ---
 
