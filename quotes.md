@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
-> — **Robert Kiyosaki**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 

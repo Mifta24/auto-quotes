@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be great is to be misunderstood."  
-> — **Ralph Waldo Emerson**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 
