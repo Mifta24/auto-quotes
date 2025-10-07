@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "Do all things with love."  
+> — **Og Mandino**
 
 ---
 
