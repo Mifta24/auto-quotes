@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where violence reigns, reason is weak."  
-> — **Nicolas Chamfort**
+> "Every poem should remind the reader that they are going to die."  
+> — **Edgar Allan Poe**
 
 ---
 
