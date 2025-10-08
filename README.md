@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An intelligent person hires people who are more intelligent than he is."  
-> — **Robert Kiyosaki**
+> "The one who praises you is a thief. The one who criticizes you is your true friend."  
+> — **Seungsahn**
 
 ---
 

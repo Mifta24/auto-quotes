@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself with only people who are going to lift you higher. "  
-> — **Oprah Winfrey**
+> "The one who praises you is a thief. The one who criticizes you is your true friend."  
+> — **Seungsahn**
 
 ---
 
