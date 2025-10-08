@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An intelligent person hires people who are more intelligent than he is."  
-> — **Robert Kiyosaki**
+> "Surround yourself with only people who are going to lift you higher. "  
+> — **Oprah Winfrey**
 
 ---
 
