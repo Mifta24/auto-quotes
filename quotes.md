@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be regular and orderly in your life, so that you may be violent and original in your work."  
-> — **Gustave Flaubert**
+> "Winners don't Quit. That's why they Win."  
+> — **Unknown**
 
 ---
 
-_Last updated: 07 October 2025 ⏳_
+_Last updated: 08 October 2025 ⏳_

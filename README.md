@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  "  
-> — **Wayne Dyer**
+> "Winners don't Quit. That's why they Win."  
+> — **Unknown**
 
 ---
 
-_Last updated: 07 October 2025 ⏳_
+_Last updated: 08 October 2025 ⏳_
