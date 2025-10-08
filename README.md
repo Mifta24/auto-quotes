@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where violence reigns, reason is weak."  
-> — **Nicolas Chamfort**
+> "In the practice of tolerance, one's enemy is the best teacher."  
+> — **Dalai Lama**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every poem should remind the reader that they are going to die."  
-> — **Edgar Allan Poe**
+> "In the practice of tolerance, one's enemy is the best teacher."  
+> — **Dalai Lama**
 
 ---
 
