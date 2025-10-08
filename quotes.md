@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the practice of tolerance, one's enemy is the best teacher."  
-> — **Dalai Lama**
+> "In the end, it's not the years in your life that count. It's the life in your years."  
+> — **Abraham Lincoln**
 
 ---
 
