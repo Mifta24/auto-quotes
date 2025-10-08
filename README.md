@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners don't Quit. That's why they Win."  
-> — **Unknown**
+> "An intelligent person hires people who are more intelligent than he is."  
+> — **Robert Kiyosaki**
 
 ---
 
