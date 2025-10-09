@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The busy man is never wise and the wise man is never busy."  
-> — **Lin Yutang**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 

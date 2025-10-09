@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
