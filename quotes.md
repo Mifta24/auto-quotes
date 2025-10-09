@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are most nearly ourselves when we achieve the seriousness of the child at play."  
-> — **Heraclitus**
+> "Boldness makes even the smallest animal dangerous."  
+> — **Robert Greene**
 
 ---
 
