@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 
