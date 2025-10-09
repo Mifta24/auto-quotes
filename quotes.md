@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
-> — **Dan Millman**
+> "Don't seek, don't avoid, don't expect. Take what comes and be happy."  
+> — **Maxime Lagace**
 
 ---
 
