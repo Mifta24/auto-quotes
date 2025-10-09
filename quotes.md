@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Boldness makes even the smallest animal dangerous."  
-> — **Robert Greene**
+> "He who is untrue to his own cause cannot command the respect of others."  
+> — **Albert Einstein**
 
 ---
 

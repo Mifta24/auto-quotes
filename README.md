@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are most nearly ourselves when we achieve the seriousness of the child at play."  
-> — **Heraclitus**
+> "He who is untrue to his own cause cannot command the respect of others."  
+> — **Albert Einstein**
 
 ---
 
