@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is untrue to his own cause cannot command the respect of others."  
-> — **Albert Einstein**
+> "Life is really simple, but men insist on making it complicated. "  
+> — **Confucius**
 
 ---
 
