@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is really simple, but men insist on making it complicated. "  
-> — **Confucius**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is untrue to his own cause cannot command the respect of others."  
-> — **Albert Einstein**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 
