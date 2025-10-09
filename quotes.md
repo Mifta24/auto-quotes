@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't seek, don't avoid, don't expect. Take what comes and be happy."  
-> — **Maxime Lagace**
+> "Only when I fall do I get up again."  
+> — **Vincent van Gogh**
 
 ---
 
