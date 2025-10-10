@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Disobedience is the true foundation of liberty. The obedient must be slaves."  
-> — **Henry David Thoreau**
+> "Why live an ordinary life, when you can live an extraordinary one."  
+> — **Tony Robbins**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
-> — **Paulo Coelho**
+> "Why live an ordinary life, when you can live an extraordinary one."  
+> — **Tony Robbins**
 
 ---
 
