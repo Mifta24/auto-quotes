@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart wants what it wants - or else it does not care."  
-> — **Emily Dickinson**
+> "The sun shines upon good and bad alike."  
+> — **Hans Christian Andersen**
 
 ---
 
