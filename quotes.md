@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Only when I fall do I get up again."  
-> — **Vincent van Gogh**
+> "Love doesn't need reason. It speaks from the irrational wisdom of the heart."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 09 October 2025 ⏳_
+_Last updated: 10 October 2025 ⏳_
