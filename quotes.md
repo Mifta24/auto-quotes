@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why live an ordinary life, when you can live an extraordinary one."  
-> — **Tony Robbins**
+> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
+> — **Deepak Chopra**
 
 ---
 
