@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why live an ordinary life, when you can live an extraordinary one."  
-> — **Tony Robbins**
+> "If you want to achieve greatness stop asking for permission."  
+> — **Unknown**
 
 ---
 

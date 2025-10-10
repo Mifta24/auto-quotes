@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
-> — **Deepak Chopra**
+> "If you want to achieve greatness stop asking for permission."  
+> — **Unknown**
 
 ---
 
