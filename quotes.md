@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
-> — **Paulo Coelho**
+> "Disobedience is the true foundation of liberty. The obedient must be slaves."  
+> — **Henry David Thoreau**
 
 ---
 
