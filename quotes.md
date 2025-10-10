@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love doesn't need reason. It speaks from the irrational wisdom of the heart."  
-> — **Deepak Chopra**
+> "The heart wants what it wants - or else it does not care."  
+> — **Emily Dickinson**
 
 ---
 
