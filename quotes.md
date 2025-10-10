@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sun shines upon good and bad alike."  
-> — **Hans Christian Andersen**
+> "Well done is better than well said."  
+> — **Benjamin Franklin**
 
 ---
 
