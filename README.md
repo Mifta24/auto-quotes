@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sun shines upon good and bad alike."  
-> — **Hans Christian Andersen**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Well done is better than well said."  
-> — **Benjamin Franklin**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 
