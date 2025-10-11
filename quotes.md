@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "A good system shortens the road to the goal. "  
+> — **Orison Swett Marden**
 
 ---
 
