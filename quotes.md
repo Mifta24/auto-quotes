@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."  
-> — **Elon Musk**
+> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."  
+> — **Wayne Gretzky**
 
 ---
 

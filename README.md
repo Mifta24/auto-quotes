@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being ignorant is not so much a shame, as being unwilling to learn."  
-> — **Benjamin Franklin**
+> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."  
+> — **Wayne Gretzky**
 
 ---
 
