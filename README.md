@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams provide nourishment for the soul, just as a meal does for the body."  
-> — **Paulo Coelho**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can have more than we've got because we can become more than we are."  
-> — **Jim Rohn**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 
