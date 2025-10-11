@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 

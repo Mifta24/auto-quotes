@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good system shortens the road to the goal. "  
-> — **Orison Swett Marden**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 
