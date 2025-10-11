@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "Dreams provide nourishment for the soul, just as a meal does for the body."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 10 October 2025 ⏳_
+_Last updated: 11 October 2025 ⏳_

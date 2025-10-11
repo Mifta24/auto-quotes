@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want to achieve greatness stop asking for permission."  
-> — **Unknown**
+> "Dreams provide nourishment for the soul, just as a meal does for the body."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 10 October 2025 ⏳_
+_Last updated: 11 October 2025 ⏳_
