@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams provide nourishment for the soul, just as a meal does for the body."  
-> — **Paulo Coelho**
+> "We can have more than we've got because we can become more than we are."  
+> — **Jim Rohn**
 
 ---
 
