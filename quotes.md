@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being ignorant is not so much a shame, as being unwilling to learn."  
-> — **Benjamin Franklin**
+> "If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long."  
+> — **Elon Musk**
 
 ---
 
