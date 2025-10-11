@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "No great mind has ever existed without a touch of madness."  
+> — **Aristotle**
 
 ---
 
