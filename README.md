@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 

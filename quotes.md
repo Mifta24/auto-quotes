@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great mind has ever existed without a touch of madness."  
-> — **Aristotle**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 
