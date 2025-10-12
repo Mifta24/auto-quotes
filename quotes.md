@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to make God laugh, tell him about your plans. "  
-> — **Woody Allen**
+> "Health is the greatest of all possessions."  
+> — **Jonathan Swift**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very strange that the people you love are often the people you're most cruel to."  
-> — **Kenneth Branagh**
+> "Health is the greatest of all possessions."  
+> — **Jonathan Swift**
 
 ---
 
