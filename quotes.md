@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very strange that the people you love are often the people you're most cruel to."  
-> — **Kenneth Branagh**
+> "If you want to make God laugh, tell him about your plans. "  
+> — **Woody Allen**
 
 ---
 
