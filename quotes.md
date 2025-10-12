@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "Not everything that weighs you down is yours to carry."  
+> — **Unknown**
 
 ---
 
