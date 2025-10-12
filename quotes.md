@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Behind every cloud is another cloud."  
-> — **Judy Garland**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 

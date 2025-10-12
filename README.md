@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Health is the greatest of all possessions."  
-> — **Jonathan Swift**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 
