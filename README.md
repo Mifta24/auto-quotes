@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy life. There's plenty of time to be dead."  
-> — **Hans Christian Andersen**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 

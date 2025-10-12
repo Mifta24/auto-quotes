@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anxiety is the dizziness of freedom."  
-> — **Soren Kierkegaard**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 
