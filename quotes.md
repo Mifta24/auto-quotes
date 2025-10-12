@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "Shoot for the moon, because even if you miss, you'll land among the stars."  
+> — **Les Brown**
 
 ---
 
