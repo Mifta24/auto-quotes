@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not everything that weighs you down is yours to carry."  
-> — **Unknown**
+> "All human beings can alter their lives by altering their attitudes."  
+> — **Andrew Carnegie**
 
 ---
 
