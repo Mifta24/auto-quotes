@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy life. There's plenty of time to be dead."  
-> — **Hans Christian Andersen**
+> "Anxiety is the dizziness of freedom."  
+> — **Soren Kierkegaard**
 
 ---
 
