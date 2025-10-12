@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Identify your problems, but give your power and energy to solutions."  
-> — **Tony Robbins**
+> "Enjoy life. There's plenty of time to be dead."  
+> — **Hans Christian Andersen**
 
 ---
 
-_Last updated: 11 October 2025 ⏳_
+_Last updated: 12 October 2025 ⏳_

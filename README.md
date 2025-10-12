@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."  
-> — **Wayne Gretzky**
+> "Enjoy life. There's plenty of time to be dead."  
+> — **Hans Christian Andersen**
 
 ---
 
-_Last updated: 11 October 2025 ⏳_
+_Last updated: 12 October 2025 ⏳_
