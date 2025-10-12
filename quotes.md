@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Health is the greatest of all possessions."  
-> — **Jonathan Swift**
+> "Behind every cloud is another cloud."  
+> — **Judy Garland**
 
 ---
 
