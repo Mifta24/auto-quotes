@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."  
-> — **Betty White**
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
+> — **Dogen**
 
 ---
 
