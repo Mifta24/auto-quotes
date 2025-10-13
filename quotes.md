@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
-> — **Dogen**
+> "You will have bad times, but they will always wake you up to the stuff you weren't paying attention to."  
+> — **Robin Williams**
 
 ---
 

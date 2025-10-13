@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."  
-> — **Betty White**
+> "You will have bad times, but they will always wake you up to the stuff you weren't paying attention to."  
+> — **Robin Williams**
 
 ---
 
