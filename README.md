@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 12 October 2025 ⏳_
+_Last updated: 13 October 2025 ⏳_
