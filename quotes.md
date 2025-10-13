@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste not fresh tears over old griefs."  
-> — **Euripides**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 
