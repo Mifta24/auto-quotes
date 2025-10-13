@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "One never does wrong by doing right."  
+> — **Norman Vincent Peale**
 
 ---
 

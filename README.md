@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Waste not fresh tears over old griefs."  
-> — **Euripides**
+> "One never does wrong by doing right."  
+> — **Norman Vincent Peale**
 
 ---
 
