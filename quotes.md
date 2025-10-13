@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man should do his job so well that the living, the dead, and the unborn could do it no better."  
-> — **Martin Luther King, Jr.**
+> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."  
+> — **Betty White**
 
 ---
 

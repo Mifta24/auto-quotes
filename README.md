@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One never does wrong by doing right."  
-> — **Norman Vincent Peale**
+> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives."  
+> — **Betty White**
 
 ---
 
