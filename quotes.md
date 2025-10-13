@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will have bad times, but they will always wake you up to the stuff you weren't paying attention to."  
-> — **Robin Williams**
+> "Never lose hope. Storms make people stronger and never last forever."  
+> — **Roy T. Bennett**
 
 ---
 
