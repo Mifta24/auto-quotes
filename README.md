@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You will have bad times, but they will always wake you up to the stuff you weren't paying attention to."  
-> — **Robin Williams**
+> "Action is the foundational key to all success."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 13 October 2025 ⏳_
+_Last updated: 14 October 2025 ⏳_
