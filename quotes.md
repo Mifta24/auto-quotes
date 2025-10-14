@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
-> — **James Allen**
+> "The decisions of our past are the architects of our present."  
+> — **Dan Brown**
 
 ---
 
