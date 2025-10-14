@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
+> — **James Allen**
 
 ---
 

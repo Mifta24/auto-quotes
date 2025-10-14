@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
+> — **James Allen**
 
 ---
 
