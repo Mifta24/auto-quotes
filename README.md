@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Action is the foundational key to all success."  
-> — **Pablo Picasso**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
