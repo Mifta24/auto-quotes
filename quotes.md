@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
+> — **Jeffrey Gitomer**
 
 ---
 
