@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
-> — **James Allen**
+> "Only he who has no use for the empire is fit to be entrusted with it."  
+> — **Zhuangzi**
 
 ---
 

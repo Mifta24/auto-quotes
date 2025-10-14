@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The decisions of our past are the architects of our present."  
-> — **Dan Brown**
+> "Only he who has no use for the empire is fit to be entrusted with it."  
+> — **Zhuangzi**
 
 ---
 
