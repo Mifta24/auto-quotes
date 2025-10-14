@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
-> — **Jeffrey Gitomer**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
