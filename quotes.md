@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You talk when you cease to be at peace with your thoughts."  
-> — **Kahlil Gibran**
+> "Do the hard jobs first. The easy jobs will take care of themselves."  
+> — **Dale Carnegie**
 
 ---
 
