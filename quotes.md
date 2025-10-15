@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do the hard jobs first. The easy jobs will take care of themselves."  
-> — **Dale Carnegie**
+> "Better to die fighting for freedom than be a prisoner all the days of your life."  
+> — **Bob Marley**
 
 ---
 

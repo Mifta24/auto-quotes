@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You talk when you cease to be at peace with your thoughts."  
-> — **Kahlil Gibran**
+> "Better to die fighting for freedom than be a prisoner all the days of your life."  
+> — **Bob Marley**
 
 ---
 
