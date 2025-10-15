@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
