@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Only he who has no use for the empire is fit to be entrusted with it."  
-> — **Zhuangzi**
+> "You talk when you cease to be at peace with your thoughts."  
+> — **Kahlil Gibran**
 
 ---
 
-_Last updated: 14 October 2025 ⏳_
+_Last updated: 15 October 2025 ⏳_
