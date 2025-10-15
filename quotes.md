@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all born ignorant, but one must work hard to remain stupid."  
-> — **Benjamin Franklin**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 
