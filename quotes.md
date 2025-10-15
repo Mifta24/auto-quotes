@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  "  
-> — **Wayne Dyer**
+> "The only lost cause is one we give up on before we enter the struggle."  
+> — **Vaclav Havel**
 
 ---
 
