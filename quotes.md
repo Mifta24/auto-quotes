@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  "  
+> — **Wayne Dyer**
 
 ---
 

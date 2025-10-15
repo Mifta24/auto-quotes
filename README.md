@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  "  
+> — **Wayne Dyer**
 
 ---
 
