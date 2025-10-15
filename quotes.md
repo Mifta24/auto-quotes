@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every great change is preceded by chaos."  
-> — **Deepak Chopra**
+> "We are all born ignorant, but one must work hard to remain stupid."  
+> — **Benjamin Franklin**
 
 ---
 
