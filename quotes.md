@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
-> — **Criss Jami**
+> "We need never be ashamed of our tears."  
+> — **Charles Dickens**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
-> — **Brian Tracy**
+> "We need never be ashamed of our tears."  
+> — **Charles Dickens**
 
 ---
 
