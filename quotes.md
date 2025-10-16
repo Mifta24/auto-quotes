@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy every minute of life. Never second-guess life."  
-> — **Michael Jordan**
+> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
+> — **Kahlil Gibran**
 
 ---
 
