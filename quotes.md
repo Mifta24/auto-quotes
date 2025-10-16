@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We need never be ashamed of our tears."  
-> — **Charles Dickens**
+> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
+> — **Og Mandino**
 
 ---
 
