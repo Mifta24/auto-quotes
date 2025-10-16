@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every one of us is the sum total of his own thoughts."  
-> — **Earl Nightingale**
+> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
+> — **Brian Tracy**
 
 ---
 

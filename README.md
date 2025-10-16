@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
-> — **Charles Dickens**
+> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
+> — **Brian Tracy**
 
 ---
 
