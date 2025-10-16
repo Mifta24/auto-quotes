@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nourish the mind like you would your body. The mind cannot survive on junk food."  
-> — **Brian Tracy**
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
+> — **Criss Jami**
 
 ---
 
