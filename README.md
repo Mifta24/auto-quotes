@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Enjoy every minute of life. Never second-guess life."  
-> — **Michael Jordan**
+> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
+> — **Charles Dickens**
 
 ---
 

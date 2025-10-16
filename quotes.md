@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
-> — **Kahlil Gibran**
+> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
+> — **Charles Dickens**
 
 ---
 
