@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
-> — **Charles Dickens**
+> "Every one of us is the sum total of his own thoughts."  
+> — **Earl Nightingale**
 
 ---
 
