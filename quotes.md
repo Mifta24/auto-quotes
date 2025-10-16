@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor."  
-> — **James Allen**
+> "The biggest adventure you can ever take is to live the life of your dreams. "  
+> — **Oprah Winfrey**
 
 ---
 
