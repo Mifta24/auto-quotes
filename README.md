@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor."  
-> — **James Allen**
+> "Enjoy every minute of life. Never second-guess life."  
+> — **Michael Jordan**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest adventure you can ever take is to live the life of your dreams. "  
-> — **Oprah Winfrey**
+> "Enjoy every minute of life. Never second-guess life."  
+> — **Michael Jordan**
 
 ---
 
