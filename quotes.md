@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor."  
+> — **James Allen**
 
 ---
 
-_Last updated: 15 October 2025 ⏳_
+_Last updated: 16 October 2025 ⏳_
