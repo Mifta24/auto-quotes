@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become."  
+> — **Heraclitus**
 
 ---
 
