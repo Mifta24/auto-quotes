@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the potential for greatness."  
-> — **Steve Harvey**
+> "There is no path to Peace. Peace is the path."  
+> — **Dan Millman**
 
 ---
 

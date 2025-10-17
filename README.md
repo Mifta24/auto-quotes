@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find the game where you can win, and then commit your life to playing it; and play to win."  
-> — **Robert Kiyosaki**
+> "There is no path to Peace. Peace is the path."  
+> — **Dan Millman**
 
 ---
 
