@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Peace. Peace is the path."  
-> — **Dan Millman**
+> "Only by attracting the best people will you accomplish great deeds."  
+> — **Colin Powell**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Only by attracting the best people will you accomplish great deeds."  
+> — **Colin Powell**
 
 ---
 
