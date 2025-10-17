@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only by attracting the best people will you accomplish great deeds."  
-> — **Colin Powell**
+> "You can't wait for inspiration. You have to go after it with a club. "  
+> — **Jack London**
 
 ---
 
