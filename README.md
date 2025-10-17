@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only by attracting the best people will you accomplish great deeds."  
-> — **Colin Powell**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 

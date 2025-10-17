@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
-> — **Jack London**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 
