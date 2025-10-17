@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "Management is doing things right; leadership is doing the right things."  
+> — **Peter Drucker**
 
 ---
 
