@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find the game where you can win, and then commit your life to playing it; and play to win."  
-> — **Robert Kiyosaki**
+> "You have the potential for greatness."  
+> — **Steve Harvey**
 
 ---
 
