@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never feel shame for trying and failing, for he who has never failed is he who has never tried."  
-> — **Og Mandino**
+> "Find the game where you can win, and then commit your life to playing it; and play to win."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 16 October 2025 ⏳_
+_Last updated: 17 October 2025 ⏳_

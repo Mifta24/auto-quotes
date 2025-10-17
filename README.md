@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We need never be ashamed of our tears."  
-> — **Charles Dickens**
+> "Find the game where you can win, and then commit your life to playing it; and play to win."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 16 October 2025 ⏳_
+_Last updated: 17 October 2025 ⏳_
