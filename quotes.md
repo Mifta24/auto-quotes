@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Peace. Peace is the path."  
-> — **Dan Millman**
+> "Allow motion to equal emotion."  
+> — **Elbert Hubbard**
 
 ---
 
