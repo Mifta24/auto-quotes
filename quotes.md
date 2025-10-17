@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Management is doing things right; leadership is doing the right things."  
-> — **Peter Drucker**
+> "All life is a manifestation of the spirit, the manifestation of love."  
+> — **Morihei Ueshiba**
 
 ---
 
