@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are enlightened never stop forging themselves."  
-> — **Morihei Ueshiba**
+> "A needle is not sharp at both ends. "  
+> — **Chinese Proverb**
 
 ---
 
