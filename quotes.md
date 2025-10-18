@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are enlightened never stop forging themselves."  
-> — **Morihei Ueshiba**
+> "Life is a succession of lessons, which must be lived to be understood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
