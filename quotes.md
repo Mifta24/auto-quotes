@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "All life is a manifestation of the spirit, the manifestation of love."  
-> — **Morihei Ueshiba**
+> "We must be free not because we claim freedom, but because we practice it."  
+> — **William Faulkner**
 
 ---
 
-_Last updated: 17 October 2025 ⏳_
+_Last updated: 18 October 2025 ⏳_
