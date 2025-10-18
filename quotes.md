@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone wants to go to Heaven, but no one wants to die."  
-> — **Robert Kiyosaki**
+> "Adventure is not outside man; it is within."  
+> — **George Eliot**
 
 ---
 

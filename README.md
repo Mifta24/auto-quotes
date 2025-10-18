@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A needle is not sharp at both ends. "  
-> — **Chinese Proverb**
+> "Adventure is not outside man; it is within."  
+> — **George Eliot**
 
 ---
 
