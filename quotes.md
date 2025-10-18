@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is not outside man; it is within."  
-> — **George Eliot**
+> "Life is a balance of holding on and letting go."  
+> — **Rumi**
 
 ---
 
