@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must be free not because we claim freedom, but because we practice it."  
-> — **William Faulkner**
+> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
+> — **Gilbert Chesterton**
 
 ---
 
