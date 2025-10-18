@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
-> — **Gilbert Chesterton**
+> "Those who are enlightened never stop forging themselves."  
+> — **Morihei Ueshiba**
 
 ---
 
