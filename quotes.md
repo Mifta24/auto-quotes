@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A needle is not sharp at both ends. "  
-> — **Chinese Proverb**
+> "Everyone wants to go to Heaven, but no one wants to die."  
+> — **Robert Kiyosaki**
 
 ---
 
