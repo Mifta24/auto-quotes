@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
-> — **Alfred Adler**
+> "If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."  
+> — **Paramahansa Yogananda**
 
 ---
 
