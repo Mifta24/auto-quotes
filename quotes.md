@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "We have to live life with a sense of urgency so not a minute is wasted."  
+> — **Les Brown**
 
 ---
 
