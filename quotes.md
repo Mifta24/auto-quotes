@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is only real when shared."  
-> — **Christopher McCandless**
+> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
+> — **Roy T. Bennett**
 
 ---
 
