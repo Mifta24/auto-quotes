@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club. "  
-> — **Jack London**
+> "He suffers more than necessary, who suffers before it is necessary.  "  
+> — **Seneca**
 
 ---
 
