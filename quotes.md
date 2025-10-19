@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be willing to be a beginner every single morning."  
-> — **Meister Eckhart**
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
+> — **Henry Ward Beecher**
 
 ---
 
