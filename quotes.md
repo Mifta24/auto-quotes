@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to dance than to march through life."  
-> — **Yoko Ono**
+> "Happiness is only real when shared."  
+> — **Christopher McCandless**
 
 ---
 
