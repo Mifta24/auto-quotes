@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "You can't wait for inspiration. You have to go after it with a club. "  
+> — **Jack London**
 
 ---
 
