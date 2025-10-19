@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can often change your circumstances by changing your attitude."  
-> — **Eleanor Roosevelt**
+> "Be willing to be a beginner every single morning."  
+> — **Meister Eckhart**
 
 ---
 
