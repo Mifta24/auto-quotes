@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
-> — **Henry Ward Beecher**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 

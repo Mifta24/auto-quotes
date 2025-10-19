@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be willing to be a beginner every single morning."  
-> — **Meister Eckhart**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 
