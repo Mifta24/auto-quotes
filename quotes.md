@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore. "  
-> — **Chinese Proverb**
+> "No one ever is defeated until defeat has been accepted as a reality."  
+> — **Napoleon Hill**
 
 ---
 
