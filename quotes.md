@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our attitude toward life determines life's attitude towards us."  
-> — **Earl Nightingale**
+> "Heaven is right where you are standing."  
+> — **Morihei Ueshiba**
 
 ---
 
