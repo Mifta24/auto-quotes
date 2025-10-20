@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ego wants comfort and certainty. The soul wants to live fully."  
-> — **Maxime Lagace**
+> "Learning is a weightless treasure you can always carry easily."  
+> — **Chinese Proverb**
 
 ---
 
