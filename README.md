@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The businessman's tool is value."  
-> — **Ayn Rand**
+> "Do not believe that you will reach your destination without leaving the shore. "  
+> — **Chinese Proverb**
 
 ---
 

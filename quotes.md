@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who has ever made anything of importance was disciplined."  
-> — **Andrew Hendrixson**
+> "Do not believe that you will reach your destination without leaving the shore. "  
+> — **Chinese Proverb**
 
 ---
 
