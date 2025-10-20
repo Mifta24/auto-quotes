@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "The secret of life is to fall seven times and to get up eight times."  
+> — **Paulo Coelho**
 
 ---
 
