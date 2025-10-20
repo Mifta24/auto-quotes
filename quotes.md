@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heaven is right where you are standing."  
-> — **Morihei Ueshiba**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 
