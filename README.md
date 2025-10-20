@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore. "  
-> — **Chinese Proverb**
+> "Our attitude toward life determines life's attitude towards us."  
+> — **Earl Nightingale**
 
 ---
 

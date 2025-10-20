@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one ever is defeated until defeat has been accepted as a reality."  
-> — **Napoleon Hill**
+> "Our attitude toward life determines life's attitude towards us."  
+> — **Earl Nightingale**
 
 ---
 
