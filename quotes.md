@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "He suffers more than necessary, who suffers before it is necessary.  "  
-> — **Seneca**
+> "The businessman's tool is value."  
+> — **Ayn Rand**
 
 ---
 
-_Last updated: 19 October 2025 ⏳_
+_Last updated: 20 October 2025 ⏳_
