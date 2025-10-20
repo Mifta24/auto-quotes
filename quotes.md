@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The businessman's tool is value."  
-> — **Ayn Rand**
+> "Anyone who has ever made anything of importance was disciplined."  
+> — **Andrew Hendrixson**
 
 ---
 
