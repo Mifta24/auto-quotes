@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "The ego wants comfort and certainty. The soul wants to live fully."  
+> — **Maxime Lagace**
 
 ---
 

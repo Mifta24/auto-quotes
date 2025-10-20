@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life is to fall seven times and to get up eight times."  
-> — **Paulo Coelho**
+> "The ego wants comfort and certainty. The soul wants to live fully."  
+> — **Maxime Lagace**
 
 ---
 
