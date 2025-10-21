@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
-> — **Brian Tracy**
+> "Many a man has failed because he had his wishbone where his backbone should have been."  
+> — **Ronald Reagan**
 
 ---
 
