@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The farther backward you can look, the farther forward you are likely to see."  
-> — **Winston Churchill**
+> "20 percent of your activities will account for 80 percent of your results."  
+> — **Brian Tracy**
 
 ---
 
