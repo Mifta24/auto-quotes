@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "Nothing is easier than fault finding."  
+> — **Og Mandino**
 
 ---
 
