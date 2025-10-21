@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Yesterday is but today's memory, tomorrow is today's dream."  
-> — **Kahlil Gibran**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 

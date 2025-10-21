@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in one thing too much and you have no room for new ideas.  "  
-> — **Ray Bradbury**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
