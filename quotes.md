@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in one thing too much and you have no room for new ideas.  "  
-> — **Ray Bradbury**
+> "Yesterday is but today's memory, tomorrow is today's dream."  
+> — **Kahlil Gibran**
 
 ---
 
