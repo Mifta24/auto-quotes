@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "20 percent of your activities will account for 80 percent of your results."  
-> — **Brian Tracy**
+> "The more acquaintances you have, the less you know them."  
+> — **Chinese Proverb**
 
 ---
 
