@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "20 percent of your activities will account for 80 percent of your results."  
-> — **Brian Tracy**
+> "Believe in one thing too much and you have no room for new ideas.  "  
+> — **Ray Bradbury**
 
 ---
 

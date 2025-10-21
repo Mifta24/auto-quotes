@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more acquaintances you have, the less you know them."  
-> — **Chinese Proverb**
+> "Believe in one thing too much and you have no room for new ideas.  "  
+> — **Ray Bradbury**
 
 ---
 
