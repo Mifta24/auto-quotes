@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All men who have achieved great things have been great dreamers. "  
-> — **Orison Swett Marden**
+> "A tiny change today brings a dramatically different tomorrow."  
+> — **Richard Bach**
 
 ---
 
