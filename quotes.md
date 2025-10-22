@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Observe things as they are and don't pay attention to other people."  
-> — **Huang Po**
+> "All men who have achieved great things have been great dreamers. "  
+> — **Orison Swett Marden**
 
 ---
 

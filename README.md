@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
-> — **Norman Vincent Peale**
+> "All men who have achieved great things have been great dreamers. "  
+> — **Orison Swett Marden**
 
 ---
 
