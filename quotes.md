@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
+> — **Roy T. Bennett**
 
 ---
 
