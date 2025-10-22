@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
-> — **Og Mandino**
+> "Any fool can turn a blind eye but who knows what the ostrich sees in the sand."  
+> — **Samuel Beckett**
 
 ---
 
-_Last updated: 21 October 2025 ⏳_
+_Last updated: 22 October 2025 ⏳_
