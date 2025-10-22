@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The scariest monsters are the ones that lurk within our souls."  
-> — **Edgar Allan Poe**
+> "The deeper the truth in a creative work, the longer it will live.  "  
+> — **Charlie Chaplin**
 
 ---
 

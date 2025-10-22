@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any fool can turn a blind eye but who knows what the ostrich sees in the sand."  
-> — **Samuel Beckett**
+> "The deeper the truth in a creative work, the longer it will live.  "  
+> — **Charlie Chaplin**
 
 ---
 
