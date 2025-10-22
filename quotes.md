@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiny change today brings a dramatically different tomorrow."  
-> — **Richard Bach**
+> "No duty is more urgent than that of returning thanks."  
+> — **James Allen**
 
 ---
 
