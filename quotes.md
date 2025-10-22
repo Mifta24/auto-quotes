@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
+> — **Norman Vincent Peale**
 
 ---
 

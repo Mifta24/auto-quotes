@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live.  "  
-> — **Charlie Chaplin**
+> "Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have."  
+> — **Norman Vincent Peale**
 
 ---
 
