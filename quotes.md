@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any fool can turn a blind eye but who knows what the ostrich sees in the sand."  
-> — **Samuel Beckett**
+> "The scariest monsters are the ones that lurk within our souls."  
+> — **Edgar Allan Poe**
 
 ---
 
