@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live.  "  
-> — **Charlie Chaplin**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
