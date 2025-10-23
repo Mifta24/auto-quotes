@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hold yourself responsible for a higher standard than anybody else expects of you."  
-> — **Henry Ward Beecher**
+> "When you are tempted to give up, your breakthrough is probably just around the corner."  
+> — **Joyce Meyer**
 
 ---
 
