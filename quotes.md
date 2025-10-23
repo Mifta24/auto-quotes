@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Because of your smile, you make life more beautiful."  
-> — **Thich Nhat Hanh**
+> "You Create Your Own Present By What You Give Your Attention To Today."  
+> — **Spencer Johnson**
 
 ---
 

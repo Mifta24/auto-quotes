@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you do today can improve all your tomorrows."  
-> — **Ralph Marston**
+> "You Create Your Own Present By What You Give Your Attention To Today."  
+> — **Spencer Johnson**
 
 ---
 
