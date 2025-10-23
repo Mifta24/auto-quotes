@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can suffer the pain of change or suffer remaining the way you are."  
-> — **Joyce Meyer**
+> "Every failure brings with it the seed of an equivalent success."  
+> — **Napoleon Hill**
 
 ---
 
