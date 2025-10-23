@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you do today can improve all your tomorrows."  
-> — **Ralph Marston**
+> "Because of your smile, you make life more beautiful."  
+> — **Thich Nhat Hanh**
 
 ---
 
