@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "You can suffer the pain of change or suffer remaining the way you are."  
+> — **Joyce Meyer**
 
 ---
 
-_Last updated: 22 October 2025 ⏳_
+_Last updated: 23 October 2025 ⏳_

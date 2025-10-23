@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
-> — **Roy T. Bennett**
+> "You can suffer the pain of change or suffer remaining the way you are."  
+> — **Joyce Meyer**
 
 ---
 
-_Last updated: 22 October 2025 ⏳_
+_Last updated: 23 October 2025 ⏳_
