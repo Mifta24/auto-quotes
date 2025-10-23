@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can suffer the pain of change or suffer remaining the way you are."  
-> — **Joyce Meyer**
+> "Each time we don't say what we wanna say, we're dying."  
+> — **Yoko Ono**
 
 ---
 
