@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hold yourself responsible for a higher standard than anybody else expects of you."  
-> — **Henry Ward Beecher**
+> "What you do today can improve all your tomorrows."  
+> — **Ralph Marston**
 
 ---
 

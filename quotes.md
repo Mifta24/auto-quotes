@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are tempted to give up, your breakthrough is probably just around the corner."  
-> — **Joyce Meyer**
+> "What you do today can improve all your tomorrows."  
+> — **Ralph Marston**
 
 ---
 
