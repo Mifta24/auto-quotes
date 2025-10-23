@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As a matter of fact is an expression that precedes many an expression that isn't."  
-> — **Laurence J. Peter**
+> "Hold yourself responsible for a higher standard than anybody else expects of you."  
+> — **Henry Ward Beecher**
 
 ---
 

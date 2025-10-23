@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each time we don't say what we wanna say, we're dying."  
-> — **Yoko Ono**
+> "Hold yourself responsible for a higher standard than anybody else expects of you."  
+> — **Henry Ward Beecher**
 
 ---
 
