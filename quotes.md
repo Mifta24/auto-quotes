@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Showing off is the fool's idea of glory. "  
-> — **Bruce Lee**
+> "The least deviation from truth will be multiplied later."  
+> — **Aristotle**
 
 ---
 
