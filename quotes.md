@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn off your mind, relax, and float downstream."  
-> — **John Lennon**
+> "There is no one giant step that does it. It's a lot of little steps."  
+> — **Peter A. Cohen**
 
 ---
 
