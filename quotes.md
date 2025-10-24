@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
-> — **Brian Tracy**
+> "Showing off is the fool's idea of glory. "  
+> — **Bruce Lee**
 
 ---
 
