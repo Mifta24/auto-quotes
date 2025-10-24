@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no one giant step that does it. It's a lot of little steps."  
-> — **Peter A. Cohen**
+> "Beware of false knowledge, it is more dangerous than ignorance."  
+> — **George Bernard Shaw**
 
 ---
 

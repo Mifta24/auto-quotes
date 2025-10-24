@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn off your mind, relax, and float downstream."  
-> — **John Lennon**
+> "Beware of false knowledge, it is more dangerous than ignorance."  
+> — **George Bernard Shaw**
 
 ---
 
