@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The least deviation from truth will be multiplied later."  
-> — **Aristotle**
+> "Turn off your mind, relax, and float downstream."  
+> — **John Lennon**
 
 ---
 

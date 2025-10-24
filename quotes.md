@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The meaning of life is that it stops."  
-> — **Franz Kafka**
+> "Turn off your mind, relax, and float downstream."  
+> — **John Lennon**
 
 ---
 
