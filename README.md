@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You Create Your Own Present By What You Give Your Attention To Today."  
-> — **Spencer Johnson**
+> "The dreamers are the saviors of the worlds."  
+> — **James Allen**
 
 ---
 
-_Last updated: 23 October 2025 ⏳_
+_Last updated: 24 October 2025 ⏳_
