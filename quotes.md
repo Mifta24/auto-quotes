@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is an option here. If things are not failing, you are not innovating enough."  
-> — **Elon Musk**
+> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
+> — **Brian Tracy**
 
 ---
 

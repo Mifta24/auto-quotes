@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dreamers are the saviors of the worlds."  
-> — **James Allen**
+> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
+> — **Brian Tracy**
 
 ---
 
