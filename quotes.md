@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The least deviation from truth will be multiplied later."  
-> — **Aristotle**
+> "The meaning of life is that it stops."  
+> — **Franz Kafka**
 
 ---
 
