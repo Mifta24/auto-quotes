@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Getting lost along your path is a part of finding the path you are meant to be on."  
-> — **Robin Sharma**
+> "Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean."  
+> — **Paramahansa Yogananda**
 
 ---
 
