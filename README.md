@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Smile, breathe and go slowly."  
-> — **Thich Nhat Hanh**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absurdity is the ecstasy of intellectualism."  
-> — **Criss Jami**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 
