@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Smile, breathe and go slowly."  
-> — **Thich Nhat Hanh**
+> "Absurdity is the ecstasy of intellectualism."  
+> — **Criss Jami**
 
 ---
 
