@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "Thinking is the hardest work there is. That is why so few people engage in it."  
+> — **Robert Kiyosaki**
 
 ---
 
