@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Beware of false knowledge, it is more dangerous than ignorance."  
-> — **George Bernard Shaw**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 24 October 2025 ⏳_
+_Last updated: 25 October 2025 ⏳_
