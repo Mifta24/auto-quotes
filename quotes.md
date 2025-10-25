@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
+> — **Criss Jami**
 
 ---
 
