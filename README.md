@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 

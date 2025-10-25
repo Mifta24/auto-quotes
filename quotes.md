@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is. That is why so few people engage in it."  
-> — **Robert Kiyosaki**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 
