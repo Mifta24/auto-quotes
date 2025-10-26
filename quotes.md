@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no excuse for not trying."  
-> — **Barack Obama**
+> "Formal education will make you a living, self-education will make you a fortune."  
+> — **Jim Rohn**
 
 ---
 
