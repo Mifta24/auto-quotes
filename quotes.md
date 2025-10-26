@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big and dare to fail."  
-> — **Norman Vaughan**
+> "There is no excuse for not trying."  
+> — **Barack Obama**
 
 ---
 
