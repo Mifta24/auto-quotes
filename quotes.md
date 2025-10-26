@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends."  
-> — **Deepak Chopra**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
