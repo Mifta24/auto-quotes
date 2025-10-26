@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
-> — **Jeffrey Gitomer**
+> "It's OK to have your eggs in one basket as long as you control what happens to that basket."  
+> — **Elon Musk**
 
 ---
 
