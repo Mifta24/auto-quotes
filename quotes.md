@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead."  
-> — **Samuel Butler**
+> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends."  
+> — **Deepak Chopra**
 
 ---
 
