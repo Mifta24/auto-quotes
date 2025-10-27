@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Selfishness and greed, individual or national, cause most of our troubles."  
-> — **Harry S. Truman**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 

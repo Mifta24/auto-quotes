@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Setting goals is the first step in turning the invisible into the visible."  
-> — **Tony Robbins**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 
