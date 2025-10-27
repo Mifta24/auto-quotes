@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Attitude, not aptitude, determines altitude.  "  
-> — **Zig Ziglar**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 
