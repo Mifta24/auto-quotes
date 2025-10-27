@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "Attitude, not aptitude, determines altitude.  "  
+> — **Zig Ziglar**
 
 ---
 
