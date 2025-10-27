@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is more important to discover what one cannot do, than what one can do."  
-> — **Lin Yutang**
+> "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."  
+> — **Josh Waitzkin**
 
 ---
 
