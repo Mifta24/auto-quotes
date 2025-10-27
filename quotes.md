@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do something to move yourself toward your major goal every day."  
-> — **Brian Tracy**
+> "Nothing is too high for a man to reach, but he must climb with care and confidence"  
+> — **Hans Christian Andersen**
 
 ---
 
