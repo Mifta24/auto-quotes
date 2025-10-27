@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Selfishness and greed, individual or national, cause most of our troubles."  
-> — **Harry S. Truman**
+> "Setting goals is the first step in turning the invisible into the visible."  
+> — **Tony Robbins**
 
 ---
 
