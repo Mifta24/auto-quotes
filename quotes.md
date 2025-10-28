@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn to value yourself, which means: fight for your happiness."  
-> — **Ayn Rand**
+> "Never do things others can do and will do if there are things others cannot do or will not do."  
+> — **Amelia Earhart**
 
 ---
 
