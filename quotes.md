@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you."  
-> — **Simon Sinek**
+> "Don't learn to do, but learn in doing."  
+> — **Samuel Butler**
 
 ---
 
