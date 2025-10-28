@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do something to move yourself toward your major goal every day."  
-> — **Brian Tracy**
+> "True wealth is of the heart, not of the purse."  
+> — **Og Mandino**
 
 ---
 
-_Last updated: 27 October 2025 ⏳_
+_Last updated: 28 October 2025 ⏳_
