@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A goal is a dream with a deadline."  
-> — **Napoleon Hill**
+> "Never confuse a single defeat with a final defeat."  
+> — **F. Scott Fitzgerald**
 
 ---
 
