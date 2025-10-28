@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never do things others can do and will do if there are things others cannot do or will not do."  
-> — **Amelia Earhart**
+> "The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be."  
+> — **Yanni**
 
 ---
 
