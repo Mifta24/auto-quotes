@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you."  
-> — **Simon Sinek**
+> "People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."  
+> — **Brian Tracy**
 
 ---
 

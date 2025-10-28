@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't learn to do, but learn in doing."  
-> — **Samuel Butler**
+> "People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."  
+> — **Brian Tracy**
 
 ---
 
