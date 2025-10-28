@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."  
-> — **Margaret Mead**
+> "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you."  
+> — **Simon Sinek**
 
 ---
 
