@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be."  
-> — **Yanni**
+> "A goal is a dream with a deadline."  
+> — **Napoleon Hill**
 
 ---
 

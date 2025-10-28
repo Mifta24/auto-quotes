@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never do things others can do and will do if there are things others cannot do or will not do."  
-> — **Amelia Earhart**
+> "A goal is a dream with a deadline."  
+> — **Napoleon Hill**
 
 ---
 
