@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine."  
-> — **Brian Tracy**
+> "Learn to value yourself, which means: fight for your happiness."  
+> — **Ayn Rand**
 
 ---
 
