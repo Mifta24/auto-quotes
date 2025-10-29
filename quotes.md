@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we have no peace, it is because we have forgotten that we belong to each other."  
-> — **Mother Teresa**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 

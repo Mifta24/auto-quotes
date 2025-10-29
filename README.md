@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 
