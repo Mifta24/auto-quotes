@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "Opportunities multiply as they are seized."  
+> — **Sun Tzu**
 
 ---
 
