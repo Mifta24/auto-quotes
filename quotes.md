@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about not knowing and then doing something anyway."  
-> — **Mark Manson**
+> "Here and now...breathe and relax...in battle and in life."  
+> — **Dan Millman**
 
 ---
 
