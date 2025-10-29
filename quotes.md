@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunities multiply as they are seized."  
-> — **Sun Tzu**
+> "Life is about not knowing and then doing something anyway."  
+> — **Mark Manson**
 
 ---
 

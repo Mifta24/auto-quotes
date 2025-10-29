@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Misfortune shows those who are not really friends."  
-> — **Aristotle**
+> "Life is about not knowing and then doing something anyway."  
+> — **Mark Manson**
 
 ---
 
