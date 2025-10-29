@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is contagious. So is lack of confidence."  
-> — **Vince Lombardi**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 
