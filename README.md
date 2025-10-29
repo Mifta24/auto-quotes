@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A goal is a dream with a deadline."  
-> — **Napoleon Hill**
+> "If you try, you might get exactly what you want. If you don't, you don't."  
+> — **Unknown**
 
 ---
 
-_Last updated: 28 October 2025 ⏳_
+_Last updated: 29 October 2025 ⏳_
