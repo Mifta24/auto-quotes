@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is about not knowing and then doing something anyway."  
-> — **Mark Manson**
+> "Confidence is contagious. So is lack of confidence."  
+> — **Vince Lombardi**
 
 ---
 

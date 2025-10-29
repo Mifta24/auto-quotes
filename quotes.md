@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Here and now...breathe and relax...in battle and in life."  
-> — **Dan Millman**
+> "Confidence is contagious. So is lack of confidence."  
+> — **Vince Lombardi**
 
 ---
 
