@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 
