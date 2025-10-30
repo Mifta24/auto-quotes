@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
-> — **Stephen King**
+> "Happiness is the absence of the striving for happiness."  
+> — **Zhuangzi**
 
 ---
 
