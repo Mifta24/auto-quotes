@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
-> — **Steve Jobs**
+> "Death smiles at us all. All we can do is smile back."  
+> — **Marcus Aurelius**
 
 ---
 
