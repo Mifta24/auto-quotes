@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be happy now, without reason - or you never will be at all."  
-> — **Dan Millman**
+> "The future depends on what you do today. "  
+> — **Mahatma Gandhi**
 
 ---
 
