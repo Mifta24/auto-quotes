@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The one who boasts does so only out of a feeling of inferiority."  
-> — **Alfred Adler**
+> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
+> — **Steve Jobs**
 
 ---
 
-_Last updated: 29 October 2025 ⏳_
+_Last updated: 30 October 2025 ⏳_
