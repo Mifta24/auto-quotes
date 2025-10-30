@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the absence of the striving for happiness."  
-> — **Zhuangzi**
+> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
+> — **Mother Teresa**
 
 ---
 

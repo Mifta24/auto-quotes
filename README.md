@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
-> — **Stephen King**
+> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
+> — **Mother Teresa**
 
 ---
 
