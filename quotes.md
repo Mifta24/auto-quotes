@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death smiles at us all. All we can do is smile back."  
-> — **Marcus Aurelius**
+> "Be happy now, without reason - or you never will be at all."  
+> — **Dan Millman**
 
 ---
 
