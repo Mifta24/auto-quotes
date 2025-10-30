@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A lot of people have gone further than they thought they could because someone else thought they could."  
-> — **Zig Ziglar**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
+> — **Stephen King**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."  
-> — **Ayn Rand**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win."  
+> — **Stephen King**
 
 ---
 
