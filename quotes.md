@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A lot of people have gone further than they thought they could because someone else thought they could."  
-> — **Zig Ziglar**
+> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."  
+> — **Ayn Rand**
 
 ---
 
