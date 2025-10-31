@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
-> — **Mother Teresa**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 
-_Last updated: 30 October 2025 ⏳_
+_Last updated: 31 October 2025 ⏳_

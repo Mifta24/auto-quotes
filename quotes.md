@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A person is only by the thoughts that he chooses."  
-> — **James Allen**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 
-_Last updated: 30 October 2025 ⏳_
+_Last updated: 31 October 2025 ⏳_
