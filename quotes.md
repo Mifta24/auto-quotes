@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fastest way to change is to laugh at your own folly."  
-> — **Spencer Johnson**
+> "Don't let the silly little dramas of each day get you down. For you are here to do great things."  
+> — **Ralph Marston**
 
 ---
 

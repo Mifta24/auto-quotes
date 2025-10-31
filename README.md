@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Here and now...breathe and relax...in battle and in life."  
-> — **Dan Millman**
+> "Don't let the silly little dramas of each day get you down. For you are here to do great things."  
+> — **Ralph Marston**
 
 ---
 
