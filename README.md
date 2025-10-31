@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strive for excellence, not perfection, because we don't live in a perfect world."  
-> — **Joyce Meyer**
+> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
+> — **Sathya Sai Baba**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists."  
-> — **Spencer Johnson**
+> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
+> — **Sathya Sai Baba**
 
 ---
 
