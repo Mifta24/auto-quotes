@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the silly little dramas of each day get you down. For you are here to do great things."  
-> — **Ralph Marston**
+> "Happiness is only real, when shared."  
+> — **Christopher McCandless**
 
 ---
 
