@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "No snowflake ever falls in the wrong place."  
+> — **Zen Proverb**
 
 ---
 
