@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "Here and now...breathe and relax...in battle and in life."  
+> — **Dan Millman**
 
 ---
 

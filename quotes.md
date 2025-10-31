@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No snowflake ever falls in the wrong place."  
-> — **Zen Proverb**
+> "Here and now...breathe and relax...in battle and in life."  
+> — **Dan Millman**
 
 ---
 
