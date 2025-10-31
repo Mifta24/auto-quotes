@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Here and now...breathe and relax...in battle and in life."  
-> — **Dan Millman**
+> "The fastest way to change is to laugh at your own folly."  
+> — **Spencer Johnson**
 
 ---
 
