@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strive for excellence, not perfection, because we don't live in a perfect world."  
-> — **Joyce Meyer**
+> "What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists."  
+> — **Spencer Johnson**
 
 ---
 
