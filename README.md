@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the silly little dramas of each day get you down. For you are here to do great things."  
-> — **Ralph Marston**
+> "Strive for excellence, not perfection, because we don't live in a perfect world."  
+> — **Joyce Meyer**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is only real, when shared."  
-> — **Christopher McCandless**
+> "Strive for excellence, not perfection, because we don't live in a perfect world."  
+> — **Joyce Meyer**
 
 ---
 
