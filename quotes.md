@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we allow negative messages to fester in our head, they take on a life of their own."  
-> — **Lolly Daskal**
+> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
+> — **Celestine Chua**
 
 ---
 

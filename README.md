@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be truly ignorant, be content with your own knowledge."  
-> — **Zhuangzi**
+> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
+> — **Celestine Chua**
 
 ---
 
