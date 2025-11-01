@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "As you love yourself, life loves you back."  
+> — **Kamal Ravikant**
 
 ---
 
