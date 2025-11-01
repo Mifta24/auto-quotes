@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "To be truly ignorant, be content with your own knowledge."  
+> — **Zhuangzi**
 
 ---
 
-_Last updated: 31 October 2025 ⏳_
+_Last updated: 01 November 2025 ⏳_
