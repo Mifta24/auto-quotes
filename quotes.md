@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
-> — **Celestine Chua**
+> "Think and wonder, wonder and think."  
+> — **Dr. Seuss**
 
 ---
 
