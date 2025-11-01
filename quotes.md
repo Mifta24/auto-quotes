@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Think and wonder, wonder and think."  
-> — **Dr. Seuss**
+> "The Art of Peace begins with you."  
+> — **Morihei Ueshiba**
 
 ---
 
