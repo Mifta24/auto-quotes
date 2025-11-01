@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you love yourself, life loves you back."  
-> — **Kamal Ravikant**
+> "The friendship that can cease has never been real. "  
+> — **St. Jerome**
 
 ---
 

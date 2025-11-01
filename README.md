@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "The friendship that can cease has never been real. "  
+> — **St. Jerome**
 
 ---
 
