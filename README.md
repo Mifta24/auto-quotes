@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "If you don't make things happen then things will happen to you."  
+> — **Robert Collier**
 
 ---
 

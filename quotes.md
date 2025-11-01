@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just do the best you can. No one can do more than that."  
-> — **John Wooden**
+> "If you don't make things happen then things will happen to you."  
+> — **Robert Collier**
 
 ---
 
