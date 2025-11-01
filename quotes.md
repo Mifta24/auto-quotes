@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "Just do the best you can. No one can do more than that."  
+> — **John Wooden**
 
 ---
 
