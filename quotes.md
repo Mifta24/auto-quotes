@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't make things happen then things will happen to you."  
-> — **Robert Collier**
+> "The constant assertion of belief is an indication of fear."  
+> — **Jiddu Krishnamurti**
 
 ---
 
