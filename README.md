@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else."  
+> — **Simon Sinek**
 
 ---
 

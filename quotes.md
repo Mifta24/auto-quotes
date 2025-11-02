@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else."  
+> — **Simon Sinek**
 
 ---
 
