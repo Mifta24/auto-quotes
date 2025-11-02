@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you don't make things happen then things will happen to you."  
-> — **Robert Collier**
+> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 01 November 2025 ⏳_
+_Last updated: 02 November 2025 ⏳_
