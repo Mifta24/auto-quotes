@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We live only now. Everything else is either passed or is unknown."  
-> — **Marcus Aurelius**
+> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."  
+> — **Steve Harvey**
 
 ---
 
