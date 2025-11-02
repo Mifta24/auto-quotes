@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
-> — **Leo Tolstoy**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 

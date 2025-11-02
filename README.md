@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 
