@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."  
-> — **Steve Harvey**
+> "The truth is rarely pure and never simple. "  
+> — **Oscar Wilde**
 
 ---
 
