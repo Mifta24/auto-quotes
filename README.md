@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else."  
-> — **Simon Sinek**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
