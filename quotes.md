@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
+> — **Leo Tolstoy**
 
 ---
 
