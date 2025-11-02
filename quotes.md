@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "Human happiness and moral duty are inseparably connected. "  
+> — **George Washington**
 
 ---
 
