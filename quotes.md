@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "The temptation to give up is strongest just before victory."  
+> — **Zen Proverb**
 
 ---
 
