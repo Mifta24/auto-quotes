@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He that can have patience can have what he will."  
-> — **Benjamin Franklin**
+> "Find your Light; They can't love you if they can't see you."  
+> — **Bette Midler**
 
 ---
 
