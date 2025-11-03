@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The temptation to give up is strongest just before victory."  
-> — **Zen Proverb**
+> "You will face many defeats in life, but never let yourself be defeated."  
+> — **Maya Angelou**
 
 ---
 
