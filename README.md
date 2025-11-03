@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The temptation to give up is strongest just before victory."  
-> — **Zen Proverb**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 

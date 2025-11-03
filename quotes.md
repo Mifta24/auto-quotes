@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will face many defeats in life, but never let yourself be defeated."  
-> — **Maya Angelou**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 
