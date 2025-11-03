@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Human happiness and moral duty are inseparably connected. "  
-> — **George Washington**
+> "He that can have patience can have what he will."  
+> — **Benjamin Franklin**
 
 ---
 
-_Last updated: 02 November 2025 ⏳_
+_Last updated: 03 November 2025 ⏳_
