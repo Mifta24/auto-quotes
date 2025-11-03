@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He that can have patience can have what he will."  
-> — **Benjamin Franklin**
+> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
+> — **Steve Harvey**
 
 ---
 

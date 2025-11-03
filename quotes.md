@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find your Light; They can't love you if they can't see you."  
-> — **Bette Midler**
+> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
+> — **Steve Harvey**
 
 ---
 
