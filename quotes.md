@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
-> — **Steve Harvey**
+> "Troubles are often the tools by which God fashions us for better things."  
+> — **Henry Ward Beecher**
 
 ---
 
