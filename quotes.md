@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."  
-> — **Tony Robbins**
+> "If anything is worth doing, do it with all your heart."  
+> — **Buddha**
 
 ---
 
