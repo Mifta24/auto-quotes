@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who boasts does so only out of a feeling of inferiority."  
-> — **Alfred Adler**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 
