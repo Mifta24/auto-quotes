@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Troubles are often the tools by which God fashions us for better things."  
-> — **Henry Ward Beecher**
+> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."  
+> — **Tony Robbins**
 
 ---
 
