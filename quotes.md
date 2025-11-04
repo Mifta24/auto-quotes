@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict your future is to create it."  
-> — **Abraham Lincoln**
+> "We win by helping each other win."  
+> — **Jack Butcher**
 
 ---
 
