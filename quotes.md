@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing we see or hear is perfect. But right there in the imperfection is perfect reality."  
-> — **Shunryu Suzuki**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 
