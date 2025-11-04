@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
-> — **Eckhart Tolle**
+> "Words have no power to impress the mind without the exquisite horror of their reality."  
+> — **Edgar Allan Poe**
 
 ---
 
