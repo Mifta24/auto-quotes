@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words have no power to impress the mind without the exquisite horror of their reality."  
-> — **Edgar Allan Poe**
+> "Fallacies do not cease to be fallacies because they become fashions."  
+> — **Gilbert Chesterton**
 
 ---
 
