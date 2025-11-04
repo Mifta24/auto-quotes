@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words have no power to impress the mind without the exquisite horror of their reality."  
-> — **Edgar Allan Poe**
+> "Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be. "  
+> — **Miguel de Cervantes**
 
 ---
 
