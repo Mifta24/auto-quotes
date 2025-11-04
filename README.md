@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict your future is to create it."  
-> — **Abraham Lincoln**
+> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
+> — **Kahlil Gibran**
 
 ---
 
