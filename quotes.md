@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
+> "All problems are illusions of the mind."  
 > — **Eckhart Tolle**
 
 ---
