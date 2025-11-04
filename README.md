@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The one who boasts does so only out of a feeling of inferiority."  
-> — **Alfred Adler**
+> "The best way to predict your future is to create it."  
+> — **Abraham Lincoln**
 
 ---
 
-_Last updated: 03 November 2025 ⏳_
+_Last updated: 04 November 2025 ⏳_
