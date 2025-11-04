@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fallacies do not cease to be fallacies because they become fashions."  
-> — **Gilbert Chesterton**
+> "The only thing worse than being blind is having sight but no vision."  
+> — **Helen Keller**
 
 ---
 
