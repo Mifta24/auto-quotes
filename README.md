@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Storms don't last forever."  
-> — **Unknown**
+> "Freedom itself demands discomfort."  
+> — **Mark Manson**
 
 ---
 

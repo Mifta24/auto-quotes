@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you believe in a thing, believe in it all the way, implicitly and unquestionable."  
-> — **Walt Disney**
+> "Freedom itself demands discomfort."  
+> — **Mark Manson**
 
 ---
 
