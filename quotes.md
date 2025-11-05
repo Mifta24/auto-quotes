@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, so shall you become. "  
-> — **Bruce Lee**
+> "From error to error one discovers the entire truth."  
+> — **Sigmund Freud**
 
 ---
 

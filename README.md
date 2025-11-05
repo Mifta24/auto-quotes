@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom itself demands discomfort."  
-> — **Mark Manson**
+> "From error to error one discovers the entire truth."  
+> — **Sigmund Freud**
 
 ---
 
