@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If a man knows not to which port he sails, no wind is favorable.  "  
-> — **Seneca**
+> "Most of us will do anything to avoid facing ourselves."  
+> — **Lolly Daskal**
 
 ---
 

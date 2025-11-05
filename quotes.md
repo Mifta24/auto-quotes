@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only he who has no use for the empire is fit to be entrusted with it."  
-> — **Zhuangzi**
+> "Most of us will do anything to avoid facing ourselves."  
+> — **Lolly Daskal**
 
 ---
 
