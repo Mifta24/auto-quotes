@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If a man knows not to which port he sails, no wind is favorable.  "  
-> — **Seneca**
+> "Only he who has no use for the empire is fit to be entrusted with it."  
+> — **Zhuangzi**
 
 ---
 
