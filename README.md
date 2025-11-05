@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From error to error one discovers the entire truth."  
-> — **Sigmund Freud**
+> "If a man knows not to which port he sails, no wind is favorable.  "  
+> — **Seneca**
 
 ---
 
