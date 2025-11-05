@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything."  
+> — **Shunryu Suzuki**
 
 ---
 
