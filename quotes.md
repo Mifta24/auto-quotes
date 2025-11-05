@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom itself demands discomfort."  
-> — **Mark Manson**
+> "As you think, so shall you become. "  
+> — **Bruce Lee**
 
 ---
 
