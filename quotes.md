@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From error to error one discovers the entire truth."  
-> — **Sigmund Freud**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 
