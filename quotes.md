@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Storms don't last forever."  
-> — **Unknown**
+> "When you believe in a thing, believe in it all the way, implicitly and unquestionable."  
+> — **Walt Disney**
 
 ---
 
