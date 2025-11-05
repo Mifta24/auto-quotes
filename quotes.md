@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only thing worse than being blind is having sight but no vision."  
-> — **Helen Keller**
+> "Storms don't last forever."  
+> — **Unknown**
 
 ---
 
-_Last updated: 04 November 2025 ⏳_
+_Last updated: 05 November 2025 ⏳_

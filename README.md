@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fallacies do not cease to be fallacies because they become fashions."  
-> — **Gilbert Chesterton**
+> "Storms don't last forever."  
+> — **Unknown**
 
 ---
 
-_Last updated: 04 November 2025 ⏳_
+_Last updated: 05 November 2025 ⏳_
