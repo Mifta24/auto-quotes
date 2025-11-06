@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "No great mind has ever existed without a touch of madness."  
+> — **Aristotle**
 
 ---
 
