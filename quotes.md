@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's just a bad day, not a bad life."  
-> — **Mary Engelbreit**
+> "Humans and prosperity never endure side by side for long."  
+> — **Herodotus**
 
 ---
 
