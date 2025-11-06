@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's just a bad day, not a bad life."  
-> — **Mary Engelbreit**
+> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
+> — **Christopher Reeve**
 
 ---
 
