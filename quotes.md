@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The art of being happy lies in the power of extracting happiness from common things."  
-> — **Henry Ward Beecher**
+> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
+> — **Colin Powell**
 
 ---
 
