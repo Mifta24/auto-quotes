@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great mind has ever existed without a touch of madness."  
-> — **Aristotle**
+> "People spend too much time doing and not enough time thinking about what they should be doing."  
+> — **Naval Ravikant**
 
 ---
 

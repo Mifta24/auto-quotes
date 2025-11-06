@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "People spend too much time doing and not enough time thinking about what they should be doing."  
+> — **Naval Ravikant**
 
 ---
 
