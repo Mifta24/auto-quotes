@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "It's just a bad day, not a bad life."  
+> — **Mary Engelbreit**
 
 ---
 
-_Last updated: 05 November 2025 ⏳_
+_Last updated: 06 November 2025 ⏳_
