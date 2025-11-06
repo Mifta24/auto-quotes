@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success in any endeavor depends on the degree to which it is an expression of your true self. "  
-> — **Ralph Marston**
+> "The art of being happy lies in the power of extracting happiness from common things."  
+> — **Henry Ward Beecher**
 
 ---
 
