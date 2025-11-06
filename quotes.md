@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
-> — **Colin Powell**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 
