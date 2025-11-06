@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
-> — **Christopher Reeve**
+> "Success in any endeavor depends on the degree to which it is an expression of your true self. "  
+> — **Ralph Marston**
 
 ---
 
