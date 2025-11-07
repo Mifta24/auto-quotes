@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what you make it. Always has been, always will be."  
-> — **Eleanor Roosevelt**
+> "In life you need either inspiration or desperation."  
+> — **Tony Robbins**
 
 ---
 
