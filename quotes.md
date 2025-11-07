@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The number one cause of failure is the fear of failure."  
-> — **Steve Harvey**
+> "However difficult life may seem, there is always something you can do and succeed at."  
+> — **Stephen Hawking**
 
 ---
 
