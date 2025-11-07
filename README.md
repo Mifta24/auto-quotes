@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what you make it. Always has been, always will be."  
-> — **Eleanor Roosevelt**
+> "Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim."  
+> — **John D. Rockefeller**
 
 ---
 
