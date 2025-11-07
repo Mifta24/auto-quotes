@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim."  
-> — **John D. Rockefeller**
+> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
+> — **Ralph Marston**
 
 ---
 
