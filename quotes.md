@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I have seen further than others, it is by standing upon the shoulders of giants."  
-> — **Isaac Newton**
+> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
+> — **Og Mandino**
 
 ---
 
