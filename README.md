@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "If I have seen further than others, it is by standing upon the shoulders of giants."  
+> — **Isaac Newton**
 
 ---
 
-_Last updated: 06 November 2025 ⏳_
+_Last updated: 07 November 2025 ⏳_

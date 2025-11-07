@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Good luck is opportunity meeting preparedness."  
-> — **Deepak Chopra**
+> "If I have seen further than others, it is by standing upon the shoulders of giants."  
+> — **Isaac Newton**
 
 ---
 
-_Last updated: 06 November 2025 ⏳_
+_Last updated: 07 November 2025 ⏳_
