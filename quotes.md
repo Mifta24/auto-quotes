@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "However difficult life may seem, there is always something you can do and succeed at."  
-> — **Stephen Hawking**
+> "Life is what you make it. Always has been, always will be."  
+> — **Eleanor Roosevelt**
 
 ---
 

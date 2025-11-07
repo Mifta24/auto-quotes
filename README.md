@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The number one cause of failure is the fear of failure."  
-> — **Steve Harvey**
+> "Life is what you make it. Always has been, always will be."  
+> — **Eleanor Roosevelt**
 
 ---
 
