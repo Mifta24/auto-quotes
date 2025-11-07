@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I have seen further than others, it is by standing upon the shoulders of giants."  
-> — **Isaac Newton**
+> "The number one cause of failure is the fear of failure."  
+> — **Steve Harvey**
 
 ---
 

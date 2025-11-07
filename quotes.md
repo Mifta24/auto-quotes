@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!"  
-> — **Og Mandino**
+> "The number one cause of failure is the fear of failure."  
+> — **Steve Harvey**
 
 ---
 
