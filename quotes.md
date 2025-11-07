@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
-> — **Ralph Marston**
+> "Health is the greatest of all possessions."  
+> — **Jonathan Swift**
 
 ---
 
