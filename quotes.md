@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim."  
-> — **John D. Rockefeller**
+> "If we all did the things we are capable of doing, we would literally astound ourselves."  
+> — **Thomas Edison**
 
 ---
 
