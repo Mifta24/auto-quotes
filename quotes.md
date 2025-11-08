@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sad thing is, you can still love someone and be wrong for them."  
-> — **Elvis Presley**
+> "All I can do is be me, whoever that is."  
+> — **Bob Dylan**
 
 ---
 

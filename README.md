@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."  
-> — **Dan Brown**
+> "All I can do is be me, whoever that is."  
+> — **Bob Dylan**
 
 ---
 
