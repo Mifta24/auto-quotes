@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All I can do is be me, whoever that is."  
-> — **Bob Dylan**
+> "Don't listen to the person who has the answers; listen to the person who has the questions."  
+> — **Albert Einstein**
 
 ---
 
