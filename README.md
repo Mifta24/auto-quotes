@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence comes not from always being right but not fearing to be wrong."  
-> — **Unknown**
+> "Originality is the fine art of remembering what you hear but forgetting where you heard it. "  
+> — **Laurence J. Peter**
 
 ---
 
