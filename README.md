@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
-> — **Ralph Marston**
+> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."  
+> — **Dan Brown**
 
 ---
 
-_Last updated: 07 November 2025 ⏳_
+_Last updated: 08 November 2025 ⏳_
