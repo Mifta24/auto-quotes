@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your purpose will be clear only when you listen to your heart."  
-> — **Lolly Daskal**
+> "Confidence comes not from always being right but not fearing to be wrong."  
+> — **Unknown**
 
 ---
 
