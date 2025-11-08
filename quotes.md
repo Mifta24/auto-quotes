@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men go to far greater lengths to avoid what they fear than to obtain what they desire."  
-> — **Dan Brown**
+> "Sad thing is, you can still love someone and be wrong for them."  
+> — **Elvis Presley**
 
 ---
 
