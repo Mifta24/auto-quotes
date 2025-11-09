@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My guiding principle is this: Guilt is never to be doubted. "  
-> — **Franz Kafka**
+> "There is no path to Love. Love is the path."  
+> — **Dan Millman**
 
 ---
 
