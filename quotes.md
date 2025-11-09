@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them."  
-> — **Denis Waitley**
+> "You are the only problem you will ever have and you are the only solution."  
+> — **Bob Proctor**
 
 ---
 
