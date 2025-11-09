@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My guiding principle is this: Guilt is never to be doubted. "  
-> — **Franz Kafka**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 

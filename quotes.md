@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Love. Love is the path."  
-> — **Dan Millman**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 
