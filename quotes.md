@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the only problem you will ever have and you are the only solution."  
-> — **Bob Proctor**
+> "Think and wonder, wonder and think."  
+> — **Dr. Seuss**
 
 ---
 
