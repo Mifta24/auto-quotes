@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Originality is the fine art of remembering what you hear but forgetting where you heard it. "  
-> — **Laurence J. Peter**
+> "My guiding principle is this: Guilt is never to be doubted. "  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 08 November 2025 ⏳_
+_Last updated: 09 November 2025 ⏳_

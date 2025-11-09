@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success."  
-> — **Robert Kiyosaki**
+> "My guiding principle is this: Guilt is never to be doubted. "  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 08 November 2025 ⏳_
+_Last updated: 09 November 2025 ⏳_
