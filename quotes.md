@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one has ever become poor by giving."  
-> — **Anne Frank**
+> "Conflict cannot survive without your participation. "  
+> — **Wayne Dyer**
 
 ---
 
