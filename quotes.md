@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I pay attention to every minute of the day."  
-> — **Steve Harvey**
+> "Fear is a natural reaction to moving closer to the truth."  
+> — **Pema Chodron**
 
 ---
 

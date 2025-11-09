@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Think and wonder, wonder and think."  
-> — **Dr. Seuss**
+> "Fear is a natural reaction to moving closer to the truth."  
+> — **Pema Chodron**
 
 ---
 
