@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Think and wonder, wonder and think."  
-> — **Dr. Seuss**
+> "I pay attention to every minute of the day."  
+> — **Steve Harvey**
 
 ---
 
