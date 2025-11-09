@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is a natural reaction to moving closer to the truth."  
-> — **Pema Chodron**
+> "A lie can travel half way around the world while the truth is putting on its shoes."  
+> — **Mark Twain**
 
 ---
 
