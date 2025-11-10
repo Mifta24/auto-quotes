@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important single ingredient in the formula of success is knowing how to get along with people."  
-> — **Theodore Roosevelt**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 

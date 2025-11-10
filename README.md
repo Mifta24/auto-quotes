@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Definiteness of purpose is the starting point of all achievement. "  
-> — **W. Clement Stone**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 
