@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy."  
-> — **Norman Vincent Peale**
+> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
+> — **James Matthew Barrie**
 
 ---
 
