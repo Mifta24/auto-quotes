@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny."  
+> — **Steve Maraboli**
 
 ---
 
