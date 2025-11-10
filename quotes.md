@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
-> — **James Matthew Barrie**
+> "Definiteness of purpose is the starting point of all achievement. "  
+> — **W. Clement Stone**
 
 ---
 
