@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
+> — **Sonia Ricotti**
 
 ---
 

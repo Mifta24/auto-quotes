@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny."  
-> — **Steve Maraboli**
+> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
+> — **Sonia Ricotti**
 
 ---
 
