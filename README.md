@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fear is a natural reaction to moving closer to the truth."  
-> — **Pema Chodron**
+> "Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 09 November 2025 ⏳_
+_Last updated: 10 November 2025 ⏳_
