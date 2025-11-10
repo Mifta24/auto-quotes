@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."  
-> — **Epictetus**
+> "Most people dabble their way through life, never deciding to master anything in particular."  
+> — **Tony Robbins**
 
 ---
 
