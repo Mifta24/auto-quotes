@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
-> — **Sonia Ricotti**
+> "There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."  
+> — **Epictetus**
 
 ---
 
