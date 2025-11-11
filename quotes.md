@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Force has no place where there is need of skill. "  
-> — **Herodotus**
+> "Life is a succession of lessons, which must be lived to be understood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
