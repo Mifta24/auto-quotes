@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only those who do nothing at all make no mistakes."  
-> — **Unknown**
+> "an action committed in anger is an action doomed to failure. "  
+> — **Genghis Khan**
 
 ---
 
