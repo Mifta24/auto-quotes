@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human wisdom is contained in these two words - Wait and Hope"  
-> — **Alexandre Dumas**
+> "Identification with our mind causes thought to become compulsive."  
+> — **Eckhart Tolle**
 
 ---
 
