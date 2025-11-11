@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identification with our mind causes thought to become compulsive."  
-> — **Eckhart Tolle**
+> "Only those who do nothing at all make no mistakes."  
+> — **Unknown**
 
 ---
 
