@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "Happiness can be found, even in the darkest of times, if one only remembers to turn on the light."  
+> — **Albus Dumbledore**
 
 ---
 
