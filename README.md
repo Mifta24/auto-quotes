@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."  
-> — **Epictetus**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 10 November 2025 ⏳_
+_Last updated: 11 November 2025 ⏳_
