@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only those who do nothing at all make no mistakes."  
-> — **Unknown**
+> "If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."  
+> — **Martin Luther King, Jr.**
 
 ---
 

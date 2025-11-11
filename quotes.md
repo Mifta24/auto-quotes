@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "an action committed in anger is an action doomed to failure. "  
-> — **Genghis Khan**
+> "If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."  
+> — **Martin Luther King, Jr.**
 
 ---
 
