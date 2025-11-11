@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "Force has no place where there is need of skill. "  
+> — **Herodotus**
 
 ---
 
