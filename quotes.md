@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."  
-> — **Martin Luther King, Jr.**
+> "Only those who dare to fail greatly can ever achieve greatly."  
+> — **Robert F. Kennedy**
 
 ---
 
