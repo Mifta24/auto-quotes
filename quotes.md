@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a succession of lessons, which must be lived to be understood."  
-> — **Ralph Waldo Emerson**
+> "All human wisdom is contained in these two words - Wait and Hope"  
+> — **Alexandre Dumas**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Force has no place where there is need of skill. "  
-> — **Herodotus**
+> "All human wisdom is contained in these two words - Wait and Hope"  
+> — **Alexandre Dumas**
 
 ---
 
