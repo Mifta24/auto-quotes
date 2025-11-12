@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."  
-> — **Martin Luther King, Jr.**
+> "Anxiety is the dizziness of freedom."  
+> — **Soren Kierkegaard**
 
 ---
 
-_Last updated: 11 November 2025 ⏳_
+_Last updated: 12 November 2025 ⏳_

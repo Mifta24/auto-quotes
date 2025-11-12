@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Only those who dare to fail greatly can ever achieve greatly."  
-> — **Robert F. Kennedy**
+> "Anxiety is the dizziness of freedom."  
+> — **Soren Kierkegaard**
 
 ---
 
-_Last updated: 11 November 2025 ⏳_
+_Last updated: 12 November 2025 ⏳_
