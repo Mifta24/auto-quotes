@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "Thinking is the hardest work there is. That is why so few people engage in it."  
+> — **Robert Kiyosaki**
 
 ---
 
