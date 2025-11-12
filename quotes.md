@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is. That is why so few people engage in it."  
-> — **Robert Kiyosaki**
+> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
+> — **Thomas Edison**
 
 ---
 
