@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time defending your problems and work on addressing them instead."  
-> — **Celestine Chua**
+> "The only people without problems are those in cemeteries."  
+> — **Tony Robbins**
 
 ---
 
