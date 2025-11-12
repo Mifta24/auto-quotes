@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
-> — **Thomas Edison**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 

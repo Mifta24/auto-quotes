@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is. That is why so few people engage in it."  
-> — **Robert Kiyosaki**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 
