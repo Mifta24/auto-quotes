@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anxiety is the dizziness of freedom."  
-> — **Soren Kierkegaard**
+> "Life is the dancer and you are the dance."  
+> — **Eckhart Tolle**
 
 ---
 

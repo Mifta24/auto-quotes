@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can spend our whole lives escaping from the monsters of our minds."  
-> — **Pema Chodron**
+> "Life is the dancer and you are the dance."  
+> — **Eckhart Tolle**
 
 ---
 
