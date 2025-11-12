@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anxiety is the dizziness of freedom."  
-> — **Soren Kierkegaard**
+> "We can spend our whole lives escaping from the monsters of our minds."  
+> — **Pema Chodron**
 
 ---
 
