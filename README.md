@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the dancer and you are the dance."  
-> — **Eckhart Tolle**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 
