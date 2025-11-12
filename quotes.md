@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the dancer and you are the dance."  
-> — **Eckhart Tolle**
+> "A creative man is motivated by the desire to achieve, not by the desire to beat others."  
+> — **Ayn Rand**
 
 ---
 
