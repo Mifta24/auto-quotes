@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
-> — **Tony Robbins**
+> "Rich people have small TVs and big libraries, and poor people have small libraries and big TVs."  
+> — **Zig Ziglar**
 
 ---
 
