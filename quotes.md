@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rich people have small TVs and big libraries, and poor people have small libraries and big TVs."  
-> — **Zig Ziglar**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 
