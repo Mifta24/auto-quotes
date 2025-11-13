@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who wishes to be obeyed must know how to command."  
-> — **Niccolo Machiavelli**
+> "Trusting our intuition often saves us from disaster. "  
+> — **Anne Wilson Schaef**
 
 ---
 

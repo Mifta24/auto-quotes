@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "Trusting our intuition often saves us from disaster. "  
+> — **Anne Wilson Schaef**
 
 ---
 
