@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Longevity is a fleeting moment that lasts forever."  
-> — **Vidal Sassoon**
+> "Every blessing ignored becomes a curse."  
+> — **Paulo Coelho**
 
 ---
 
