@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trusting our intuition often saves us from disaster. "  
-> — **Anne Wilson Schaef**
+> "Reversing your treatment of the man you have wronged is better than asking his forgiveness."  
+> — **Elbert Hubbard**
 
 ---
 
