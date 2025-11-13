@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Longevity is a fleeting moment that lasts forever."  
-> — **Vidal Sassoon**
+> "Your only obligation in any lifetime is to be true to yourself."  
+> — **Richard Bach**
 
 ---
 

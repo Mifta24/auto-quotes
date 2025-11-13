@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every blessing ignored becomes a curse."  
-> — **Paulo Coelho**
+> "Your only obligation in any lifetime is to be true to yourself."  
+> — **Richard Bach**
 
 ---
 
