@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trusting our intuition often saves us from disaster. "  
-> — **Anne Wilson Schaef**
+> "Longevity is a fleeting moment that lasts forever."  
+> — **Vidal Sassoon**
 
 ---
 

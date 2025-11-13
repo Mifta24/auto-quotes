@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reversing your treatment of the man you have wronged is better than asking his forgiveness."  
-> — **Elbert Hubbard**
+> "Longevity is a fleeting moment that lasts forever."  
+> — **Vidal Sassoon**
 
 ---
 
