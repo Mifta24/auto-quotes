@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Stop wasting time defending your problems and work on addressing them instead."  
-> — **Celestine Chua**
+> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 12 November 2025 ⏳_
+_Last updated: 13 November 2025 ⏳_
