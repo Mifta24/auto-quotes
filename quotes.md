@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your only obligation in any lifetime is to be true to yourself."  
-> — **Richard Bach**
+> "Avoiding danger is no safer in the long run than exposure."  
+> — **Helen Keller**
 
 ---
 
