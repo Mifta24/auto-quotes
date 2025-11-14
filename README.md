@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
-> — **Mark Twain**
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
+> — **Aristotle**
 
 ---
 

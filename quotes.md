@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At every moment where language can't go, that's your mind."  
-> — **Bodhidharma**
+> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
+> — **Aristotle**
 
 ---
 
