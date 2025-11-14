@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the sky. Everything else - it's just the weather."  
-> — **Pema Chodron**
+> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
+> — **Mark Twain**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves."  
-> — **Steve Maraboli**
+> "It's not the size of the dog in the fight, it's the size of the fight in the dog."  
+> — **Mark Twain**
 
 ---
 
