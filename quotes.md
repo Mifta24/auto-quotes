@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Creative people are often found either disagreeable or intimidating by mediocrities."  
-> — **Criss Jami**
+> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."  
+> — **Dr. Seuss**
 
 ---
 
