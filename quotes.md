@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
-> — **Deepak Chopra**
+> "You are the sky. Everything else - it's just the weather."  
+> — **Pema Chodron**
 
 ---
 

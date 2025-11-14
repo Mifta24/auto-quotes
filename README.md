@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "You are the sky. Everything else - it's just the weather."  
+> — **Pema Chodron**
 
 ---
 
