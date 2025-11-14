@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "Creative people are often found either disagreeable or intimidating by mediocrities."  
+> — **Criss Jami**
 
 ---
 
