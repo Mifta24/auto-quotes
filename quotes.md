@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People inspire you, or they drain you. Pick them wisely."  
-> — **Les Brown**
+> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
+> — **Deepak Chopra**
 
 ---
 
