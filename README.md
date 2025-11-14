@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your only obligation in any lifetime is to be true to yourself."  
-> — **Richard Bach**
+> "People inspire you, or they drain you. Pick them wisely."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 13 November 2025 ⏳_
+_Last updated: 14 November 2025 ⏳_
