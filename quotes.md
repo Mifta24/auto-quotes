@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the mark of an educated mind to be able to entertain a thought without accepting it."  
-> — **Aristotle**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 
