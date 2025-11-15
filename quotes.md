@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothes thoughts wear."  
-> — **Samuel Beckett**
+> "Only when I fall do I get up again."  
+> — **Vincent van Gogh**
 
 ---
 
