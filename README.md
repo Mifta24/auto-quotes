@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Creative people are often found either disagreeable or intimidating by mediocrities."  
+> "A fear of weakness only strengthens weakness."  
 > — **Criss Jami**
 
 ---
 
-_Last updated: 14 November 2025 ⏳_
+_Last updated: 15 November 2025 ⏳_
