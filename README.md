@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear of weakness only strengthens weakness."  
-> — **Criss Jami**
+> "Words are the clothes thoughts wear."  
+> — **Samuel Beckett**
 
 ---
 

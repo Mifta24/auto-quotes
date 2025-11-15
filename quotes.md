@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forever is composed of now's."  
-> — **Emily Dickinson**
+> "Words are the clothes thoughts wear."  
+> — **Samuel Beckett**
 
 ---
 
