@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. "  
-> — **Orison Swett Marden**
+> "Perhaps the most tragic thing about mankind is that we are all dreaming about some magical garden over the horizon, instead of enjoying the roses that are right outside today."  
+> — **Andrew Carnegie**
 
 ---
 
