@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear of weakness only strengthens weakness."  
-> — **Criss Jami**
+> "Forever is composed of now's."  
+> — **Emily Dickinson**
 
 ---
 
