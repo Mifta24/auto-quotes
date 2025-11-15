@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when I fall do I get up again."  
-> — **Vincent van Gogh**
+> "The wisdom of life consists in the elimination of the nonessentials."  
+> — **Lin Yutang**
 
 ---
 

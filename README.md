@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothes thoughts wear."  
-> — **Samuel Beckett**
+> "The wisdom of life consists in the elimination of the nonessentials."  
+> — **Lin Yutang**
 
 ---
 
