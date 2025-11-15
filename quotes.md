@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is now, the place is here. Stay in the present."  
-> — **Dan Millman**
+> "It's not the men in your life that matters, it's the life in your men."  
+> — **Mae West**
 
 ---
 
