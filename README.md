@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, you travel, and as you love, you attract."  
-> — **James Allen**
+> "The roots of education are bitter, but the fruit is sweet."  
+> — **Aristotle**
 
 ---
 

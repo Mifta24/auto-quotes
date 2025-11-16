@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wiser you get, the less you care to look like a fool."  
-> — **Maxime Lagace**
+> "The roots of education are bitter, but the fruit is sweet."  
+> — **Aristotle**
 
 ---
 
