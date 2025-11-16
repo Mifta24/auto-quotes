@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, you travel, and as you love, you attract."  
-> — **James Allen**
+> "The wiser you get, the less you care to look like a fool."  
+> — **Maxime Lagace**
 
 ---
 
