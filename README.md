@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not the men in your life that matters, it's the life in your men."  
-> — **Mae West**
+> "Life itself is the most wonderful fairy tale."  
+> — **Hans Christian Andersen**
 
 ---
 
-_Last updated: 15 November 2025 ⏳_
+_Last updated: 16 November 2025 ⏳_

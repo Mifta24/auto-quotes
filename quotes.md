@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Follow the man who seeks the truth; run from the man who has found it."  
-> — **Vaclav Havel**
+> "Life itself is the most wonderful fairy tale."  
+> — **Hans Christian Andersen**
 
 ---
 
-_Last updated: 15 November 2025 ⏳_
+_Last updated: 16 November 2025 ⏳_
