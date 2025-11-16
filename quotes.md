@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life itself is the most wonderful fairy tale."  
-> — **Hans Christian Andersen**
+> "Life and the simple beauty of it is too good to pass up."  
+> — **Christopher McCandless**
 
 ---
 
