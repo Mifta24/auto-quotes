@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
-> — **Maya Angelou**
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
+> — **Celestine Chua**
 
 ---
 
