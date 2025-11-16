@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The roots of education are bitter, but the fruit is sweet."  
-> — **Aristotle**
+> "Have a vision. Be demanding."  
+> — **Colin Powell**
 
 ---
 
