@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The roots of education are bitter, but the fruit is sweet."  
-> — **Aristotle**
+> "Success does not consist in never making mistakes but in never making the same one a second time."  
+> — **George Bernard Shaw**
 
 ---
 
