@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life itself is the most wonderful fairy tale."  
-> — **Hans Christian Andersen**
+> "As you think, you travel, and as you love, you attract."  
+> — **James Allen**
 
 ---
 

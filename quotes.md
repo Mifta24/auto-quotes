@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life and the simple beauty of it is too good to pass up."  
-> — **Christopher McCandless**
+> "As you think, you travel, and as you love, you attract."  
+> — **James Allen**
 
 ---
 
