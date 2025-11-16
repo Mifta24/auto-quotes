@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success does not consist in never making mistakes but in never making the same one a second time."  
-> — **George Bernard Shaw**
+> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
+> — **Maya Angelou**
 
 ---
 
