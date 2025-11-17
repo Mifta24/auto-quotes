@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let each man exercise the art he knows."  
-> — **Aristophanes**
+> "Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
