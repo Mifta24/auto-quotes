@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to."  
-> — **Carlos Ruiz Zafon**
+> "It is those who concentrate on but one thing at a time who advance in this world."  
+> — **Gary Keller**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let each man exercise the art he knows."  
-> — **Aristophanes**
+> "It is those who concentrate on but one thing at a time who advance in this world."  
+> — **Gary Keller**
 
 ---
 
