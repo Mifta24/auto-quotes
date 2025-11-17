@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
-> — **Celestine Chua**
+> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 16 November 2025 ⏳_
+_Last updated: 17 November 2025 ⏳_

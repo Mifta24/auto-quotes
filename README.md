@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
-> — **Maya Angelou**
+> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 16 November 2025 ⏳_
+_Last updated: 17 November 2025 ⏳_
