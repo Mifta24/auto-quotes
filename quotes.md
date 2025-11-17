@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life happens in the river, not the shore."  
-> — **Maxime Lagace**
+> "Let each man exercise the art he knows."  
+> — **Aristophanes**
 
 ---
 
