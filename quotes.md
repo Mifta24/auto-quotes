@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is those who concentrate on but one thing at a time who advance in this world."  
-> — **Gary Keller**
+> "Success is like reaching an important birthday and finding you're exactly the same."  
+> — **Audrey Hepburn**
 
 ---
 
