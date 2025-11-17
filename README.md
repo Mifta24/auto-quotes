@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is those who concentrate on but one thing at a time who advance in this world."  
-> — **Gary Keller**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 

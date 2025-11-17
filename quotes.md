@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is like reaching an important birthday and finding you're exactly the same."  
-> — **Audrey Hepburn**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 
