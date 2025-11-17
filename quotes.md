@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "To be happy we need something to solve. Happiness is therefore a form of action."  
+> — **Mark Manson**
 
 ---
 
