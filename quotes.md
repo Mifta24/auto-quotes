@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only by acceptance of the past, can you alter it."  
-> — **T.S. Eliot**
+> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
+> — **Wayne Gretzky**
 
 ---
 
