@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people find fault like there is a reward for it.  "  
-> — **Zig Ziglar**
+> "As a matter of fact is an expression that precedes many an expression that isn't."  
+> — **Laurence J. Peter**
 
 ---
 
