@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "Some people find fault like there is a reward for it.  "  
+> — **Zig Ziglar**
 
 ---
 
-_Last updated: 17 November 2025 ⏳_
+_Last updated: 18 November 2025 ⏳_
