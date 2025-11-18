@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As a matter of fact is an expression that precedes many an expression that isn't."  
-> — **Laurence J. Peter**
+> "A man sooner or later discovers that he is the master-gardener of his soul, the director of his life."  
+> — **James Allen**
 
 ---
 
