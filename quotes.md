@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As a matter of fact is an expression that precedes many an expression that isn't."  
-> — **Laurence J. Peter**
+> "Much learning does not teach understanding."  
+> — **Heraclitus**
 
 ---
 
