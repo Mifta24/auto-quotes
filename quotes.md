@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people find fault like there is a reward for it.  "  
-> — **Zig Ziglar**
+> "Be the change that you want to see in the world."  
+> — **Mahatma Gandhi**
 
 ---
 
