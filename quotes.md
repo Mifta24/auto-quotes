@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All happiness depends on courage and work."  
-> — **Honore de Balzac**
+> "Use your smile to change the world but don't let the world change your smile."  
+> — **Unknown**
 
 ---
 
