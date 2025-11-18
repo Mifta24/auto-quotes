@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heaven is right where you are standing."  
-> — **Morihei Ueshiba**
+> "The person who is his own master cannot tolerate another boss. "  
+> — **Chinese Proverb**
 
 ---
 

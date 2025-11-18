@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Use your smile to change the world but don't let the world change your smile."  
-> — **Unknown**
+> "The person who is his own master cannot tolerate another boss. "  
+> — **Chinese Proverb**
 
 ---
 
