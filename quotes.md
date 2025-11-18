@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who is his own master cannot tolerate another boss. "  
-> — **Chinese Proverb**
+> "Mistakes are always forgivable, if one has the courage to admit them. "  
+> — **Bruce Lee**
 
 ---
 
