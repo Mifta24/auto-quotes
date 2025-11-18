@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Use your smile to change the world but don't let the world change your smile."  
-> — **Unknown**
+> "Heaven is right where you are standing."  
+> — **Morihei Ueshiba**
 
 ---
 
