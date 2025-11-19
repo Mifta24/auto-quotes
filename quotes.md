@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't have time to do it right, when will you have time to do it over?"  
-> — **John Wooden**
+> "It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society."  
+> — **Jiddu Krishnamurti**
 
 ---
 
