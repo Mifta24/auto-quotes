@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth comes at the point of resistance."  
-> — **Josh Waitzkin**
+> "If you don't have time to do it right, when will you have time to do it over?"  
+> — **John Wooden**
 
 ---
 
