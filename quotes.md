@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
-> — **Alexander Graham Bell**
+> "You don't have to be great to start, but you have to start to be great.  "  
+> — **Zig Ziglar**
 
 ---
 
