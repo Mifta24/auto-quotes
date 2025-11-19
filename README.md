@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
-> — **Alexander Graham Bell**
+> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
+> — **Kabir**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't have to be great to start, but you have to start to be great.  "  
-> — **Zig Ziglar**
+> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
+> — **Kabir**
 
 ---
 
