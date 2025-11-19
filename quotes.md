@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Information changes your mind. Action changes your circumstances."  
-> — **Jack Butcher**
+> "Growth comes at the point of resistance."  
+> — **Josh Waitzkin**
 
 ---
 
