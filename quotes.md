@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to see things just as they are, then you yourself must practice just as you are."  
-> — **Dogen**
+> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
+> — **Alexander Graham Bell**
 
 ---
 
