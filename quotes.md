@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who possesses most must be most afraid of loss."  
-> — **Leonardo da Vinci**
+> "By perseverance the snail reached the ark."  
+> — **Charles Spurgeon**
 
 ---
 
