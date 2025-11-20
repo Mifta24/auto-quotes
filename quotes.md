@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people want it to happen, some wish it would happen, others make it happen."  
-> — **Michael Jordan**
+> "Man is made by his belief. As he believes, so he is."  
+> — **Bhagavad Gita**
 
 ---
 
