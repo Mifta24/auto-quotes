@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kind words can be short and easy to speak, but their echoes are truly endless."  
-> — **Mother Teresa**
+> "A strong man overcomes an obstacle, a wise man goes the whole way."  
+> — **Zen Proverb**
 
 ---
 
