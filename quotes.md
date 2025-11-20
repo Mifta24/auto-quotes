@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Blessed is he who expects nothing, for he shall never be disappointed."  
-> — **Alexander Pope**
+> "Be royal in your own fashion: act like a king to be treated like one."  
+> — **Robert Greene**
 
 ---
 

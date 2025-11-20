@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad."  
-> — **Harry S. Truman**
+> "Be royal in your own fashion: act like a king to be treated like one."  
+> — **Robert Greene**
 
 ---
 
