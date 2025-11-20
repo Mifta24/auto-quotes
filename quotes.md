@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be royal in your own fashion: act like a king to be treated like one."  
-> — **Robert Greene**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
