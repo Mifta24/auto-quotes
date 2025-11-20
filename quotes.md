@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad."  
-> — **Harry S. Truman**
+> "Blessed is he who expects nothing, for he shall never be disappointed."  
+> — **Alexander Pope**
 
 ---
 
