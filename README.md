@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who possesses most must be most afraid of loss."  
-> — **Leonardo da Vinci**
+> "Some people want it to happen, some wish it would happen, others make it happen."  
+> — **Michael Jordan**
 
 ---
 
