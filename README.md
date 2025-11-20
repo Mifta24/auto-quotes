@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
-> — **Kabir**
+> "He who possesses most must be most afraid of loss."  
+> — **Leonardo da Vinci**
 
 ---
 
-_Last updated: 19 November 2025 ⏳_
+_Last updated: 20 November 2025 ⏳_

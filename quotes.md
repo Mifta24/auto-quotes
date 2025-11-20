@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Today I begin a new life. I will greet this day with love in my heart."  
-> — **Og Mandino**
+> "He who possesses most must be most afraid of loss."  
+> — **Leonardo da Vinci**
 
 ---
 
-_Last updated: 19 November 2025 ⏳_
+_Last updated: 20 November 2025 ⏳_
