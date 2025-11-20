@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A strong man overcomes an obstacle, a wise man goes the whole way."  
-> — **Zen Proverb**
+> "Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad."  
+> — **Harry S. Truman**
 
 ---
 

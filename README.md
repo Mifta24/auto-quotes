@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kind words can be short and easy to speak, but their echoes are truly endless."  
-> — **Mother Teresa**
+> "Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad."  
+> — **Harry S. Truman**
 
 ---
 
