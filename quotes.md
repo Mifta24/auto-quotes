@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man is made by his belief. As he believes, so he is."  
-> — **Bhagavad Gita**
+> "Kind words can be short and easy to speak, but their echoes are truly endless."  
+> — **Mother Teresa**
 
 ---
 
