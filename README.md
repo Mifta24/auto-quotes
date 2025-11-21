@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever you are, it's the place you need to be."  
-> — **Maxime Lagace**
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
+> — **Celestine Chua**
 
 ---
 
