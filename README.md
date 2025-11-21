@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be royal in your own fashion: act like a king to be treated like one."  
-> — **Robert Greene**
+> "The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 20 November 2025 ⏳_
+_Last updated: 21 November 2025 ⏳_
