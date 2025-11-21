@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no mistakes in life, only lessons."  
-> — **Robin Sharma**
+> "What people need and what they want may be very different."  
+> — **Elbert Hubbard**
 
 ---
 
