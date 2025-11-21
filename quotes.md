@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever you are, it's the place you need to be."  
-> — **Maxime Lagace**
+> "So long as we are being remembered, we remain alive."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
