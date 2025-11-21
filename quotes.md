@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
-> — **Estee Lauder**
+> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
+> — **Napoleon Hill**
 
 ---
 
