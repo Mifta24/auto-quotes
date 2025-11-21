@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
-> — **Celestine Chua**
+> "Live, travel, adventure, bless, and don't be sorry.  "  
+> — **Jack Kerouac**
 
 ---
 
