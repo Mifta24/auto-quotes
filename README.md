@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
-> — **Napoleon Hill**
+> "Wherever you are, it's the place you need to be."  
+> — **Maxime Lagace**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always lived in the moment."  
-> — **Yanni**
+> "Wherever you are, it's the place you need to be."  
+> — **Maxime Lagace**
 
 ---
 
