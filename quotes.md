@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What people need and what they want may be very different."  
-> — **Elbert Hubbard**
+> "Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.  "  
+> — **Estee Lauder**
 
 ---
 
