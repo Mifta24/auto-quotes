@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistake is a mistake only if you make it twice."  
-> — **Robin Sharma**
+> "If you see yourself as prosperous, you will be."  
+> — **Robert Collier**
 
 ---
 
