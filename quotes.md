@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you've made a mistake, it's better just to laugh at it."  
-> — **Zen Proverb**
+> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
+> — **Nikola Tesla**
 
 ---
 

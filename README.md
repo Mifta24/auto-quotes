@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to stand by someone's side than by yourself."  
-> — **Jack London**
+> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
+> — **Nikola Tesla**
 
 ---
 
