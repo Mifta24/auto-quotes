@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see yourself as prosperous, you will be."  
-> — **Robert Collier**
+> "Rivers know this: there is no hurry. We shall get there some day."  
+> — **A.A. Milne**
 
 ---
 
