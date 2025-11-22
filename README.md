@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see yourself as prosperous, you will be."  
-> — **Robert Collier**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rivers know this: there is no hurry. We shall get there some day."  
-> — **A.A. Milne**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 
