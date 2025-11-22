@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
-> — **Nikola Tesla**
+> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
+> — **Samuel Butler**
 
 ---
 
