@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Avoiding failure is to avoid progress."  
-> — **Unknown**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 
