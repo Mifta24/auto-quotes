@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Live, travel, adventure, bless, and don't be sorry.  "  
-> — **Jack Kerouac**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 
-_Last updated: 21 November 2025 ⏳_
+_Last updated: 22 November 2025 ⏳_
