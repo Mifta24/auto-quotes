@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
-> — **William Faulkner**
+> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
+> — **Arnold Schwarzenegger**
 
 ---
 

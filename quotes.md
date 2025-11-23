@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live.  "  
-> — **Charlie Chaplin**
+> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
+> — **Arnold Schwarzenegger**
 
 ---
 
