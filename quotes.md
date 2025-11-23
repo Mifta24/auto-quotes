@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great deeds are usually wrought at great risks."  
-> — **Herodotus**
+> "Each problem has a positive side."  
+> — **Og Mandino**
 
 ---
 
