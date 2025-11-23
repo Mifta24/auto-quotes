@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
-> — **Samuel Butler**
+> "If you want peace, you won't get it with violence."  
+> — **John Lennon**
 
 ---
 
-_Last updated: 22 November 2025 ⏳_
+_Last updated: 23 November 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is and will ever remain an equation incapable of solution, but it contains certain known factors. "  
-> — **Nikola Tesla**
+> "If you want peace, you won't get it with violence."  
+> — **John Lennon**
 
 ---
 
-_Last updated: 22 November 2025 ⏳_
+_Last updated: 23 November 2025 ⏳_
