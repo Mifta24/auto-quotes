@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, you won't get it with violence."  
-> — **John Lennon**
+> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
+> — **William Faulkner**
 
 ---
 

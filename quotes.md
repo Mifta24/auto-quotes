@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every hour of every day is an unspeakably perfect miracle."  
-> — **Walt Whitman**
+> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
+> — **William Faulkner**
 
 ---
 
