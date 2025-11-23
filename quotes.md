@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, you won't get it with violence."  
-> — **John Lennon**
+> "Every hour of every day is an unspeakably perfect miracle."  
+> — **Walt Whitman**
 
 ---
 
