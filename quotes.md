@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."  
-> — **William Faulkner**
+> "The deeper the truth in a creative work, the longer it will live.  "  
+> — **Charlie Chaplin**
 
 ---
 
