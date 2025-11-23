@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
-> — **Arnold Schwarzenegger**
+> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
+> — **Rumi**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions."  
-> — **Ming-Dao Deng**
+> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
+> — **Rumi**
 
 ---
 
