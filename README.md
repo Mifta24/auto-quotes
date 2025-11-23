@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
-> — **Rumi**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 

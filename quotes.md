@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are people who have money and people who are rich."  
-> — **Coco Chanel**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 
