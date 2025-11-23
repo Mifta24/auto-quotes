@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail."  
-> — **Arnold Schwarzenegger**
+> "A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions."  
+> — **Ming-Dao Deng**
 
 ---
 
