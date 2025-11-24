@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The joy of life comes from our encounters with new experiences."  
-> — **Christopher McCandless**
+> "The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety."  
+> — **Sathya Sai Baba**
 
 ---
 

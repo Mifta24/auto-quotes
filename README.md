@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul without imagination is what an observatory would be without a telescope."  
-> — **Henry Ward Beecher**
+> "The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety."  
+> — **Sathya Sai Baba**
 
 ---
 
