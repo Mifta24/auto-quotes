@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-knowledge is the beginning of self-correction."  
-> — **Norman Vincent Peale**
+> "Be thankful for everything that happens in your life; it's all an experience."  
+> — **Roy T. Bennett**
 
 ---
 
