@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My sun sets to rise again."  
-> — **Robert Browning**
+> "I would rather be hated for who I am than loved for who I'm not.  "  
+> — **Wayne Dyer**
 
 ---
 
