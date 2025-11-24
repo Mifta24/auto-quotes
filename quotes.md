@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do not conquer self, you will be conquered by self."  
-> — **Napoleon Hill**
+> "Rewards and punishment is the lowest form of education."  
+> — **Zhuangzi**
 
 ---
 
