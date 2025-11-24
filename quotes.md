@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Each problem has a positive side."  
-> — **Og Mandino**
+> "The soul without imagination is what an observatory would be without a telescope."  
+> — **Henry Ward Beecher**
 
 ---
 
-_Last updated: 23 November 2025 ⏳_
+_Last updated: 24 November 2025 ⏳_
