@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather be hated for who I am than loved for who I'm not.  "  
-> — **Wayne Dyer**
+> "If you do not conquer self, you will be conquered by self."  
+> — **Napoleon Hill**
 
 ---
 

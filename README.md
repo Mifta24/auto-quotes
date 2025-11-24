@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My sun sets to rise again."  
-> — **Robert Browning**
+> "If you do not conquer self, you will be conquered by self."  
+> — **Napoleon Hill**
 
 ---
 
