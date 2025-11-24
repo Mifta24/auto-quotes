@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be thankful for everything that happens in your life; it's all an experience."  
-> — **Roy T. Bennett**
+> "My sun sets to rise again."  
+> — **Robert Browning**
 
 ---
 

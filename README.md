@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-knowledge is the beginning of self-correction."  
-> — **Norman Vincent Peale**
+> "My sun sets to rise again."  
+> — **Robert Browning**
 
 ---
 
