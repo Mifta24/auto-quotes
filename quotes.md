@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anger begins with folly, and ends with repentance. "  
-> — **Beverly Sills**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 

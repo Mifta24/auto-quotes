@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety."  
-> — **Sathya Sai Baba**
+> "Self-knowledge is the beginning of self-correction."  
+> — **Norman Vincent Peale**
 
 ---
 
