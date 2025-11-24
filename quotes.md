@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul without imagination is what an observatory would be without a telescope."  
-> — **Henry Ward Beecher**
+> "The joy of life comes from our encounters with new experiences."  
+> — **Christopher McCandless**
 
 ---
 
