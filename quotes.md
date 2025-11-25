@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."  
+> — **Sydney Smith**
 
 ---
 
