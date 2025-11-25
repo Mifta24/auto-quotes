@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All life is an experiment. The more experiments you make, the better."  
-> — **Ralph Waldo Emerson**
+> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
+> — **Jon Kabat-Zinn**
 
 ---
 
