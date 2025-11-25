@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "Life should be touched, not strangled.  "  
+> — **Ray Bradbury**
 
 ---
 

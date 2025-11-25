@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
-> — **Roy T. Bennett**
+> "Life should be touched, not strangled.  "  
+> — **Ray Bradbury**
 
 ---
 
