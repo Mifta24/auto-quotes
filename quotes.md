@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Know yourself and you will win all battles."  
-> — **Sun Tzu**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 

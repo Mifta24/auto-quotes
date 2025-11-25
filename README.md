@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find something you love and do it better than everyone else."  
-> — **Gurbaksh Chahal**
+> "Either you run the day or the day runs you."  
+> — **Jim Rohn**
 
 ---
 
