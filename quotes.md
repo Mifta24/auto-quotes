@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either you run the day or the day runs you."  
-> — **Jim Rohn**
+> "Be mindful. Be grateful. Be positive. Be true. Be kind."  
+> — **Roy T. Bennett**
 
 ---
 
