@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Rewards and punishment is the lowest form of education."  
-> — **Zhuangzi**
+> "Find something you love and do it better than everyone else."  
+> — **Gurbaksh Chahal**
 
 ---
 
-_Last updated: 24 November 2025 ⏳_
+_Last updated: 25 November 2025 ⏳_
