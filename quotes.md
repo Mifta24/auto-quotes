@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find something you love and do it better than everyone else."  
-> — **Gurbaksh Chahal**
+> "Know yourself and you will win all battles."  
+> — **Sun Tzu**
 
 ---
 
