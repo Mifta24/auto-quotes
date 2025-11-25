@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life should be touched, not strangled.  "  
-> — **Ray Bradbury**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 
