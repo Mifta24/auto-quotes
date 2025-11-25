@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom itself demands discomfort."  
-> — **Mark Manson**
+> "All life is an experiment. The more experiments you make, the better."  
+> — **Ralph Waldo Emerson**
 
 ---
 
