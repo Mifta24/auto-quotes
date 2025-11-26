@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The constant assertion of belief is an indication of fear."  
-> — **Jiddu Krishnamurti**
+> "You cannot change your destination overnight but you can change your direction overnight."  
+> — **Jim Rohn**
 
 ---
 
