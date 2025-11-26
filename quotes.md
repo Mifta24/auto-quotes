@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety."  
-> — **Sathya Sai Baba**
+> "When you want something in life, you just gotta reach out and grab it."  
+> — **Christopher McCandless**
 
 ---
 

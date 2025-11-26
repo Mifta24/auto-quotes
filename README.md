@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "When you want something in life, you just gotta reach out and grab it."  
+> — **Christopher McCandless**
 
 ---
 
