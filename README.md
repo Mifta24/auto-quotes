@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The constant assertion of belief is an indication of fear."  
-> — **Jiddu Krishnamurti**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 

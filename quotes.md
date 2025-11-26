@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot change your destination overnight but you can change your direction overnight."  
-> — **Jim Rohn**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 
