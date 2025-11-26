@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be true to yourself, help others, make each day your masterpiece"  
-> — **John Wooden**
+> "Don't let your learning lead to knowledge. Let your learning lead to action."  
+> — **Jim Rohn**
 
 ---
 
