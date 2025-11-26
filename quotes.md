@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let your learning lead to knowledge. Let your learning lead to action."  
-> — **Jim Rohn**
+> "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."  
+> — **Andrew Carnegie**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be true to yourself, help others, make each day your masterpiece"  
-> — **John Wooden**
+> "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."  
+> — **Andrew Carnegie**
 
 ---
 
