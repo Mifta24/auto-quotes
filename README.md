@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you want something in life, you just gotta reach out and grab it."  
-> — **Christopher McCandless**
+> "Be true to yourself, help others, make each day your masterpiece"  
+> — **John Wooden**
 
 ---
 
