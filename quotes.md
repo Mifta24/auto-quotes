@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
-> — **Jon Kabat-Zinn**
+> "The constant assertion of belief is an indication of fear."  
+> — **Jiddu Krishnamurti**
 
 ---
 
-_Last updated: 25 November 2025 ⏳_
+_Last updated: 26 November 2025 ⏳_

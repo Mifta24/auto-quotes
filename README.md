@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "All life is an experiment. The more experiments you make, the better."  
-> — **Ralph Waldo Emerson**
+> "The constant assertion of belief is an indication of fear."  
+> — **Jiddu Krishnamurti**
 
 ---
 
-_Last updated: 25 November 2025 ⏳_
+_Last updated: 26 November 2025 ⏳_
