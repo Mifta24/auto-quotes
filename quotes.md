@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."  
-> — **Andrew Carnegie**
+> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."  
+> — **Sydney Smith**
 
 ---
 
