@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "Pleasure in the job puts perfection in the work."  
+> — **Aristotle**
 
 ---
 
