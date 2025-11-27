@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."  
-> — **Andrew Carnegie**
+> "If you do what you've always done, you'll get what you've always gotten."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 26 November 2025 ⏳_
+_Last updated: 27 November 2025 ⏳_
