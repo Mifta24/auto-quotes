@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where you are right now doesn't have to determine where you'll end up."  
-> — **Barack Obama**
+> "Be polite to all, but intimate with few."  
+> — **Thomas Jefferson**
 
 ---
 

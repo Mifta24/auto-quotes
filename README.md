@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of your greatest lessons come from your darkest moments."  
-> — **Roger Lee**
+> "Be polite to all, but intimate with few."  
+> — **Thomas Jefferson**
 
 ---
 
