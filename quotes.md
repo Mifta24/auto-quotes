@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be polite to all, but intimate with few."  
-> — **Thomas Jefferson**
+> "It's not what we do once in a while that shapes our lives, but what we do consistently."  
+> — **Tony Robbins**
 
 ---
 
