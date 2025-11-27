@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure in the job puts perfection in the work."  
-> — **Aristotle**
+> "There will always be suffering. But we must not suffer over the suffering."  
+> — **Alan Watts**
 
 ---
 
