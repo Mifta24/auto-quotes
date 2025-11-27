@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "Quality is more important than quantity. One home run is much better than two doubles."  
+> — **Steve Jobs**
 
 ---
 
