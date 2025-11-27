@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of your greatest lessons come from your darkest moments."  
-> — **Roger Lee**
+> "Where you are right now doesn't have to determine where you'll end up."  
+> — **Barack Obama**
 
 ---
 
