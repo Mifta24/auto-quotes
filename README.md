@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure in the job puts perfection in the work."  
-> — **Aristotle**
+> "Some of your greatest lessons come from your darkest moments."  
+> — **Roger Lee**
 
 ---
 

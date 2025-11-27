@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There will always be suffering. But we must not suffer over the suffering."  
-> — **Alan Watts**
+> "Some of your greatest lessons come from your darkest moments."  
+> — **Roger Lee**
 
 ---
 
