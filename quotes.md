@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Go confidently in the direction of your dreams. Live the life you've imagined."  
-> — **Arnold Schwarzenegger**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 

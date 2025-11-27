@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do what you've always done, you'll get what you've always gotten."  
-> — **Tony Robbins**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 
