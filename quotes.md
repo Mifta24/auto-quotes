@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do what you've always done, you'll get what you've always gotten."  
-> — **Tony Robbins**
+> "Go confidently in the direction of your dreams. Live the life you've imagined."  
+> — **Arnold Schwarzenegger**
 
 ---
 
