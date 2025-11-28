@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be polite to all, but intimate with few."  
-> — **Thomas Jefferson**
+> "Prefer to be defeated in the presence of the wise than to excel among fools."  
+> — **Dogen**
 
 ---
 
-_Last updated: 27 November 2025 ⏳_
+_Last updated: 28 November 2025 ⏳_
