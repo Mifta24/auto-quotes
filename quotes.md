@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes, the only way to evolve is to open ourselves fully."  
-> — **Kamal Ravikant**
+> "When one door closes another door opens. "  
+> — **Alexander Graham Bell**
 
 ---
 
