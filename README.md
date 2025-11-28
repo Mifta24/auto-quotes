@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes, the only way to evolve is to open ourselves fully."  
-> — **Kamal Ravikant**
+> "You have to make time, even for something as universal as staring at the stars."  
+> — **W.P. Kinsella**
 
 ---
 
