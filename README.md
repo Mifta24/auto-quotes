@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable."  
-> — **Maxime Lagace**
+> "Sometimes, the only way to evolve is to open ourselves fully."  
+> — **Kamal Ravikant**
 
 ---
 

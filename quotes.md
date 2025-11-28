@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is the rarest thing in the world. Most people exist, that is all. "  
-> — **Oscar Wilde**
+> "Sometimes, the only way to evolve is to open ourselves fully."  
+> — **Kamal Ravikant**
 
 ---
 
