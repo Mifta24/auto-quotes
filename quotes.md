@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The finish line is just the beginning of a whole new race."  
-> — **Unknown**
+> "If you think adventure is dangerous, try routine; it is lethal."  
+> — **Paulo Coelho**
 
 ---
 
