@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think adventure is dangerous, try routine; it is lethal."  
-> — **Paulo Coelho**
+> "If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable."  
+> — **Maxime Lagace**
 
 ---
 
