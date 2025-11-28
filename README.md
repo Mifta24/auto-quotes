@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Prefer to be defeated in the presence of the wise than to excel among fools."  
-> — **Dogen**
+> "The finish line is just the beginning of a whole new race."  
+> — **Unknown**
 
 ---
 
