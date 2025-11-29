@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You have to make time, even for something as universal as staring at the stars."  
-> — **W.P. Kinsella**
+> "At the center of your being you have the answer; you know who you are and you know what you want."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 28 November 2025 ⏳_
+_Last updated: 29 November 2025 ⏳_
