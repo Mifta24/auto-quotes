@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human happiness and moral duty are inseparably connected. "  
-> — **George Washington**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 

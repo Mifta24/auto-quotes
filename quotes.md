@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned the value of hard work by working hard. "  
-> — **Margaret Mead**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 
