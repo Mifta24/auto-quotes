@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time we liberate a woman, we liberate a man. "  
-> — **Margaret Mead**
+> "Human happiness and moral duty are inseparably connected. "  
+> — **George Washington**
 
 ---
 

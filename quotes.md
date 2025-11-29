@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more reasons you have for achieving your goal, the more determined you will become."  
-> — **Brian Tracy**
+> "Human happiness and moral duty are inseparably connected. "  
+> — **George Washington**
 
 ---
 
