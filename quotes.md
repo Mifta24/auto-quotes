@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At the center of your being you have the answer; you know who you are and you know what you want."  
-> — **Lao Tzu**
+> "The more you praise and celebrate your life, the more there is in life to celebrate. "  
+> — **Oprah Winfrey**
 
 ---
 
