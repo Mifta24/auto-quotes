@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time we liberate a woman, we liberate a man. "  
-> — **Margaret Mead**
+> "The more reasons you have for achieving your goal, the more determined you will become."  
+> — **Brian Tracy**
 
 ---
 
