@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."  
-> — **Confucius**
+> "Every time we liberate a woman, we liberate a man. "  
+> — **Margaret Mead**
 
 ---
 
