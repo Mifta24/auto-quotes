@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you praise and celebrate your life, the more there is in life to celebrate. "  
-> — **Oprah Winfrey**
+> "We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet."  
+> — **Thich Nhat Hanh**
 
 ---
 
