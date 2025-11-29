@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human happiness and moral duty are inseparably connected. "  
-> — **George Washington**
+> "I learned the value of hard work by working hard. "  
+> — **Margaret Mead**
 
 ---
 
