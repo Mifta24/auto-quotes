@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
