@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."  
+> — **Paramahansa Yogananda**
 
 ---
 
-_Last updated: 29 November 2025 ⏳_
+_Last updated: 30 November 2025 ⏳_
