@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
-> — **Vince Lombardi**
+> "Imagination is the beginning of creation."  
+> — **George Bernard Shaw**
 
 ---
 
