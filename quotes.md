@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you look at can become a fairy tale and you can get a story from everything you touch."  
-> — **Hans Christian Andersen**
+> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."  
-> — **Paramahansa Yogananda**
+> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
+> — **George Bernard Shaw**
 
 ---
 
