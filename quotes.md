@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awakening is possible only for those who seek it and want it."  
-> — **G.I. Gurdjieff**
+> "Success is not to be pursued, it is to be attracted by the person you become."  
+> — **Jim Rohn**
 
 ---
 
