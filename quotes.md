@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day your masterpiece."  
-> — **John Wooden**
+> "Awakening is possible only for those who seek it and want it."  
+> — **G.I. Gurdjieff**
 
 ---
 

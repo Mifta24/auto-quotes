@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The enemy is a very good teacher."  
-> — **Dalai Lama**
+> "Awakening is possible only for those who seek it and want it."  
+> — **G.I. Gurdjieff**
 
 ---
 
