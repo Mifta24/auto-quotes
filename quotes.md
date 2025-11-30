@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The enemy is a very good teacher."  
-> — **Dalai Lama**
+> "Make each day your masterpiece."  
+> — **John Wooden**
 
 ---
 
