@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What is a friend? A single soul dwelling in two bodies."  
-> — **Aristotle**
+> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
+> — **Vince Lombardi**
 
 ---
 

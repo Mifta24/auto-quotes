@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
-> — **George Bernard Shaw**
+> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
+> — **Vince Lombardi**
 
 ---
 
