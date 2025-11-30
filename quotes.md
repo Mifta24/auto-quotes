@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."  
-> — **George Bernard Shaw**
+> "What is a friend? A single soul dwelling in two bodies."  
+> — **Aristotle**
 
 ---
 
