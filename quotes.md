@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the beginning of creation."  
-> — **George Bernard Shaw**
+> "The enemy is a very good teacher."  
+> — **Dalai Lama**
 
 ---
 
