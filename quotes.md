@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."  
-> — **Richard Bach**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 

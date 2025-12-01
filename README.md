@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 
