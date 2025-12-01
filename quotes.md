@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."  
+> — **Richard Bach**
 
 ---
 
