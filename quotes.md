@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love is the energy of life."  
-> — **Robert Browning**
+> "The secret of change is to focus all your energy not on fighting the old, but on building the new."  
+> — **Dan Millman**
 
 ---
 
