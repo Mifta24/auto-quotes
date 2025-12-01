@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "Rudeness is the weak man's imitation of strength."  
+> — **Eric Hoffer**
 
 ---
 
