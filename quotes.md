@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
-> — **Naval Ravikant**
+> "The ego wants to go fast. The soul needs to go slow."  
+> — **Maxime Lagace**
 
 ---
 
