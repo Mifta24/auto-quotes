@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rudeness is the weak man's imitation of strength."  
-> — **Eric Hoffer**
+> "Success does not consist in never making mistakes but in never making the same one a second time."  
+> — **George Bernard Shaw**
 
 ---
 
