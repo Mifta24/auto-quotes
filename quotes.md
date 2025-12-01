@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
-> — **Robert Frost**
+> "A life without a cause is a life without effect."  
+> — **Paulo Coelho**
 
 ---
 
