@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success does not consist in never making mistakes but in never making the same one a second time."  
-> — **George Bernard Shaw**
+> "Give more than you think you can, trusting that you are richer than you think."  
+> — **Jon Kabat-Zinn**
 
 ---
 

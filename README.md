@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rudeness is the weak man's imitation of strength."  
-> — **Eric Hoffer**
+> "Give more than you think you can, trusting that you are richer than you think."  
+> — **Jon Kabat-Zinn**
 
 ---
 
