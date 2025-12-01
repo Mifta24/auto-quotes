@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Awakening is possible only for those who seek it and want it."  
-> — **G.I. Gurdjieff**
+> "Love is the energy of life."  
+> — **Robert Browning**
 
 ---
 
-_Last updated: 30 November 2025 ⏳_
+_Last updated: 01 December 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is not to be pursued, it is to be attracted by the person you become."  
-> — **Jim Rohn**
+> "Love is the energy of life."  
+> — **Robert Browning**
 
 ---
 
-_Last updated: 30 November 2025 ⏳_
+_Last updated: 01 December 2025 ⏳_
