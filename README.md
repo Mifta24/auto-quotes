@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting."  
-> — **Zig Ziglar**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 

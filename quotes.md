@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real growth comes through intense, difficult, and challenging situations."  
-> — **Kamal Ravikant**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 
