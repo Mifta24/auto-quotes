@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "Confidence is what you have before you understand the problem."  
+> — **Woody Allen**
 
 ---
 
