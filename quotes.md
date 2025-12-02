@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The ego wants to go fast. The soul needs to go slow."  
-> — **Maxime Lagace**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 01 December 2025 ⏳_
+_Last updated: 02 December 2025 ⏳_

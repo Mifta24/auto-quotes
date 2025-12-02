@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
-> — **Naval Ravikant**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 01 December 2025 ⏳_
+_Last updated: 02 December 2025 ⏳_
