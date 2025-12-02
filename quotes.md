@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is what you have before you understand the problem."  
-> — **Woody Allen**
+> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
+> — **Criss Jami**
 
 ---
 
