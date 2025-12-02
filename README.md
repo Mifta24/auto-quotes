@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
-> — **Criss Jami**
+> "The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting."  
+> — **Zig Ziglar**
 
 ---
 
