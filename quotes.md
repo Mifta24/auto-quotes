@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember to look up at the stars and not down at your feet."  
-> — **Stephen Hawking**
+> "Care about what other people think and you will always be their prisoner."  
+> — **Lao Tzu**
 
 ---
 
