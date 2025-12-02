@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
-> — **Criss Jami**
+> "Every great change is preceded by chaos."  
+> — **Deepak Chopra**
 
 ---
 
