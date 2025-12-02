@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faithless is he that says farewell when the road darkens."  
-> — **J.R.R. Tolkien**
+> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."  
+> — **Voltaire**
 
 ---
 
