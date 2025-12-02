@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Care about what other people think and you will always be their prisoner."  
-> — **Lao Tzu**
+> "Faithless is he that says farewell when the road darkens."  
+> — **J.R.R. Tolkien**
 
 ---
 
