@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't always championships."  
-> — **Michael Jordan**
+> "The quieter you become, the more you are able to hear."  
+> — **Rumi**
 
 ---
 
