@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quieter you become, the more you are able to hear."  
-> — **Rumi**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 

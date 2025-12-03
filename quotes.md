@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything you may hold firmly in your imagination can be yours."  
-> — **William James**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 
