@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "Whatever you believe with feeling becomes your reality. "  
+> — **Brian Tracy**
 
 ---
 
