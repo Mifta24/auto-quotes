@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quieter you become, the more you are able to hear."  
-> — **Rumi**
+> "Anything you may hold firmly in your imagination can be yours."  
+> — **William James**
 
 ---
 
