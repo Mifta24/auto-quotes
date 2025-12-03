@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't always championships."  
-> — **Michael Jordan**
+> "You may think I'm small, but I have a universe inside my mind."  
+> — **Yoko Ono**
 
 ---
 
