@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your next step is simple. You are the first domino."  
-> — **Gary Keller**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 

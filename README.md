@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being in a good frame of mind helps keep one in the picture of health."  
-> — **Unknown**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
