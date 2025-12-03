@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Faithless is he that says farewell when the road darkens."  
-> — **J.R.R. Tolkien**
+> "Winning isn't always championships."  
+> — **Michael Jordan**
 
 ---
 
-_Last updated: 02 December 2025 ⏳_
+_Last updated: 03 December 2025 ⏳_

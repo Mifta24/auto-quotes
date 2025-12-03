@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."  
-> — **Voltaire**
+> "Winning isn't always championships."  
+> — **Michael Jordan**
 
 ---
 
-_Last updated: 02 December 2025 ⏳_
+_Last updated: 03 December 2025 ⏳_
