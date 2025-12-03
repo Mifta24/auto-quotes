@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being in a good frame of mind helps keep one in the picture of health."  
-> — **Unknown**
+> "Your next step is simple. You are the first domino."  
+> — **Gary Keller**
 
 ---
 
