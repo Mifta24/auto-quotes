@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever your heart clings to and confides in, that is really your God."  
-> — **Martin Luther**
+> "A man who cannot tolerate small misfortunes can never accomplish great things."  
+> — **Chinese Proverb**
 
 ---
 
