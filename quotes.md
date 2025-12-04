@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fear of death is more to be feared, than death itself."  
-> — **Publilius Syrus**
+> "A man has to learn that he cannot command things but that he can command himself; that he cannot coerce the wills of others but that he can mold and master his own will."  
+> — **James Allen**
 
 ---
 
