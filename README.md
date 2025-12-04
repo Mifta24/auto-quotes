@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fear of death is more to be feared, than death itself."  
-> — **Publilius Syrus**
+> "Pleasure is always derived from something outside you, whereas joy arises from within. "  
+> — **Eckhart Tolle**
 
 ---
 
