@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure is always derived from something outside you, whereas joy arises from within. "  
-> — **Eckhart Tolle**
+> "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive."  
+> — **Anne Wilson Schaef**
 
 ---
 

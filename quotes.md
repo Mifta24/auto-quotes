@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever you are is the entry point."  
-> — **Kabir**
+> "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive."  
+> — **Anne Wilson Schaef**
 
 ---
 
