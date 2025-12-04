@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure is always derived from something outside you, whereas joy arises from within. "  
-> — **Eckhart Tolle**
+> "Wherever you are is the entry point."  
+> — **Kabir**
 
 ---
 
