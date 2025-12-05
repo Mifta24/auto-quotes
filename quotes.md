@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest room in the world is the room for improvement."  
-> — **Unknown**
+> "Life is a succession of lessons, which must be lived to be understood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
