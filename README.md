@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest room in the world is the room for improvement."  
-> — **Unknown**
+> "The energy of the mind is the essence of life."  
+> — **Aristotle**
 
 ---
 
