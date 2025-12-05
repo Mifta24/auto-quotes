@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "There is no limit to the amount of good you can do if you don't care who gets the credit."  
+> — **Ronald Reagan**
 
 ---
 
