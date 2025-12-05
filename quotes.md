@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victims recite problems, leaders provide solutions."  
-> — **Robin Sharma**
+> "The biggest room in the world is the room for improvement."  
+> — **Unknown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limit to the amount of good you can do if you don't care who gets the credit."  
-> — **Ronald Reagan**
+> "The biggest room in the world is the room for improvement."  
+> — **Unknown**
 
 ---
 
