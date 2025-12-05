@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A very little key will open a very heavy door."  
-> — **Charles Dickens**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
