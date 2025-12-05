@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At the center of your being you have the answer; you know who you are and you know what you want."  
-> — **Lao Tzu**
+> "Any idea, plan, or purpose may be placed in the mind through repetition of thought."  
+> — **Napoleon Hill**
 
 ---
 
