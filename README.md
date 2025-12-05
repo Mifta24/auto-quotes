@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive."  
-> — **Anne Wilson Schaef**
+> "At the center of your being you have the answer; you know who you are and you know what you want."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 04 December 2025 ⏳_
+_Last updated: 05 December 2025 ⏳_
