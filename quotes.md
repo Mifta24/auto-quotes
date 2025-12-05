@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any idea, plan, or purpose may be placed in the mind through repetition of thought."  
-> — **Napoleon Hill**
+> "A very little key will open a very heavy door."  
+> — **Charles Dickens**
 
 ---
 
