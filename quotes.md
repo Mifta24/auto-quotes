@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "Heroes don't need to talk about what they did."  
+> — **W.P. Kinsella**
 
 ---
 
