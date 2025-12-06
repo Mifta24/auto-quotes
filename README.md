@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When reading, only read. When eating, only eat. When thinking, only think."  
-> — **Seungsahn**
+> "If you can't explain it simply, you don't understand it well enough."  
+> — **Albert Einstein**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What kills the creative force is not age or lack of talent, but our own spirit, our own attitude."  
-> — **Robert Greene**
+> "If you can't explain it simply, you don't understand it well enough."  
+> — **Albert Einstein**
 
 ---
 
