@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
-> — **Brian Tracy**
+> "It's not how much money you make, it's how much money you keep."  
+> — **Robert Kiyosaki**
 
 ---
 

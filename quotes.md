@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live and act within the limit of your knowledge and keep expanding it to the limit of your life."  
-> — **Ayn Rand**
+> "It's not how much money you make, it's how much money you keep."  
+> — **Robert Kiyosaki**
 
 ---
 
