@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When reading, only read. When eating, only eat. When thinking, only think."  
-> — **Seungsahn**
+> "What kills the creative force is not age or lack of talent, but our own spirit, our own attitude."  
+> — **Robert Greene**
 
 ---
 
