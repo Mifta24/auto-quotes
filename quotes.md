@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
-> — **Brian Tracy**
+> "Live and act within the limit of your knowledge and keep expanding it to the limit of your life."  
+> — **Ayn Rand**
 
 ---
 
