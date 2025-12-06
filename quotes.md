@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not how much money you make, it's how much money you keep."  
-> — **Robert Kiyosaki**
+> "There is no limitations except those we create for ourselves."  
+> — **Lolly Daskal**
 
 ---
 
