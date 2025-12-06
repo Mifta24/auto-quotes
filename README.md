@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who is his own master cannot tolerate another boss. "  
-> — **Chinese Proverb**
+> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
+> — **Brian Tracy**
 
 ---
 

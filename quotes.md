@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time we liberate a woman, we liberate a man. "  
-> — **Margaret Mead**
+> "The greatest gift that you can give to others is the gift of unconditional love and acceptance. "  
+> — **Brian Tracy**
 
 ---
 
