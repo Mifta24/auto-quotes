@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't explain it simply, you don't understand it well enough."  
-> — **Albert Einstein**
+> "The person who is his own master cannot tolerate another boss. "  
+> — **Chinese Proverb**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People tend to complicate their own lives, as if living weren't already complicated enough."  
-> — **Carlos Ruiz Zafon**
+> "The person who is his own master cannot tolerate another boss. "  
+> — **Chinese Proverb**
 
 ---
 
