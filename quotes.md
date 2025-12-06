@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't explain it simply, you don't understand it well enough."  
-> — **Albert Einstein**
+> "People tend to complicate their own lives, as if living weren't already complicated enough."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
