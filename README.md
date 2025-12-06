@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "When reading, only read. When eating, only eat. When thinking, only think."  
+> — **Seungsahn**
 
 ---
 
-_Last updated: 05 December 2025 ⏳_
+_Last updated: 06 December 2025 ⏳_

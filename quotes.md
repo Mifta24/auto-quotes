@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Heroes don't need to talk about what they did."  
-> — **W.P. Kinsella**
+> "When reading, only read. When eating, only eat. When thinking, only think."  
+> — **Seungsahn**
 
 ---
 
-_Last updated: 05 December 2025 ⏳_
+_Last updated: 06 December 2025 ⏳_
