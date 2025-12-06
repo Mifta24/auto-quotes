@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who is his own master cannot tolerate another boss. "  
-> — **Chinese Proverb**
+> "Every time we liberate a woman, we liberate a man. "  
+> — **Margaret Mead**
 
 ---
 
