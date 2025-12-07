@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience is the sure sign of a bad memory."  
-> — **Mark Twain**
+> "Follow your heart, listen to your inner voice, stop caring about what others think."  
+> — **Roy T. Bennett**
 
 ---
 

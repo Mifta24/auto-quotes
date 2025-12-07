@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Do good, live in the most positive and joyful way possible every day."  
+> "Follow your heart, listen to your inner voice, stop caring about what others think."  
 > — **Roy T. Bennett**
 
 ---
