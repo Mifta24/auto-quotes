@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A different result requires doing something different."  
-> — **Gary Keller**
+> "We will act consistently with our view of who we truly are, whether that view is accurate or not."  
+> — **Tony Robbins**
 
 ---
 
