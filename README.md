@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A different result requires doing something different."  
-> — **Gary Keller**
+> "A clear conscience is the sure sign of a bad memory."  
+> — **Mark Twain**
 
 ---
 

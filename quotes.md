@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We will act consistently with our view of who we truly are, whether that view is accurate or not."  
-> — **Tony Robbins**
+> "A clear conscience is the sure sign of a bad memory."  
+> — **Mark Twain**
 
 ---
 
