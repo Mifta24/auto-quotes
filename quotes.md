@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is no limitations except those we create for ourselves."  
-> — **Lolly Daskal**
+> "A different result requires doing something different."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 06 December 2025 ⏳_
+_Last updated: 07 December 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not how much money you make, it's how much money you keep."  
-> — **Robert Kiyosaki**
+> "A different result requires doing something different."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 06 December 2025 ⏳_
+_Last updated: 07 December 2025 ⏳_
