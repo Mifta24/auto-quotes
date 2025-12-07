@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lost Time is never found again."  
-> — **Benjamin Franklin**
+> "Self-control is strength."  
+> — **James Allen**
 
 ---
 
