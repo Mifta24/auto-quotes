@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Follow your heart, listen to your inner voice, stop caring about what others think."  
-> — **Roy T. Bennett**
+> "Every experience is a lesson. Every loss is a gain."  
+> — **Sathya Sai Baba**
 
 ---
 
