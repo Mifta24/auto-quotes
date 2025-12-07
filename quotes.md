@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience is the sure sign of a bad memory."  
-> — **Mark Twain**
+> "Do good, live in the most positive and joyful way possible every day."  
+> — **Roy T. Bennett**
 
 ---
 
