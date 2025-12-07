@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Follow your heart, listen to your inner voice, stop caring about what others think."  
-> — **Roy T. Bennett**
+> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."  
+> — **Colin Powell**
 
 ---
 

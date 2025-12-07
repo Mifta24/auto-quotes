@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every experience is a lesson. Every loss is a gain."  
-> — **Sathya Sai Baba**
+> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."  
+> — **Colin Powell**
 
 ---
 
