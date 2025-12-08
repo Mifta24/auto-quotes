@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "Don't let what you cannot do interfere with what you can do."  
+> — **John Wooden**
 
 ---
 
