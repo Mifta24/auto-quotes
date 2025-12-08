@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Self-control is strength."  
-> — **James Allen**
+> "No matter what happens in life, never lose sight of who you are."  
+> — **Yanni**
 
 ---
 
-_Last updated: 07 December 2025 ⏳_
+_Last updated: 08 December 2025 ⏳_
