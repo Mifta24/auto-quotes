@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."  
-> — **A.A. Milne**
+> "Failing is another stepping stone to greatness."  
+> — **Oprah Winfrey**
 
 ---
 
