@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
