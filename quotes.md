@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can easily judge the character of a man by how he treats those who can do nothing for him."  
-> — **Johann Wolfgang von Goethe**
+> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."  
+> — **A.A. Milne**
 
 ---
 

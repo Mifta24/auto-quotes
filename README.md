@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
-> — **J.R.R. Tolkien**
+> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."  
+> — **A.A. Milne**
 
 ---
 
