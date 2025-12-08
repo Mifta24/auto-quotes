@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let what you cannot do interfere with what you can do."  
-> — **John Wooden**
+> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
+> — **J.R.R. Tolkien**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where you are right now doesn't have to determine where you'll end up."  
-> — **Barack Obama**
+> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
+> — **J.R.R. Tolkien**
 
 ---
 
