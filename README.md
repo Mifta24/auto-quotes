@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes."  
-> — **A.A. Milne**
+> "People who say it cannot be done should not interrupt those who are doing it."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failing is another stepping stone to greatness."  
-> — **Oprah Winfrey**
+> "People who say it cannot be done should not interrupt those who are doing it."  
+> — **George Bernard Shaw**
 
 ---
 
