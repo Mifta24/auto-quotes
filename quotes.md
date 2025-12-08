@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let what you cannot do interfere with what you can do."  
-> — **John Wooden**
+> "Where you are right now doesn't have to determine where you'll end up."  
+> — **Barack Obama**
 
 ---
 
