@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
-> — **James Allen**
+> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
+> — **Unknown**
 
 ---
 
