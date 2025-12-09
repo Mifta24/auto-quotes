@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There will always be suffering. But we must not suffer over the suffering."  
-> — **Alan Watts**
+> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
+> — **James Allen**
 
 ---
 

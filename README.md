@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have a dream, you've got to grab it and never let go."  
-> — **Carol Burnett**
+> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
+> — **James Allen**
 
 ---
 
