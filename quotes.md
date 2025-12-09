@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
-> — **Alexander Graham Bell**
+> "The time is always right to do what is right."  
+> — **Martin Luther King, Jr.**
 
 ---
 
