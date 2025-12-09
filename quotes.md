@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to lose than to win.  "  
-> — **Wayne Gretzky**
+> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
+> — **Alexander Graham Bell**
 
 ---
 

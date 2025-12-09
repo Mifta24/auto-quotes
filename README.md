@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't let your failures define you. You have to let your failures teach you."  
-> — **Barack Obama**
+> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
+> — **Alexander Graham Bell**
 
 ---
 
