@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't let your failures define you. You have to let your failures teach you."  
-> — **Barack Obama**
+> "It's easier to lose than to win.  "  
+> — **Wayne Gretzky**
 
 ---
 
