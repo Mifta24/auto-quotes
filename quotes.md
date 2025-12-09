@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are not what you think you are, You are not what others think you are, You are what you think others think you are."  
-> — **Unknown**
+> "No amount of regretting can change the past, and no amount of worrying can change the future."  
+> — **Roy T. Bennett**
 
 ---
 

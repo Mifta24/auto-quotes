@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
-> — **James Allen**
+> "No amount of regretting can change the past, and no amount of worrying can change the future."  
+> — **Roy T. Bennett**
 
 ---
 
