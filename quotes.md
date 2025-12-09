@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you have a dream, you've got to grab it and never let go."  
-> — **Carol Burnett**
+> "There will always be suffering. But we must not suffer over the suffering."  
+> — **Alan Watts**
 
 ---
 
