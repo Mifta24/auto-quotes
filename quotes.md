@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Perfection is not attainable, but if we chase perfection we can catch excellence."  
-> — **Vince Lombardi**
+> "When you have a dream, you've got to grab it and never let go."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 08 December 2025 ⏳_
+_Last updated: 09 December 2025 ⏳_

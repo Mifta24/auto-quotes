@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People who say it cannot be done should not interrupt those who are doing it."  
-> — **George Bernard Shaw**
+> "When you have a dream, you've got to grab it and never let go."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 08 December 2025 ⏳_
+_Last updated: 09 December 2025 ⏳_
