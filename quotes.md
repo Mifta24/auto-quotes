@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better a diamond with a flaw than a pebble without one."  
-> — **Chinese Proverb**
+> "If they wrote it to make money, don't read it."  
+> — **Naval Ravikant**
 
 ---
 
