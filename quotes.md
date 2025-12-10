@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The time is always right to do what is right."  
-> — **Martin Luther King, Jr.**
+> "You can calculate the worth of a man by the number of his enemies."  
+> — **Gustave Flaubert**
 
 ---
 
-_Last updated: 09 December 2025 ⏳_
+_Last updated: 10 December 2025 ⏳_

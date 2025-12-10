@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
-> — **Alexander Graham Bell**
+> "You can calculate the worth of a man by the number of his enemies."  
+> — **Gustave Flaubert**
 
 ---
 
-_Last updated: 09 December 2025 ⏳_
+_Last updated: 10 December 2025 ⏳_
