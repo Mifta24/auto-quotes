@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. "  
+> — **Denis Waitley**
 
 ---
 
