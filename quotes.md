@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If they wrote it to make money, don't read it."  
-> — **Naval Ravikant**
+> "The heart that gives, gathers."  
+> — **Lao Tzu**
 
 ---
 
