@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The heart that gives, gathers."  
-> — **Lao Tzu**
+> "If you don't find the time, if you don't do the work, you don't get the results."  
+> — **Arnold Schwarzenegger**
 
 ---
 
