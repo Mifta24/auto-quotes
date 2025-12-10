@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Genius is the ability to act rightly without precedent - the power to do the right thing the first time."  
-> — **Elbert Hubbard**
+> "If you think you can do a thing or think you can't do a thing, you're right."  
+> — **Henry Ford**
 
 ---
 

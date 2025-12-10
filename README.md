@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To find yourself, think for yourself."  
-> — **Socrates**
+> "If you think you can do a thing or think you can't do a thing, you're right."  
+> — **Henry Ford**
 
 ---
 
