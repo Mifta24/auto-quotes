@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest step towards a life of simplicity is to learn to let go."  
-> — **Steve Maraboli**
+> "On the other side of the clouds is a bright blue sky."  
+> — **Unknown**
 
 ---
 
