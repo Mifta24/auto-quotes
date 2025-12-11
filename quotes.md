@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "Darkness is the absence of light."  
+> — **Kamal Ravikant**
 
 ---
 

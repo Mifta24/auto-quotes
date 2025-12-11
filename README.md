@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "On the other side of the clouds is a bright blue sky."  
-> — **Unknown**
+> "Darkness is the absence of light."  
+> — **Kamal Ravikant**
 
 ---
 
