@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your greatest asset is your earning ability. Your greatest resource is your time."  
-> — **Brian Tracy**
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
+> — **Christopher Reeve**
 
 ---
 

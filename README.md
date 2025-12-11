@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The degree of responsibility you take for your life determines how much change you can create in it."  
-> — **Celestine Chua**
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
+> — **Christopher Reeve**
 
 ---
 
