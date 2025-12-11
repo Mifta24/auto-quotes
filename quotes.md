@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the touchstones of our characters."  
-> — **Henry David Thoreau**
+> "The quicker you let go of old cheese, the sooner you find new cheese."  
+> — **Spencer Johnson**
 
 ---
 
