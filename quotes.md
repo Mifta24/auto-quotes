@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "On the other side of the clouds is a bright blue sky."  
-> — **Unknown**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 
