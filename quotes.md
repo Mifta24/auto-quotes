@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. "  
-> — **Denis Waitley**
+> "Dreams are the touchstones of our characters."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 10 December 2025 ⏳_
+_Last updated: 11 December 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "Dreams are the touchstones of our characters."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 10 December 2025 ⏳_
+_Last updated: 11 December 2025 ⏳_
