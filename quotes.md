@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The degree of responsibility you take for your life determines how much change you can create in it."  
-> — **Celestine Chua**
+> "Your greatest asset is your earning ability. Your greatest resource is your time."  
+> — **Brian Tracy**
 
 ---
 
