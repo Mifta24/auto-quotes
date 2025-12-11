@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quicker you let go of old cheese, the sooner you find new cheese."  
-> — **Spencer Johnson**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 

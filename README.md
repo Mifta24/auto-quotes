@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the touchstones of our characters."  
-> — **Henry David Thoreau**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 
