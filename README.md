@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn off your mind, relax, and float downstream."  
-> — **John Lennon**
+> "The scariest moment is always just before you start. After that, things can only get better."  
+> — **Stephen King**
 
 ---
 
