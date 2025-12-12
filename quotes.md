@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I cannot do great things. I can do small things in a great way."  
-> — **Martin Luther King, Jr.**
+> "Getting lost along your path is a part of finding the path you are meant to be on."  
+> — **Robin Sharma**
 
 ---
 
