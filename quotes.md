@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
-> — **Josh Waitzkin**
+> "Originality is the fine art of remembering what you hear but forgetting where you heard it. "  
+> — **Laurence J. Peter**
 
 ---
 
