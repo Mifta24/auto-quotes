@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people want it to happen, some wish it would happen, others make it happen."  
-> — **Michael Jordan**
+> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
+> — **Josh Waitzkin**
 
 ---
 

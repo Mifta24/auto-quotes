@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it."  
-> — **Alexandre Dumas**
+> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
+> — **Josh Waitzkin**
 
 ---
 
