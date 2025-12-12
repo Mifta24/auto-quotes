@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn off your mind, relax, and float downstream."  
-> — **John Lennon**
+> "The temptation to give up is strongest just before victory."  
+> — **Zen Proverb**
 
 ---
 
