@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability."  
-> — **John Wooden**
+> "If I cannot do great things. I can do small things in a great way."  
+> — **Martin Luther King, Jr.**
 
 ---
 
-_Last updated: 11 December 2025 ⏳_
+_Last updated: 12 December 2025 ⏳_

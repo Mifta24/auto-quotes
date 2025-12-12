@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Darkness is the absence of light."  
-> — **Kamal Ravikant**
+> "If I cannot do great things. I can do small things in a great way."  
+> — **Martin Luther King, Jr.**
 
 ---
 
-_Last updated: 11 December 2025 ⏳_
+_Last updated: 12 December 2025 ⏳_
