@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise speak only of what they know."  
-> — **J.R.R. Tolkien**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
