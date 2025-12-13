@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
-> — **Brian Tracy**
+> "A bird does not sing because it has an answer. It sings because it has a song."  
+> — **Chinese Proverb**
 
 ---
 
