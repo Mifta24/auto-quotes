@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose."  
-> — **Celestine Chua**
+> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
+> — **Brian Tracy**
 
 ---
 

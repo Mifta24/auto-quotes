@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the grass is greener on the other side, maybe that's because you're not taking good care of your grass."  
-> — **Unknown**
+> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
+> — **Brian Tracy**
 
 ---
 
