@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it."  
-> — **Josh Waitzkin**
+> "If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose."  
+> — **Celestine Chua**
 
 ---
 
-_Last updated: 12 December 2025 ⏳_
+_Last updated: 13 December 2025 ⏳_
