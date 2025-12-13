@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All that we see or seem is but a dream within a dream."  
-> — **Edgar Allan Poe**
+> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."  
+> — **Thich Nhat Hanh**
 
 ---
 
