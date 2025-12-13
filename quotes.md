@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose."  
-> — **Celestine Chua**
+> "If the grass is greener on the other side, maybe that's because you're not taking good care of your grass."  
+> — **Unknown**
 
 ---
 
