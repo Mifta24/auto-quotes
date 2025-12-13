@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important things are the hardest to say."  
-> — **Stephen King**
+> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
+> — **Unknown**
 
 ---
 
