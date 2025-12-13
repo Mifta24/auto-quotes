@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All that we see or seem is but a dream within a dream."  
-> — **Edgar Allan Poe**
+> "The wise speak only of what they know."  
+> — **J.R.R. Tolkien**
 
 ---
 

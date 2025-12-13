@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us."  
-> — **Thich Nhat Hanh**
+> "The wise speak only of what they know."  
+> — **J.R.R. Tolkien**
 
 ---
 
