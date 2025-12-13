@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
-> — **Epictetus**
+> "The most important things are the hardest to say."  
+> — **Stephen King**
 
 ---
 

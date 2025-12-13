@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise speak only of what they know."  
-> — **J.R.R. Tolkien**
+> "The most important things are the hardest to say."  
+> — **Stephen King**
 
 ---
 
