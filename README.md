@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
-> — **Brian Tracy**
+> "All that we see or seem is but a dream within a dream."  
+> — **Edgar Allan Poe**
 
 ---
 

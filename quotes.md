@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A bird does not sing because it has an answer. It sings because it has a song."  
-> — **Chinese Proverb**
+> "All that we see or seem is but a dream within a dream."  
+> — **Edgar Allan Poe**
 
 ---
 
