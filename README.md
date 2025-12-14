@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First say to yourself what you would be; and then do what you have to do."  
-> — **Epictetus**
+> "Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners."  
+> — **Nicolas Chamfort**
 
 ---
 
