@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My sun sets to rise again."  
-> — **Robert Browning**
+> "First say to yourself what you would be; and then do what you have to do."  
+> — **Epictetus**
 
 ---
 

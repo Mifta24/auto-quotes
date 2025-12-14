@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "First say to yourself what you would be; and then do what you have to do."  
+> — **Epictetus**
 
 ---
 
