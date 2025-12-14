@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
-> — **Mark Manson**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 

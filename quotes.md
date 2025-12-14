@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-knowledge is the beginning of self-correction."  
-> — **Norman Vincent Peale**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 
