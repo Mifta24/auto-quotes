@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the advantages of being disorganized is that one is always having surprising discoveries."  
-> — **A.A. Milne**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 

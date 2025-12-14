@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners."  
-> — **Nicolas Chamfort**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 
