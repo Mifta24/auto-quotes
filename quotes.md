@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My sun sets to rise again."  
-> — **Robert Browning**
+> "People spend too much time doing and not enough time thinking about what they should be doing."  
+> — **Naval Ravikant**
 
 ---
 
