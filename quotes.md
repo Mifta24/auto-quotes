@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First say to yourself what you would be; and then do what you have to do."  
-> — **Epictetus**
+> "Be kind whenever possible. It is always possible."  
+> — **Dalai Lama**
 
 ---
 
