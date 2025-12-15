@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "It is better to disappoint people with the truth than to appease them with a lie."  
+> — **Simon Sinek**
 
 ---
 

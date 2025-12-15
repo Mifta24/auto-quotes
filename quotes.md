@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
-> — **F. Scott Fitzgerald**
+> "It is better to disappoint people with the truth than to appease them with a lie."  
+> — **Simon Sinek**
 
 ---
 
