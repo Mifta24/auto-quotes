@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
-> — **Joan Rivers**
+> "Time goes from present to past."  
+> — **Shunryu Suzuki**
 
 ---
 
-_Last updated: 14 December 2025 ⏳_
+_Last updated: 15 December 2025 ⏳_

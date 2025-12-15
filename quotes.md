@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No great mind has ever existed without a touch of madness."  
-> — **Aristotle**
+> "Time goes from present to past."  
+> — **Shunryu Suzuki**
 
 ---
 
-_Last updated: 14 December 2025 ⏳_
+_Last updated: 15 December 2025 ⏳_
