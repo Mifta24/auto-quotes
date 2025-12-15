@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time goes from present to past."  
-> — **Shunryu Suzuki**
+> "Pleasure is always derived from something outside you, whereas joy arises from within. "  
+> — **Eckhart Tolle**
 
 ---
 
