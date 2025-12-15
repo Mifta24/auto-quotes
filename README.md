@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time goes from present to past."  
-> — **Shunryu Suzuki**
+> "The majority of what you want will come from the minority of what you do."  
+> — **Gary Keller**
 
 ---
 

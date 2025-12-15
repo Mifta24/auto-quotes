@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure is always derived from something outside you, whereas joy arises from within. "  
-> — **Eckhart Tolle**
+> "The majority of what you want will come from the minority of what you do."  
+> — **Gary Keller**
 
 ---
 
