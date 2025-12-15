@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A woman unsatisfied must have luxuries. But a woman who loves a man would sleep on a board."  
-> — **D. H. Lawrence**
+> "The majority of what you want will come from the minority of what you do."  
+> — **Gary Keller**
 
 ---
 
