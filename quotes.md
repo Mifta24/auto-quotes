@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We win by helping each other win."  
-> — **Jack Butcher**
+> "Honesty is the first chapter in the book of wisdom."  
+> — **Thomas Jefferson**
 
 ---
 
