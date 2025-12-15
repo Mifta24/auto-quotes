@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to disappoint people with the truth than to appease them with a lie."  
-> — **Simon Sinek**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 
