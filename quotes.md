@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The majority of what you want will come from the minority of what you do."  
-> — **Gary Keller**
+> "We win by helping each other win."  
+> — **Jack Butcher**
 
 ---
 
