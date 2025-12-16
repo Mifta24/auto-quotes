@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."  
+> — **Paramahansa Yogananda**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
-> — **Vincent van Gogh**
+> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."  
+> — **Paramahansa Yogananda**
 
 ---
 
