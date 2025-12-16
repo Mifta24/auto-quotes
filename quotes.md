@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to travel a long way to find what is near."  
-> — **Paulo Coelho**
+> "Success is getting what you want... Happiness is wanting what you get."  
+> — **Dale Carnegie**
 
 ---
 
