@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is getting what you want... Happiness is wanting what you get."  
-> — **Dale Carnegie**
+> "Everything flows, nothing stands still."  
+> — **Heraclitus**
 
 ---
 
