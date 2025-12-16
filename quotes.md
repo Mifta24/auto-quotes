@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
+> — **Vincent van Gogh**
 
 ---
 
