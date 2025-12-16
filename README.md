@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't imagine it, you can't have it."  
-> — **Toni Morrison**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 

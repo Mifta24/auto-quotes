@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise learn many things from their enemies."  
-> — **Aristophanes**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 
