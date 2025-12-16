@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "You gain strength, courage and confidence by every experience in which you really stop to look fear in the face."  
+> — **Eleanor Roosevelt**
 
 ---
 
