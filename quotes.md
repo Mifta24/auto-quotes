@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "If you can't imagine it, you can't have it."  
+> — **Toni Morrison**
 
 ---
 
-_Last updated: 15 December 2025 ⏳_
+_Last updated: 16 December 2025 ⏳_
