@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."  
-> — **Paramahansa Yogananda**
+> "Sometimes you have to travel a long way to find what is near."  
+> — **Paulo Coelho**
 
 ---
 
