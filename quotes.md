@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
-> — **Norman Vincent Peale**
+> "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."  
+> — **Josh Waitzkin**
 
 ---
 
