@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep smiling, because life is a beautiful thing and there's so much to smile about."  
-> — **Marilyn Monroe**
+> "The wisest men follow their own direction."  
+> — **Euripides**
 
 ---
 
