@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never let your memories be greater than your dreams."  
-> — **Doug Ivester**
+> "Keep smiling, because life is a beautiful thing and there's so much to smile about."  
+> — **Marilyn Monroe**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "Keep smiling, because life is a beautiful thing and there's so much to smile about."  
+> — **Marilyn Monroe**
 
 ---
 
