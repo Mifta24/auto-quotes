@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
-> — **Norman Vincent Peale**
+> "No matter what happens in life, never lose sight of who you are."  
+> — **Yanni**
 
 ---
 
