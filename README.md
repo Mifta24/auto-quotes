@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "Science can flourish only in an atmosphere of free speech. "  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 16 December 2025 ⏳_
+_Last updated: 17 December 2025 ⏳_
