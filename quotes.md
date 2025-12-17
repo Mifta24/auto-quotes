@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "Never let your memories be greater than your dreams."  
+> — **Doug Ivester**
 
 ---
 
