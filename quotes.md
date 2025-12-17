@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "A man sees in the world what he carries in his heart."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
