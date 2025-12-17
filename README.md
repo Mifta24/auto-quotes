@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens in life, never lose sight of who you are."  
-> — **Yanni**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 

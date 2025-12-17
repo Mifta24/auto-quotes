@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
