@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech. "  
-> — **Albert Einstein**
+> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
+> — **Norman Vincent Peale**
 
 ---
 

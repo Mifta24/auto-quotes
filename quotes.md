@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every drop in the ocean counts. "  
-> — **Yoko Ono**
+> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
+> — **Norman Vincent Peale**
 
 ---
 
