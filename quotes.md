@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man invented language to satisfy his deep need to complain."  
-> — **Lily Tomlin**
+> "Outstanding people have one thing in common: an absolute sense of mission.  "  
+> — **Zig Ziglar**
 
 ---
 
