@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every traveler has a home of his own, and he learns to appreciate it the more from his wandering."  
-> — **Charles Dickens**
+> "Man invented language to satisfy his deep need to complain."  
+> — **Lily Tomlin**
 
 ---
 
