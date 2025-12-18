@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you stop to think about whether you love someone, you've already stopped loving that person forever."  
-> — **Carlos Ruiz Zafon**
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
+> — **Zig Ziglar**
 
 ---
 
