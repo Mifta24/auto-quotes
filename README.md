@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep smiling, because life is a beautiful thing and there's so much to smile about."  
-> — **Marilyn Monroe**
+> "The moment you stop to think about whether you love someone, you've already stopped loving that person forever."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
-_Last updated: 17 December 2025 ⏳_
+_Last updated: 18 December 2025 ⏳_
