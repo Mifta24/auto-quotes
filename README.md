@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you stop to think about whether you love someone, you've already stopped loving that person forever."  
-> — **Carlos Ruiz Zafon**
+> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences."  
+> — **William Faulkner**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
-> — **Zig Ziglar**
+> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences."  
+> — **William Faulkner**
 
 ---
 
