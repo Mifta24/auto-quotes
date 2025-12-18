@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences."  
-> — **William Faulkner**
+> "To escape from the world means that one's mind is not concerned with the opinions of the world."  
+> — **Dogen**
 
 ---
 

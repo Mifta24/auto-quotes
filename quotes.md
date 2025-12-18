@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is to console those who are broken by life."  
-> — **Vincent van Gogh**
+> "To escape from the world means that one's mind is not concerned with the opinions of the world."  
+> — **Dogen**
 
 ---
 
