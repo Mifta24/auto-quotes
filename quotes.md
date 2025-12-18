@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To escape from the world means that one's mind is not concerned with the opinions of the world."  
-> — **Dogen**
+> "A tiger doesn't lose sleep over the opinion of sheep."  
+> — **Shahir Zag**
 
 ---
 
