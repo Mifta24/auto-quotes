@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences."  
-> — **William Faulkner**
+> "Art is to console those who are broken by life."  
+> — **Vincent van Gogh**
 
 ---
 
