@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiger doesn't lose sleep over the opinion of sheep."  
-> — **Shahir Zag**
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."  
+> — **Charles Darwin**
 
 ---
 

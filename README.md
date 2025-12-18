@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To escape from the world means that one's mind is not concerned with the opinions of the world."  
-> — **Dogen**
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts."  
+> — **Charles Darwin**
 
 ---
 
