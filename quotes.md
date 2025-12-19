@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Outstanding people have one thing in common: an absolute sense of mission.  "  
-> — **Zig Ziglar**
+> "If you build the guts to do something, anything, then you better save enough to face the consequences."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 18 December 2025 ⏳_
+_Last updated: 19 December 2025 ⏳_
