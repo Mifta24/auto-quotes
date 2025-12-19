@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."  
-> — **Heraclitus**
+> "When you stop questioning, you stop learning."  
+> — **Lolly Daskal**
 
 ---
 
