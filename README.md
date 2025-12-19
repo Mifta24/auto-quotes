@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you build the guts to do something, anything, then you better save enough to face the consequences."  
-> — **Criss Jami**
+> "Eighty percent of success is showing up. "  
+> — **Woody Allen**
 
 ---
 
