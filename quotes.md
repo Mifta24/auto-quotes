@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
+> — **Andrew Carnegie**
 
 ---
 
