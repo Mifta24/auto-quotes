@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "Abundance of knowledge does not teach men to be wise."  
+> — **Heraclitus**
 
 ---
 

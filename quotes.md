@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace."  
-> — **Earl Nightingale**
+> "Abundance of knowledge does not teach men to be wise."  
+> — **Heraclitus**
 
 ---
 
