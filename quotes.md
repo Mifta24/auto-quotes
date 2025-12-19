@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace."  
+> — **Earl Nightingale**
 
 ---
 
