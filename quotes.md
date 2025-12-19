@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you build the guts to do something, anything, then you better save enough to face the consequences."  
-> — **Criss Jami**
+> "If you don't like something change it; if you can't change it, change the way you think about it."  
+> — **Mary Engelbreit**
 
 ---
 
