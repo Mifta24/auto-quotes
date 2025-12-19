@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
-> — **Aristotle**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 

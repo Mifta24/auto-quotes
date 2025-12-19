@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
-> — **Andrew Carnegie**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
