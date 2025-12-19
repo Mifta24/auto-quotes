@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
-> — **Andrew Carnegie**
+> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
+> — **Aristotle**
 
 ---
 
