@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Eighty percent of success is showing up. "  
-> — **Woody Allen**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 
