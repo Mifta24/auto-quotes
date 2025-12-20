@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the behavior of others destroy your inner peace."  
-> — **Dalai Lama**
+> "In youth we run into difficulties. In old age difficulties run into us. "  
+> — **Beverly Sills**
 
 ---
 

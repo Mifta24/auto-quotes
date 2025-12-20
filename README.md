@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "In youth we run into difficulties. In old age difficulties run into us. "  
+> — **Beverly Sills**
 
 ---
 
