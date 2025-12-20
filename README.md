@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever satisfies the soul is truth."  
-> — **Walt Whitman**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 

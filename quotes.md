@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one has ever become poor by giving."  
-> — **Anne Frank**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 
