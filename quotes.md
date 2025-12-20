@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To travel is to be alive, but to get somewhere is to be dead."  
-> — **Alan Watts**
+> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
+> — **Audrey Hepburn**
 
 ---
 

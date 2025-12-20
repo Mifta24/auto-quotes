@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us. "  
-> — **Beverly Sills**
+> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
+> — **Audrey Hepburn**
 
 ---
 
