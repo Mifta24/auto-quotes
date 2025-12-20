@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
-> — **Audrey Hepburn**
+> "The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is."  
+> — **Eckhart Tolle**
 
 ---
 
