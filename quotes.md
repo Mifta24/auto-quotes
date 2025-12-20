@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us. "  
-> — **Beverly Sills**
+> "To travel is to be alive, but to get somewhere is to be dead."  
+> — **Alan Watts**
 
 ---
 
