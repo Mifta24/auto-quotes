@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."  
-> — **Heraclitus**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 19 December 2025 ⏳_
+_Last updated: 20 December 2025 ⏳_

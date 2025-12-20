@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you stop questioning, you stop learning."  
-> — **Lolly Daskal**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 19 December 2025 ⏳_
+_Last updated: 20 December 2025 ⏳_
