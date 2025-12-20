@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever satisfies the soul is truth."  
-> — **Walt Whitman**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 
