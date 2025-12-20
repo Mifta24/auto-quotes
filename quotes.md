@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is."  
-> — **Eckhart Tolle**
+> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
+> — **Gilbert Chesterton**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important thing is to enjoy your life, to be happy, it's all that matters."  
-> — **Audrey Hepburn**
+> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
+> — **Gilbert Chesterton**
 
 ---
 
