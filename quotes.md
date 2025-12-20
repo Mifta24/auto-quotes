@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "Don't let the behavior of others destroy your inner peace."  
+> — **Dalai Lama**
 
 ---
 
