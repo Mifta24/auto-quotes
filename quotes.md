@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
-> — **Gilbert Chesterton**
+> "Excellence is not an exception, it is a prevailing attitude."  
+> — **Colin Powell**
 
 ---
 
