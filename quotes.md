@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
-> — **Zen Proverb**
+> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
+> — **Oprah Winfrey**
 
 ---
 
