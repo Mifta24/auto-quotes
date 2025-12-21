@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are shaped and fashioned by what we love."  
-> — **Johann Wolfgang von Goethe**
+> "True prayer has no set form."  
+> — **Morihei Ueshiba**
 
 ---
 
