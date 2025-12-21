@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
-> — **Zen Proverb**
+> "Here and now...breathe and relax...in battle and in life."  
+> — **Dan Millman**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
-> — **Oprah Winfrey**
+> "Here and now...breathe and relax...in battle and in life."  
+> — **Dan Millman**
 
 ---
 
