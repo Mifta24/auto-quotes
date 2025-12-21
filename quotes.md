@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wheels of justice grind slow but grind fine."  
-> — **Sun Tzu**
+> "Best be yourself, imperial, plain, and true."  
+> — **Robert Browning**
 
 ---
 
