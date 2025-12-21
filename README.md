@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are shaped and fashioned by what we love."  
-> — **Johann Wolfgang von Goethe**
+> "Wheels of justice grind slow but grind fine."  
+> — **Sun Tzu**
 
 ---
 

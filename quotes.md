@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True prayer has no set form."  
-> — **Morihei Ueshiba**
+> "Wheels of justice grind slow but grind fine."  
+> — **Sun Tzu**
 
 ---
 
