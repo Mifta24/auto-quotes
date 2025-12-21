@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
-> — **Jeffrey Gitomer**
+> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
+> — **Zen Proverb**
 
 ---
 

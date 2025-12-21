@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become."  
-> — **Paramahansa Yogananda**
+> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
+> — **Zen Proverb**
 
 ---
 
