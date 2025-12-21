@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become."  
-> — **Paramahansa Yogananda**
+> "You don't earn loyalty in a day. You earn loyalty day-by-day."  
+> — **Jeffrey Gitomer**
 
 ---
 
