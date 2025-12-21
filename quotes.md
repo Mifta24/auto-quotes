@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Here and now...breathe and relax...in battle and in life."  
-> — **Dan Millman**
+> "Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time."  
+> — **Thomas Jefferson**
 
 ---
 
