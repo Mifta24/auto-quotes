@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Excellence is not an exception, it is a prevailing attitude."  
-> — **Colin Powell**
+> "Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become."  
+> — **Paramahansa Yogananda**
 
 ---
 
-_Last updated: 20 December 2025 ⏳_
+_Last updated: 21 December 2025 ⏳_
