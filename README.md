@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Here and now...breathe and relax...in battle and in life."  
-> — **Dan Millman**
+> "We are shaped and fashioned by what we love."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

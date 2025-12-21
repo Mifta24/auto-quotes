@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time."  
-> — **Thomas Jefferson**
+> "We are shaped and fashioned by what we love."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
