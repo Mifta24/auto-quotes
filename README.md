@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
+> — **Dogen**
 
 ---
 
