@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 

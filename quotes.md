@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
-> — **Gilbert Chesterton**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 
