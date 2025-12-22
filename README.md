@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "Men are equal; it is not birth but virtue that makes the difference."  
+> — **Voltaire**
 
 ---
 

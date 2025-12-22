@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated."  
-> — **Celestine Chua**
+> "Men are equal; it is not birth but virtue that makes the difference."  
+> — **Voltaire**
 
 ---
 
