@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When the fish is caught we pay no more attention to the trap."  
-> — **Huang Po**
+> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
+> — **Mark Manson**
 
 ---
 

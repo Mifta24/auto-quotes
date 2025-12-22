@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
-> — **Steve Jobs**
+> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
+> — **Mark Manson**
 
 ---
 
