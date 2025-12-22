@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
+> — **Gilbert Chesterton**
 
 ---
 
