@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
-> — **Dogen**
+> "You don't have to be great to start, but you have to start to be great.  "  
+> — **Zig Ziglar**
 
 ---
 
