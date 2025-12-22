@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "Expect the best of yourself, and then do what is necessary to make it a reality."  
+> — **Ralph Marston**
 
 ---
 
