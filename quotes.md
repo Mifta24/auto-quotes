@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated."  
+> — **Celestine Chua**
 
 ---
 
