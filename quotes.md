@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Best be yourself, imperial, plain, and true."  
-> — **Robert Browning**
+> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
+> — **Steve Jobs**
 
 ---
 
-_Last updated: 21 December 2025 ⏳_
+_Last updated: 22 December 2025 ⏳_
