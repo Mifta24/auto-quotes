@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I admire those who do good and expect nothing in return."  
-> — **Roy T. Bennett**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 
