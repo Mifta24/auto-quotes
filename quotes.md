@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In three words I can sum up everything I've learned about life: it goes on."  
-> — **Robert Frost**
+> "I admire those who do good and expect nothing in return."  
+> — **Roy T. Bennett**
 
 ---
 

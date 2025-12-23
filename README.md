@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
-> — **Steve Jobs**
+> "I admire those who do good and expect nothing in return."  
+> — **Roy T. Bennett**
 
 ---
 
