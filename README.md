@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I admire those who do good and expect nothing in return."  
-> — **Roy T. Bennett**
+> "Quality is more important than quantity. One home run is much better than two doubles."  
+> — **Steve Jobs**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
-> — **Theodore Roosevelt**
+> "Quality is more important than quantity. One home run is much better than two doubles."  
+> — **Steve Jobs**
 
 ---
 
