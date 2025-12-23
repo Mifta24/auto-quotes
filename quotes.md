@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listen to the secret sound, the real sound, which is inside you."  
-> — **Kabir**
+> "If you're waiting until you feel talented enough to make it, you'll never make it."  
+> — **Criss Jami**
 
 ---
 
