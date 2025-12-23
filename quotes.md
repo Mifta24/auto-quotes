@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who knows, does not speak. He who speaks, does not know."  
-> — **Lao Tzu**
+> "Fear can hold you prisoner. Hope can set you free."  
+> — **Stephen King**
 
 ---
 

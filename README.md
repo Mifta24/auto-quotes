@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is more important than quantity. One home run is much better than two doubles."  
-> — **Steve Jobs**
+> "Fear can hold you prisoner. Hope can set you free."  
+> — **Stephen King**
 
 ---
 
