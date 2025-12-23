@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listen to the secret sound, the real sound, which is inside you."  
-> — **Kabir**
+> "Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. "  
+> — **Steve Jobs**
 
 ---
 
