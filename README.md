@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
-> — **Dogen**
+> "Listen to the secret sound, the real sound, which is inside you."  
+> — **Kabir**
 
 ---
 
-_Last updated: 22 December 2025 ⏳_
+_Last updated: 23 December 2025 ⏳_

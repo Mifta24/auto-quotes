@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You don't have to be great to start, but you have to start to be great.  "  
-> — **Zig Ziglar**
+> "Listen to the secret sound, the real sound, which is inside you."  
+> — **Kabir**
 
 ---
 
-_Last updated: 22 December 2025 ⏳_
+_Last updated: 23 December 2025 ⏳_
