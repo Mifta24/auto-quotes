@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is more important than quantity. One home run is much better than two doubles."  
-> — **Steve Jobs**
+> "He who knows, does not speak. He who speaks, does not know."  
+> — **Lao Tzu**
 
 ---
 
