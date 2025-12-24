@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
-> — **Aristotle**
+> "We have more possibilities available in each moment than we realize."  
+> — **Thich Nhat Hanh**
 
 ---
 

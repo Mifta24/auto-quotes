@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lying can never save us from another lie."  
-> — **Vaclav Havel**
+> "We have more possibilities available in each moment than we realize."  
+> — **Thich Nhat Hanh**
 
 ---
 
