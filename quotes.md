@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lying can never save us from another lie."  
-> — **Vaclav Havel**
+> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
+> — **Aristotle**
 
 ---
 
