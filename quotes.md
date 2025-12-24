@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am who I am today because of the choices I made yesterday."  
-> — **Eleanor Roosevelt**
+> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."  
+> — **Socrates**
 
 ---
 
