@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
-> — **Toni Morrison**
+> "The road to success is always under construction.."  
+> — **Lily Tomlin**
 
 ---
 

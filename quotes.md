@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiger doesn't lose sleep over the opinion of sheep."  
-> — **Shahir Zag**
+> "The road to success is always under construction.."  
+> — **Lily Tomlin**
 
 ---
 
