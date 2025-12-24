@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have more possibilities available in each moment than we realize."  
-> — **Thich Nhat Hanh**
+> "If there is a book that you want to read, but it hasn't been written yet, then you must write it."  
+> — **Toni Morrison**
 
 ---
 
