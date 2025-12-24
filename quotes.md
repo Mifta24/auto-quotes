@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction.."  
-> — **Lily Tomlin**
+> "I am who I am today because of the choices I made yesterday."  
+> — **Eleanor Roosevelt**
 
 ---
 
