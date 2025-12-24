@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fear can hold you prisoner. Hope can set you free."  
-> — **Stephen King**
+> "Lying can never save us from another lie."  
+> — **Vaclav Havel**
 
 ---
 
-_Last updated: 23 December 2025 ⏳_
+_Last updated: 24 December 2025 ⏳_

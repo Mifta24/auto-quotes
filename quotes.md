@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Try all things, hold fast that which is good."  
-> — **John Locke**
+> "Lying can never save us from another lie."  
+> — **Vaclav Havel**
 
 ---
 
-_Last updated: 23 December 2025 ⏳_
+_Last updated: 24 December 2025 ⏳_
