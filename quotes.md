@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have more possibilities available in each moment than we realize."  
-> — **Thich Nhat Hanh**
+> "A loving heart is the truest wisdom."  
+> — **Charles Dickens**
 
 ---
 
