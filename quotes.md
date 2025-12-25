@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do something to move yourself toward your major goal every day."  
-> — **Brian Tracy**
+> "Nothing has any power over me other than that which I give it through my conscious thoughts."  
+> — **Tony Robbins**
 
 ---
 
