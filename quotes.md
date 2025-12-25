@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present."  
-> — **Lao Tzu**
+> "A tiger doesn't lose sleep over the opinion of sheep."  
+> — **Shahir Zag**
 
 ---
 
-_Last updated: 24 December 2025 ⏳_
+_Last updated: 25 December 2025 ⏳_

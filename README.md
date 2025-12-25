@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us."  
-> — **Socrates**
+> "A tiger doesn't lose sleep over the opinion of sheep."  
+> — **Shahir Zag**
 
 ---
 
-_Last updated: 24 December 2025 ⏳_
+_Last updated: 25 December 2025 ⏳_
