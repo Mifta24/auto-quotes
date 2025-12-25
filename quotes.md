@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
+> — **Dogen**
 
 ---
 

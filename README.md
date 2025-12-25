@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings believe just as they breathe - in order to survive."  
-> — **Carlos Ruiz Zafon**
+> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
+> — **Dogen**
 
 ---
 
