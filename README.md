@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiger doesn't lose sleep over the opinion of sheep."  
-> — **Shahir Zag**
+> "Do something to move yourself toward your major goal every day."  
+> — **Brian Tracy**
 
 ---
 

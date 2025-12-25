@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The glow of one warm thought is to me worth more than money."  
-> — **Thomas Jefferson**
+> "Do something to move yourself toward your major goal every day."  
+> — **Brian Tracy**
 
 ---
 
