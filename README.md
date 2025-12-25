@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do something to move yourself toward your major goal every day."  
-> — **Brian Tracy**
+> "Human beings believe just as they breathe - in order to survive."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

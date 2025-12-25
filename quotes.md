@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing has any power over me other than that which I give it through my conscious thoughts."  
-> — **Tony Robbins**
+> "Human beings believe just as they breathe - in order to survive."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
