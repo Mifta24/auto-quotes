@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
-> — **Dogen**
+> "Seek not the good in external things;seek it in yourselves."  
+> — **Epictetus**
 
 ---
 
