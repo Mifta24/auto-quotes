@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Seek not the good in external things;seek it in yourselves."  
-> — **Epictetus**
+> "Everyone has oceans to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries."  
+> — **Amelia Earhart**
 
 ---
 

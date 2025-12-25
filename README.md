@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
-> — **Dogen**
+> "Everyone has oceans to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries."  
+> — **Amelia Earhart**
 
 ---
 
