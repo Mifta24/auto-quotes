@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiger doesn't lose sleep over the opinion of sheep."  
-> — **Shahir Zag**
+> "The glow of one warm thought is to me worth more than money."  
+> — **Thomas Jefferson**
 
 ---
 
