@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings believe just as they breathe - in order to survive."  
-> — **Carlos Ruiz Zafon**
+> "I've always tried to go a step past wherever people expected me to end up."  
+> — **Beverly Sills**
 
 ---
 
