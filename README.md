@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Expect the best of yourself, and then do what is necessary to make it a reality."  
-> — **Ralph Marston**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 

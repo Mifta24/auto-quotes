@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't change your mind just because people are offended; change your mind if you're wrong."  
-> — **Criss Jami**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 
