@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better."  
-> — **Elon Musk**
+> "Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor."  
+> — **Thich Nhat Hanh**
 
 ---
 
