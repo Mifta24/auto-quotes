@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
-> — **Charles Spurgeon**
+> "Expect the best of yourself, and then do what is necessary to make it a reality."  
+> — **Ralph Marston**
 
 ---
 
-_Last updated: 25 December 2025 ⏳_
+_Last updated: 26 December 2025 ⏳_
