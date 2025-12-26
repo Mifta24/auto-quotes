@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The golden opportunity you are seeking is within yourself."  
-> — **Mary Engelbreit**
+> "May you live all the days of your life."  
+> — **Jonathan Swift**
 
 ---
 
