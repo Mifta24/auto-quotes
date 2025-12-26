@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Expect the best of yourself, and then do what is necessary to make it a reality."  
-> — **Ralph Marston**
+> "Don't change your mind just because people are offended; change your mind if you're wrong."  
+> — **Criss Jami**
 
 ---
 
