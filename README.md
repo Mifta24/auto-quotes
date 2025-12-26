@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness depends upon ourselves."  
-> — **Aristotle**
+> "The golden opportunity you are seeking is within yourself."  
+> — **Mary Engelbreit**
 
 ---
 

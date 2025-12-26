@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all self-made, but only the successful will admit it."  
-> — **Earl Nightingale**
+> "The golden opportunity you are seeking is within yourself."  
+> — **Mary Engelbreit**
 
 ---
 
