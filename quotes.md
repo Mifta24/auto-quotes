@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness depends upon ourselves."  
-> — **Aristotle**
+> "We are all self-made, but only the successful will admit it."  
+> — **Earl Nightingale**
 
 ---
 
