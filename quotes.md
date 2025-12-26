@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor."  
-> — **Thich Nhat Hanh**
+> "Happiness depends upon ourselves."  
+> — **Aristotle**
 
 ---
 
