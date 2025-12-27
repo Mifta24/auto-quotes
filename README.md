@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do good, live in the most positive and joyful way possible every day."  
-> — **Roy T. Bennett**
+> "Make failure your teacher, not your undertaker.  "  
+> — **Zig Ziglar**
 
 ---
 
