@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "Night is a more quiet time to work. It aids thought."  
+> — **Alexander Graham Bell**
 
 ---
 
