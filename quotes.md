@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing makes a man broad-minded like adversity."  
-> — **Will Rogers**
+> "When something comes from within, when it is a part of you, you have no choice but to live it, to express it."  
+> — **Kamal Ravikant**
 
 ---
 
