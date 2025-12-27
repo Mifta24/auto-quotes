@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is only depth of character that determines the profundity with which we face life."  
-> — **Ming-Dao Deng**
+> "Change your thoughts and you change your world."  
+> — **Norman Vincent Peale**
 
 ---
 
