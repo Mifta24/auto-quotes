@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "May you live all the days of your life."  
-> — **Jonathan Swift**
+> "Do good, live in the most positive and joyful way possible every day."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 26 December 2025 ⏳_
+_Last updated: 27 December 2025 ⏳_
