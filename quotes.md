@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Night is a more quiet time to work. It aids thought."  
-> — **Alexander Graham Bell**
+> "What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from."  
+> — **T.S. Eliot**
 
 ---
 
