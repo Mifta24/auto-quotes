@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not uncommon for people to spend their whole life waiting to start living."  
-> — **Eckhart Tolle**
+> "It is only depth of character that determines the profundity with which we face life."  
+> — **Ming-Dao Deng**
 
 ---
 

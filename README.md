@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When something comes from within, when it is a part of you, you have no choice but to live it, to express it."  
-> — **Kamal Ravikant**
+> "It is only depth of character that determines the profundity with which we face life."  
+> — **Ming-Dao Deng**
 
 ---
 
