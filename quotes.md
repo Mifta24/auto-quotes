@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do good, live in the most positive and joyful way possible every day."  
-> — **Roy T. Bennett**
+> "Chop your own wood and it will warm you twice. "  
+> — **Henry Ford**
 
 ---
 
