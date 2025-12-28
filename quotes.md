@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is stumbling from failure to failure with no loss of enthusiasm."  
-> — **Winston Churchill**
+> "Just as true humor is laughter at oneself, true humanity is knowledge of oneself."  
+> — **Alan Watts**
 
 ---
 
