@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The foolish reject what they see, not what they think; the wise reject what they think, not what they see."  
-> — **Huang Po**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 

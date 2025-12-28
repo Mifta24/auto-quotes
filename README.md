@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is too important to be taken seriously."  
-> — **Oscar Wilde**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 
