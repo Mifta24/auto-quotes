@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult times for many of us are the ones we give ourselves."  
-> — **Pema Chodron**
+> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
+> — **Og Mandino**
 
 ---
 

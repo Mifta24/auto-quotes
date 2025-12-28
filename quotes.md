@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
-> — **Roy T. Bennett**
+> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
+> — **Og Mandino**
 
 ---
 
