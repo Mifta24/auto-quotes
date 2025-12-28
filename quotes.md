@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Change your thoughts and you change your world."  
-> — **Norman Vincent Peale**
+> "Success is stumbling from failure to failure with no loss of enthusiasm."  
+> — **Winston Churchill**
 
 ---
 
-_Last updated: 27 December 2025 ⏳_
+_Last updated: 28 December 2025 ⏳_

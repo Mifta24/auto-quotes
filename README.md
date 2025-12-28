@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is only depth of character that determines the profundity with which we face life."  
-> — **Ming-Dao Deng**
+> "Success is stumbling from failure to failure with no loss of enthusiasm."  
+> — **Winston Churchill**
 
 ---
 
-_Last updated: 27 December 2025 ⏳_
+_Last updated: 28 December 2025 ⏳_
