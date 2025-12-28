@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult times for many of us are the ones we give ourselves."  
-> — **Pema Chodron**
+> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
+> — **Roy T. Bennett**
 
 ---
 
