@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just as true humor is laughter at oneself, true humanity is knowledge of oneself."  
-> — **Alan Watts**
+> "Life is too important to be taken seriously."  
+> — **Oscar Wilde**
 
 ---
 

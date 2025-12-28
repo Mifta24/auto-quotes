@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is stumbling from failure to failure with no loss of enthusiasm."  
-> — **Winston Churchill**
+> "Life is too important to be taken seriously."  
+> — **Oscar Wilde**
 
 ---
 
