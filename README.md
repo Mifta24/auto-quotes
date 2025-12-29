@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it's not broken, tinker with it till you find out how it works."  
-> — **Bob Proctor**
+> "Where does a thought go when it's forgotten?"  
+> — **Sigmund Freud**
 
 ---
 
