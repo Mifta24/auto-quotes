@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it's not broken, tinker with it till you find out how it works."  
-> — **Bob Proctor**
+> "The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions."  
+> — **Steve Maraboli**
 
 ---
 
