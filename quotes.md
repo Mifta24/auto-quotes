@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather be a little nobody, then to be an evil somebody."  
-> — **Abraham Lincoln**
+> "If you do the work you get rewarded. There are no shortcuts in life."  
+> — **Michael Jordan**
 
 ---
 
