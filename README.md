@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When something is important enough, you do it even if the odds are not in your favor."  
-> — **Elon Musk**
+> "The real measure of your wealth is how much you'd be worth if you lost all your money."  
+> — **Unknown**
 
 ---
 
-_Last updated: 28 December 2025 ⏳_
+_Last updated: 29 December 2025 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you aren't sure which way to do something, do it both ways and see which works better."  
-> — **John Carmack**
+> "The real measure of your wealth is how much you'd be worth if you lost all your money."  
+> — **Unknown**
 
 ---
 
-_Last updated: 28 December 2025 ⏳_
+_Last updated: 29 December 2025 ⏳_
