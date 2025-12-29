@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real measure of your wealth is how much you'd be worth if you lost all your money."  
-> — **Unknown**
+> "If you believe you can, you can. If you believe you can't, then, well you can't."  
+> — **Celestine Chua**
 
 ---
 
