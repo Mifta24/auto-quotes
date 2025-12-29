@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real measure of your wealth is how much you'd be worth if you lost all your money."  
-> — **Unknown**
+> "I would rather be a little nobody, then to be an evil somebody."  
+> — **Abraham Lincoln**
 
 ---
 

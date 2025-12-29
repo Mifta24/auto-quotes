@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."  
-> — **Celestine Chua**
+> "I would rather be a little nobody, then to be an evil somebody."  
+> — **Abraham Lincoln**
 
 ---
 
