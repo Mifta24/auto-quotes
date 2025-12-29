@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is dangerous to be right in matters on which the established authorities are wrong."  
-> — **Voltaire**
+> "If it's not broken, tinker with it till you find out how it works."  
+> — **Bob Proctor**
 
 ---
 
