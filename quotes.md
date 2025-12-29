@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do the work you get rewarded. There are no shortcuts in life."  
-> — **Michael Jordan**
+> "There is no self-discovery without pain and loss."  
+> — **Anita Krizzan**
 
 ---
 

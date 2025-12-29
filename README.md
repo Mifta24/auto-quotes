@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather be a little nobody, then to be an evil somebody."  
-> — **Abraham Lincoln**
+> "There is no self-discovery without pain and loss."  
+> — **Anita Krizzan**
 
 ---
 
