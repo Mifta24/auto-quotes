@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no self-discovery without pain and loss."  
-> — **Anita Krizzan**
+> "It is dangerous to be right in matters on which the established authorities are wrong."  
+> — **Voltaire**
 
 ---
 
