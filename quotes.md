@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is up to each of us to sing as we feel moved by the overall song of life."  
-> — **Ming-Dao Deng**
+> "Success is nothing more than a few simple disciplines practiced every day."  
+> — **Jim Rohn**
 
 ---
 
