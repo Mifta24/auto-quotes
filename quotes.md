@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is nothing more than a few simple disciplines practiced every day."  
-> — **Jim Rohn**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 

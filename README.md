@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is up to each of us to sing as we feel moved by the overall song of life."  
-> — **Ming-Dao Deng**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 
