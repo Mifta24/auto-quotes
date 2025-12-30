@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People are not disturbed by things, but by the views they take of them."  
-> — **Epictetus**
+> "When it comes to mastering a skill, time is the magic ingredient."  
+> — **Robert Greene**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
-> — **Les Brown**
+> "When it comes to mastering a skill, time is the magic ingredient."  
+> — **Robert Greene**
 
 ---
 
