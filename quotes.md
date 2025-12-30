@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
-> — **Samuel Butler**
+> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
+> — **Dalai Lama**
 
 ---
 
-_Last updated: 29 December 2025 ⏳_
+_Last updated: 30 December 2025 ⏳_
