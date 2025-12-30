@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
-> — **Dalai Lama**
+> "Imagination is the beginning of creation."  
+> — **George Bernard Shaw**
 
 ---
 
