@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the beginning of creation."  
-> — **George Bernard Shaw**
+> "It is up to each of us to sing as we feel moved by the overall song of life."  
+> — **Ming-Dao Deng**
 
 ---
 

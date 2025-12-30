@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
-> — **Dalai Lama**
+> "It is up to each of us to sing as we feel moved by the overall song of life."  
+> — **Ming-Dao Deng**
 
 ---
 
