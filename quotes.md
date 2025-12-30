@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People are not disturbed by things, but by the views they take of them."  
-> — **Epictetus**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 
