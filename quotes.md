@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings can alter their lives by altering their attitudes of mind."  
-> — **William James**
+> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
+> — **Ming-Dao Deng**
 
 ---
 
