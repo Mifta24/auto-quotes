@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
-> — **Laurence J. Peter**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 

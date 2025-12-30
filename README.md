@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it comes to mastering a skill, time is the magic ingredient."  
-> — **Robert Greene**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 
