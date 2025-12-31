@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Boldness makes even the smallest animal dangerous."  
+> "When it comes to mastering a skill, time is the magic ingredient."  
 > — **Robert Greene**
 
 ---

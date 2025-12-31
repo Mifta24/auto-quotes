@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fewer the words, the better the prayer."  
-> — **Martin Luther**
+> "When it comes to mastering a skill, time is the magic ingredient."  
+> — **Robert Greene**
 
 ---
 
