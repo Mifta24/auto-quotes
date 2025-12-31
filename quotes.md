@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who can, does."  
-> — **George Bernard Shaw**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 

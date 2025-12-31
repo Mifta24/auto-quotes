@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it comes to mastering a skill, time is the magic ingredient."  
-> — **Robert Greene**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 
