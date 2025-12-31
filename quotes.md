@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fewer the words, the better the prayer."  
-> — **Martin Luther**
+> "Boldness makes even the smallest animal dangerous."  
+> — **Robert Greene**
 
 ---
 
