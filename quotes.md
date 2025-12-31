@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "Man invented language to satisfy his deep need to complain."  
+> — **Lily Tomlin**
 
 ---
 
