@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to offer no excuse than a bad one. "  
-> — **George Washington**
+> "The fewer the words, the better the prayer."  
+> — **Martin Luther**
 
 ---
 
