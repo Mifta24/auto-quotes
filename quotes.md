@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it comes to mastering a skill, time is the magic ingredient."  
-> — **Robert Greene**
+> "He who can, does."  
+> — **George Bernard Shaw**
 
 ---
 
