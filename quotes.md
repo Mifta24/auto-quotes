@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
-> — **Ming-Dao Deng**
+> "It is better to offer no excuse than a bad one. "  
+> — **George Washington**
 
 ---
 
-_Last updated: 30 December 2025 ⏳_
+_Last updated: 31 December 2025 ⏳_

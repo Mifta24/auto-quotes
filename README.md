@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Human beings can alter their lives by altering their attitudes of mind."  
-> — **William James**
+> "It is better to offer no excuse than a bad one. "  
+> — **George Washington**
 
 ---
 
-_Last updated: 30 December 2025 ⏳_
+_Last updated: 31 December 2025 ⏳_
