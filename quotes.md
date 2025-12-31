@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man invented language to satisfy his deep need to complain."  
-> — **Lily Tomlin**
+> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
+> — **William Faulkner**
 
 ---
 

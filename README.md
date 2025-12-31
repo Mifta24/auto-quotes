@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
+> — **William Faulkner**
 
 ---
 
