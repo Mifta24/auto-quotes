@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
-> — **William Faulkner**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 
