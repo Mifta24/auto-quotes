@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to offer no excuse than a bad one. "  
-> — **George Washington**
+> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
+> — **Herbert Hoover**
 
 ---
 
