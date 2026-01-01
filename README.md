@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
-> — **William Faulkner**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 
-_Last updated: 31 December 2025 ⏳_
+_Last updated: 01 January 2026 ⏳_

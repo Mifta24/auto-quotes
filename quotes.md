@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
+> — **Anne Frank**
 
 ---
 
-_Last updated: 31 December 2025 ⏳_
+_Last updated: 01 January 2026 ⏳_
