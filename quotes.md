@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget safety. Live where you fear to live."  
-> — **Rumi**
+> "Those who are possessed by nothing possess everything."  
+> — **Morihei Ueshiba**
 
 ---
 
