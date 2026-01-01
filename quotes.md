@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sorrow is how we learn to love."  
-> — **Rita Mae Brown**
+> "For fast-acting relief try slowing down."  
+> — **Lily Tomlin**
 
 ---
 

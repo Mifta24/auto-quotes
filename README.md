@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is in your moments of decision that your destiny is shaped."  
-> — **Tony Robbins**
+> "For fast-acting relief try slowing down."  
+> — **Lily Tomlin**
 
 ---
 
