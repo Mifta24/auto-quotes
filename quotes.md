@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the long run, the sharpest weapon of all is a kind and gentle spirit."  
-> — **Anne Frank**
+> "Life is too important to be taken seriously."  
+> — **Oscar Wilde**
 
 ---
 
