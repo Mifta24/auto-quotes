@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is too important to be taken seriously."  
-> — **Oscar Wilde**
+> "When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there."  
+> — **Zig Ziglar**
 
 ---
 
