@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are possessed by nothing possess everything."  
-> — **Morihei Ueshiba**
+> "It is in your moments of decision that your destiny is shaped."  
+> — **Tony Robbins**
 
 ---
 

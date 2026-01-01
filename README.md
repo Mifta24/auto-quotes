@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forget safety. Live where you fear to live."  
-> — **Rumi**
+> "It is in your moments of decision that your destiny is shaped."  
+> — **Tony Robbins**
 
 ---
 
