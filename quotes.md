@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I believe that potential is unlimited - success depends on daring to act on dreams.   "  
-> — **Estee Lauder**
+> "Today will never happen again. Don't waste it with a false start or no start at all."  
+> — **Og Mandino**
 
 ---
 
