@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "For fast-acting relief try slowing down."  
-> — **Lily Tomlin**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
-_Last updated: 01 January 2026 ⏳_
+_Last updated: 02 January 2026 ⏳_

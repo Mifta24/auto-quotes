@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."  
-> — **Richard Bach**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
-_Last updated: 01 January 2026 ⏳_
+_Last updated: 02 January 2026 ⏳_
