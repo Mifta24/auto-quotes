@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Information changes your mind. Action changes your circumstances."  
-> — **Jack Butcher**
+> "I believe that potential is unlimited - success depends on daring to act on dreams.   "  
+> — **Estee Lauder**
 
 ---
 

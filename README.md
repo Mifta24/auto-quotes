@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
-> — **Winston Churchill**
+> "I believe that potential is unlimited - success depends on daring to act on dreams.   "  
+> — **Estee Lauder**
 
 ---
 
