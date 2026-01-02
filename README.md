@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I believe that potential is unlimited - success depends on daring to act on dreams.   "  
-> — **Estee Lauder**
+> "You have a brain and mind of your own. Use it, and reach your own decisions."  
+> — **Napoleon Hill**
 
 ---
 

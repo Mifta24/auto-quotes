@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Today will never happen again. Don't waste it with a false start or no start at all."  
-> — **Og Mandino**
+> "You have a brain and mind of your own. Use it, and reach your own decisions."  
+> — **Napoleon Hill**
 
 ---
 
