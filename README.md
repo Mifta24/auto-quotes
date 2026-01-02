@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
+> — **Winston Churchill**
 
 ---
 

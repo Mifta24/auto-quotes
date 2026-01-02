@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you talk about your shame, the more of it you have."  
-> — **Mark Manson**
+> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
+> — **Winston Churchill**
 
 ---
 
