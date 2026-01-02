@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "I am not proud, but I am happy; and happiness blinds, I think, more than pride."  
+> — **Alexandre Dumas**
 
 ---
 
