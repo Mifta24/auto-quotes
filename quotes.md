@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
-> — **Winston Churchill**
+> "Information changes your mind. Action changes your circumstances."  
+> — **Jack Butcher**
 
 ---
 
