@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "The less you talk about your shame, the more of it you have."  
+> — **Mark Manson**
 
 ---
 
