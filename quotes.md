@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have a brain and mind of your own. Use it, and reach your own decisions."  
-> — **Napoleon Hill**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
