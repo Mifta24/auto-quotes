@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to have, and not need, than to need, and not have."  
-> — **Franz Kafka**
+> "At the end of the day, let there be no excuses, no explanations, no regrets."  
+> — **Steve Maraboli**
 
 ---
 
