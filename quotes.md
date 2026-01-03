@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never argue with ignorance. It only leads to frustration."  
-> — **Unknown**
+> "There is no limitations except those we create for ourselves."  
+> — **Lolly Daskal**
 
 ---
 
