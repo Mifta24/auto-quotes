@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limitations except those we create for ourselves."  
-> — **Lolly Daskal**
+> "Better to have, and not need, than to need, and not have."  
+> — **Franz Kafka**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be strong. Be confident. Be the star of your own life."  
-> — **Estee Lauder**
+> "Better to have, and not need, than to need, and not have."  
+> — **Franz Kafka**
 
 ---
 
