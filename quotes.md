@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a difference between giving directions and giving direction."  
-> — **Simon Sinek**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 
