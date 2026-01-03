@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to live until you die."  
-> — **Dan Millman**
+> "There is a difference between giving directions and giving direction."  
+> — **Simon Sinek**
 
 ---
 
