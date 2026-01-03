@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limitations except those we create for ourselves."  
-> — **Lolly Daskal**
+> "Be strong. Be confident. Be the star of your own life."  
+> — **Estee Lauder**
 
 ---
 
