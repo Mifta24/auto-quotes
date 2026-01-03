@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to have, and not need, than to need, and not have."  
-> — **Franz Kafka**
+> "Better to live until you die."  
+> — **Dan Millman**
 
 ---
 

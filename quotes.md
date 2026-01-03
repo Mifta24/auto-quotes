@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At the end of the day, let there be no excuses, no explanations, no regrets."  
-> — **Steve Maraboli**
+> "Better to live until you die."  
+> — **Dan Millman**
 
 ---
 
