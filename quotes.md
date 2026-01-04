@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your face to the sun, as flowers know how to do."  
-> — **Ming-Dao Deng**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 
