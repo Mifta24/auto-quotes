@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is too short to waste your time on people who don't respect, appreciate, and value you."  
-> — **Roy T. Bennett**
+> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
+> — **Theodore Roosevelt**
 
 ---
 
