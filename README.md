@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
-> — **Joan Rivers**
+> "A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles."  
+> — **Christopher Reeve**
 
 ---
 
-_Last updated: 03 January 2026 ⏳_
+_Last updated: 04 January 2026 ⏳_
