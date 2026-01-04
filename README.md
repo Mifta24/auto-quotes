@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief danger in life is that you may take too many precautions."  
-> — **Alfred Adler**
+> "Life is too short to waste your time on people who don't respect, appreciate, and value you."  
+> — **Roy T. Bennett**
 
 ---
 

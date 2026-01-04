@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be true to yourself, help others, make each day your masterpiece"  
-> — **John Wooden**
+> "Life is too short to waste your time on people who don't respect, appreciate, and value you."  
+> — **Roy T. Bennett**
 
 ---
 
