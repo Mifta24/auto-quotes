@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
-> — **Theodore Roosevelt**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 

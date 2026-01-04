@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future."  
-> — **Nicolas Chamfort**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 
