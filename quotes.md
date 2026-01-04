@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Acknowledging the good that you already have in your life is the foundation for all abundance."  
-> — **Eckhart Tolle**
+> "The chief danger in life is that you may take too many precautions."  
+> — **Alfred Adler**
 
 ---
 
