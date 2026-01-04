@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
-> — **Theodore Roosevelt**
+> "It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future."  
+> — **Nicolas Chamfort**
 
 ---
 
