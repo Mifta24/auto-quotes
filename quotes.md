@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not fair to ask of others what you are not willing to do yourself."  
-> — **Eleanor Roosevelt**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 

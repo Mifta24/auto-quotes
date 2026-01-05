@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fastest way to change is to laugh at your own folly."  
-> — **Spencer Johnson**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 
