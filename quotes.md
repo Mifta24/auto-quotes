@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
-> — **Eckhart Tolle**
+> "Action may not always bring happiness, but there is no happiness without action."  
+> — **William James**
 
 ---
 
