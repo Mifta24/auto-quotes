@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Turn your face to the sun, as flowers know how to do."  
-> — **Ming-Dao Deng**
+> "The fastest way to change is to laugh at your own folly."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 04 January 2026 ⏳_
+_Last updated: 05 January 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
-> — **Theodore Roosevelt**
+> "The fastest way to change is to laugh at your own folly."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 04 January 2026 ⏳_
+_Last updated: 05 January 2026 ⏳_
