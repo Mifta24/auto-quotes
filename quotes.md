@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be of use to the world is the only way to be happy."  
-> — **Hans Christian Andersen**
+> "A day wasted on others is not wasted on one's self."  
+> — **Charles Dickens**
 
 ---
 
