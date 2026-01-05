@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Everyday you can take a tiny step in the right direction."  
+> "Success is an iceberg."  
 > — **Unknown**
 
 ---

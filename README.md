@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The search for happiness is one of the chief sources of unhappiness."  
-> — **Eric Hoffer**
+> "Success is an iceberg."  
+> — **Unknown**
 
 ---
 
