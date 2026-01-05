@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "To be of use to the world is the only way to be happy."  
+> — **Hans Christian Andersen**
 
 ---
 

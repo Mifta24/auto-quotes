@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have power over your mind - not outside events. Realize this, and you will find strength."  
-> — **Marcus Aurelius**
+> "To be of use to the world is the only way to be happy."  
+> — **Hans Christian Andersen**
 
 ---
 
