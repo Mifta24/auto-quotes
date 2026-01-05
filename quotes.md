@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fastest way to change is to laugh at your own folly."  
-> — **Spencer Johnson**
+> "It is not fair to ask of others what you are not willing to do yourself."  
+> — **Eleanor Roosevelt**
 
 ---
 
