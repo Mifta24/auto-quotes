@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The search for happiness is one of the chief sources of unhappiness."  
-> — **Eric Hoffer**
+> "Everyday you can take a tiny step in the right direction."  
+> — **Unknown**
 
 ---
 
