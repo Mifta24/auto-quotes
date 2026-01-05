@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Action may not always bring happiness, but there is no happiness without action."  
-> — **William James**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 
