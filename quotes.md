@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great discovery was ever made without a bold guess. "  
-> — **Isaac Newton**
+> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
+> — **Jim Rohn**
 
 ---
 
