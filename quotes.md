@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
-> — **Henry Ford**
+> "Every blessing ignored becomes a curse."  
+> — **Paulo Coelho**
 
 ---
 
