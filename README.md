@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hero is an ordinary person doing things in an extra ordinary way."  
-> — **Christopher Reeve**
+> "Why change? Everyone has his own style. When you have found it, you should stick to it."  
+> — **Audrey Hepburn**
 
 ---
 

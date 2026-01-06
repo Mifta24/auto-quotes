@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything that irritates us about others."  
-> — **Carl Jung**
+> "Why change? Everyone has his own style. When you have found it, you should stick to it."  
+> — **Audrey Hepburn**
 
 ---
 
