@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
-> — **Henry Ford**
+> "Don't gain the world and lose your soul. Wisdom is better than silver and gold."  
+> — **Bob Marley**
 
 ---
 
