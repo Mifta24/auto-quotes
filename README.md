@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't gain the world and lose your soul. Wisdom is better than silver and gold."  
-> — **Bob Marley**
+> "A hero is an ordinary person doing things in an extra ordinary way."  
+> — **Christopher Reeve**
 
 ---
 

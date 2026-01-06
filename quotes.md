@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not uncommon for people to spend their whole life waiting to start living."  
-> — **Eckhart Tolle**
+> "A hero is an ordinary person doing things in an extra ordinary way."  
+> — **Christopher Reeve**
 
 ---
 
