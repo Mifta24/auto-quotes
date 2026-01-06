@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't gain the world and lose your soul. Wisdom is better than silver and gold."  
-> — **Bob Marley**
+> "It is not uncommon for people to spend their whole life waiting to start living."  
+> — **Eckhart Tolle**
 
 ---
 
