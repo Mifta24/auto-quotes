@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
-> — **Jim Rohn**
+> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
+> — **Henry Ford**
 
 ---
 

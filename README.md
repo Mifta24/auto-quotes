@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No great discovery was ever made without a bold guess. "  
-> — **Isaac Newton**
+> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
+> — **Henry Ford**
 
 ---
 
