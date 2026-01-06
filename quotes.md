@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hero is an ordinary person doing things in an extra ordinary way."  
-> — **Christopher Reeve**
+> "Everything that irritates us about others."  
+> — **Carl Jung**
 
 ---
 
