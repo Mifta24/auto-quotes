@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To be of use to the world is the only way to be happy."  
-> — **Hans Christian Andersen**
+> "No great discovery was ever made without a bold guess. "  
+> — **Isaac Newton**
 
 ---
 
-_Last updated: 05 January 2026 ⏳_
+_Last updated: 06 January 2026 ⏳_

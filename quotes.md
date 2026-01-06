@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A day wasted on others is not wasted on one's self."  
-> — **Charles Dickens**
+> "No great discovery was ever made without a bold guess. "  
+> — **Isaac Newton**
 
 ---
 
-_Last updated: 05 January 2026 ⏳_
+_Last updated: 06 January 2026 ⏳_
