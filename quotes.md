@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why change? Everyone has his own style. When you have found it, you should stick to it."  
-> — **Audrey Hepburn**
+> "Life is not just the passing of time. Life is the collection of experiences and their intensity."  
+> — **Jim Rohn**
 
 ---
 
