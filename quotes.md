@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All I can do is be me, whoever that is."  
-> — **Bob Dylan**
+> "There is no significance in life without struggle."  
+> — **Lolly Daskal**
 
 ---
 
