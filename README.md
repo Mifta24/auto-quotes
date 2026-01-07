@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All I can do is be me, whoever that is."  
-> — **Bob Dylan**
+> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
+> — **Naval Ravikant**
 
 ---
 

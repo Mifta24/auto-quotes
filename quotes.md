@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
+> — **Naval Ravikant**
 
 ---
 
