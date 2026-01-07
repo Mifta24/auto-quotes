@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
-> — **Audrey Hepburn**
+> "Wheels of justice grind slow but grind fine."  
+> — **Sun Tzu**
 
 ---
 
