@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wheels of justice grind slow but grind fine."  
-> — **Sun Tzu**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 
