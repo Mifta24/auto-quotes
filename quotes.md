@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conflict cannot survive without your participation. "  
-> — **Wayne Dyer**
+> "All I can do is be me, whoever that is."  
+> — **Bob Dylan**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is not an act, it is a habit."  
-> — **Aristotle**
+> "All I can do is be me, whoever that is."  
+> — **Bob Dylan**
 
 ---
 
