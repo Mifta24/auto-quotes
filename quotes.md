@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
-> — **Naval Ravikant**
+> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
+> — **Audrey Hepburn**
 
 ---
 
