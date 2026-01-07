@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothing of our thoughts."  
-> — **Jonathan Swift**
+> "There are only encounters in history. There are no accidents."  
+> — **Pablo Picasso**
 
 ---
 
