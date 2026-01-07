@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothing of our thoughts."  
-> — **Jonathan Swift**
+> "Quality is not an act, it is a habit."  
+> — **Aristotle**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are only encounters in history. There are no accidents."  
-> — **Pablo Picasso**
+> "Quality is not an act, it is a habit."  
+> — **Aristotle**
 
 ---
 
