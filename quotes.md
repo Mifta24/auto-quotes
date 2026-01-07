@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is not an act, it is a habit."  
-> — **Aristotle**
+> "Conflict cannot survive without your participation. "  
+> — **Wayne Dyer**
 
 ---
 
