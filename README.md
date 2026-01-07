@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Why change? Everyone has his own style. When you have found it, you should stick to it."  
-> — **Audrey Hepburn**
+> "Words are the clothing of our thoughts."  
+> — **Jonathan Swift**
 
 ---
 
-_Last updated: 06 January 2026 ⏳_
+_Last updated: 07 January 2026 ⏳_
