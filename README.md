@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be patient and calm; no one can catch fish in anger."  
-> — **Herbert Hoover**
+> "The right thing to do and the hard thing to do are usually the same."  
+> — **Steve Maraboli**
 
 ---
 

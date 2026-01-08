@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the power of the mind to be unconquerable."  
-> — **Seneca**
+> "The right thing to do and the hard thing to do are usually the same."  
+> — **Steve Maraboli**
 
 ---
 
