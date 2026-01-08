@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The right thing to do and the hard thing to do are usually the same."  
-> — **Steve Maraboli**
+> "You can not live your life just based on what everyone else thinks."  
+> — **Joyce Meyer**
 
 ---
 

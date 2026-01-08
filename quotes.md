@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best fighter is never angry."  
-> — **Lao Tzu**
+> "You can not live your life just based on what everyone else thinks."  
+> — **Joyce Meyer**
 
 ---
 
