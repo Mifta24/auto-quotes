@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our joy does not have to be based on our circumstances."  
-> — **Joyce Meyer**
+> "Most of us will do anything to avoid facing ourselves."  
+> — **Lolly Daskal**
 
 ---
 

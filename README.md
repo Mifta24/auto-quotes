@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge your success by what you had to give up in order to get it."  
-> — **Dalai Lama**
+> "Most of us will do anything to avoid facing ourselves."  
+> — **Lolly Daskal**
 
 ---
 
