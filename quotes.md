@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be patient and calm; no one can catch fish in anger."  
-> — **Herbert Hoover**
+> "It is the power of the mind to be unconquerable."  
+> — **Seneca**
 
 ---
 
