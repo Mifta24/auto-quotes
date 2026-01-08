@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "No problem can be solved from the same level of consciousness that created it."  
+> — **Albert Einstein**
 
 ---
 
