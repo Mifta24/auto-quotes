@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge your success by what you had to give up in order to get it."  
-> — **Dalai Lama**
+> "Our joy does not have to be based on our circumstances."  
+> — **Joyce Meyer**
 
 ---
 
