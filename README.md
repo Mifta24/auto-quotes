@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "Be patient and calm; no one can catch fish in anger."  
+> — **Herbert Hoover**
 
 ---
 
