@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The right thing to do and the hard thing to do are usually the same."  
-> — **Steve Maraboli**
+> "The best fighter is never angry."  
+> — **Lao Tzu**
 
 ---
 
