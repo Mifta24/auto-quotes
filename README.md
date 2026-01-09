@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you run you stand a chance of losing, but if you don't run you've already lost."  
-> — **Barack Obama**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 

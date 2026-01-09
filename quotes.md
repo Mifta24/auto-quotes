@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Use your smile to change the world but don't let the world change your smile."  
-> — **Unknown**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 
