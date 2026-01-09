@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can not live your life just based on what everyone else thinks."  
-> — **Joyce Meyer**
+> "A different result requires doing something different."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 08 January 2026 ⏳_
+_Last updated: 09 January 2026 ⏳_
