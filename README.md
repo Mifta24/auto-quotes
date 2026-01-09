@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A different result requires doing something different."  
-> — **Gary Keller**
+> "If you run you stand a chance of losing, but if you don't run you've already lost."  
+> — **Barack Obama**
 
 ---
 

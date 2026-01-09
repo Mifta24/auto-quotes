@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't want anything. Then you get everything."  
-> — **Seungsahn**
+> "If you run you stand a chance of losing, but if you don't run you've already lost."  
+> — **Barack Obama**
 
 ---
 
