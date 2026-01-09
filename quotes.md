@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "Life is the dancer and you are the dance."  
+> — **Eckhart Tolle**
 
 ---
 
