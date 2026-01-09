@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A different result requires doing something different."  
-> — **Gary Keller**
+> "Don't want anything. Then you get everything."  
+> — **Seungsahn**
 
 ---
 
