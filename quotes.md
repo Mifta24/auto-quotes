@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you run you stand a chance of losing, but if you don't run you've already lost."  
-> — **Barack Obama**
+> "Use your smile to change the world but don't let the world change your smile."  
+> — **Unknown**
 
 ---
 
