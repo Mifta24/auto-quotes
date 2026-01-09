@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wisdom is the oneness of mind that guides and permeates all things."  
-> — **Heraclitus**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 

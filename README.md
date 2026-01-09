@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
-> — **Zig Ziglar**
+> "When we strive to become better than we are, everything around us becomes better, too."  
+> — **Paulo Coelho**
 
 ---
 
