@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "Successful people ask better questions, and as a result, they get better answers."  
+> — **Tony Robbins**
 
 ---
 
