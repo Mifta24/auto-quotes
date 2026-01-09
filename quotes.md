@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the dancer and you are the dance."  
-> — **Eckhart Tolle**
+> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
+> — **Zig Ziglar**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
+> — **Zig Ziglar**
 
 ---
 
