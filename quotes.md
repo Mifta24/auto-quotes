@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of the evil in this world is done by people with good intentions."  
-> — **T.S. Eliot**
+> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
+> — **Steve Harvey**
 
 ---
 
