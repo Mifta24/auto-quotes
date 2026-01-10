@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your spirit is the true shield."  
-> — **Morihei Ueshiba**
+> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
+> — **Deepak Chopra**
 
 ---
 
