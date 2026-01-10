@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The hardest arithmetic to master is that which enables us to count our blessings."  
-> — **Eric Hoffer**
+> "Most of the evil in this world is done by people with good intentions."  
+> — **T.S. Eliot**
 
 ---
 
