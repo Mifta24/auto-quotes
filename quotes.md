@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "Do not try to be on the side of the majority, but live according to your inner laws."  
+> — **Marcus Aurelius**
 
 ---
 
