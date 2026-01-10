@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "The guest will judge better of a feast than the cook."  
+> — **Aristotle**
 
 ---
 
