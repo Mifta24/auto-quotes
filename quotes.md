@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you've got nothing, you've got nothing to lose."  
-> — **Bob Dylan**
+> "Your spirit is the true shield."  
+> — **Morihei Ueshiba**
 
 ---
 
