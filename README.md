@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When we strive to become better than we are, everything around us becomes better, too."  
-> — **Paulo Coelho**
+> "The hardest arithmetic to master is that which enables us to count our blessings."  
+> — **Eric Hoffer**
 
 ---
 
-_Last updated: 09 January 2026 ⏳_
+_Last updated: 10 January 2026 ⏳_
