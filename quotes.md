@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The guest will judge better of a feast than the cook."  
-> — **Aristotle**
+> "When you've got nothing, you've got nothing to lose."  
+> — **Bob Dylan**
 
 ---
 

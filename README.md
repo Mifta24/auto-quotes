@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "When you've got nothing, you've got nothing to lose."  
+> — **Bob Dylan**
 
 ---
 
