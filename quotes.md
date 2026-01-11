@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can either add to our character each day, or we can fritter away our energies in distractions."  
-> — **Ming-Dao Deng**
+> "What we know is a drop, what we don't know is an ocean. "  
+> — **Isaac Newton**
 
 ---
 
