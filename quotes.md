@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
-> — **Robin Sharma**
+> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
+> — **Mahatma Gandhi**
 
 ---
 
