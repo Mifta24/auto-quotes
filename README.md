@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
-> — **Robin Sharma**
+> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."  
+> — **Peter Drucker**
 
 ---
 
