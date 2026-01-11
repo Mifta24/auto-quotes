@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What we know is a drop, what we don't know is an ocean. "  
-> — **Isaac Newton**
+> "We turn not older with years but newer every day."  
+> — **Emily Dickinson**
 
 ---
 

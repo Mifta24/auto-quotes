@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can either add to our character each day, or we can fritter away our energies in distractions."  
-> — **Ming-Dao Deng**
+> "We turn not older with years but newer every day."  
+> — **Emily Dickinson**
 
 ---
 
