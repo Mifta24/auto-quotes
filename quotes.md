@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
-> — **Steve Harvey**
+> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
+> — **Wayne Gretzky**
 
 ---
 
