@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
-> — **Steve Harvey**
+> "We can either add to our character each day, or we can fritter away our energies in distractions."  
+> — **Ming-Dao Deng**
 
 ---
 
