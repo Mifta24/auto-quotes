@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
+> — **Robin Sharma**
 
 ---
 
