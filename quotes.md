@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We turn not older with years but newer every day."  
-> — **Emily Dickinson**
+> "Absence makes the heart grow fonder."  
+> — **Eleanor Roosevelt**
 
 ---
 
