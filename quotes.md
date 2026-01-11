@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."  
-> — **Peter Drucker**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 
