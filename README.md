@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
+> — **Steve Harvey**
 
 ---
 
-_Last updated: 10 January 2026 ⏳_
+_Last updated: 11 January 2026 ⏳_
