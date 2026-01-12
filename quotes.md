@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Your happiness is what truly matters most. Do what you have to do in order to be happy."  
+> — **Brian Tracy**
 
 ---
 
