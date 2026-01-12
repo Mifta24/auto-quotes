@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction."  
-> — **Steve Harvey**
+> "Wrong turns are as important as right turns. More important, sometimes."  
+> — **Richard Bach**
 
 ---
 

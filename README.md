@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "Wrong turns are as important as right turns. More important, sometimes."  
+> — **Richard Bach**
 
 ---
 
