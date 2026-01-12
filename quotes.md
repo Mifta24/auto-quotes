@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the beginning of creation."  
-> — **George Bernard Shaw**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 
