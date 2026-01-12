@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is the beginning of creation."  
-> — **George Bernard Shaw**
+> "Action is the foundational key to all success."  
+> — **Pablo Picasso**
 
 ---
 
