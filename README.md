@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."  
-> — **Peter Drucker**
+> "Sometimes you have to shut your eyes, so you can see the real beauty."  
+> — **Kilian Jornet**
 
 ---
 
-_Last updated: 11 January 2026 ⏳_
+_Last updated: 12 January 2026 ⏳_
