@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Action is the foundational key to all success."  
-> — **Pablo Picasso**
+> "You must be willing to do what others won't do, to have what others won't have."  
+> — **Les Brown**
 
 ---
 
