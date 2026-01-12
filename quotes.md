@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must be willing to do what others won't do, to have what others won't have."  
-> — **Les Brown**
+> "The first man gets the oyster, the second man gets the shell."  
+> — **Andrew Carnegie**
 
 ---
 

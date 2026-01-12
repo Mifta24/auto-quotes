@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Action is the foundational key to all success."  
-> — **Pablo Picasso**
+> "The first man gets the oyster, the second man gets the shell."  
+> — **Andrew Carnegie**
 
 ---
 
