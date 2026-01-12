@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is love and love is life."  
-> — **Elvis Presley**
+> "Imagination is the beginning of creation."  
+> — **George Bernard Shaw**
 
 ---
 

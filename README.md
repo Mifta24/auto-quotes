@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to shut your eyes, so you can see the real beauty."  
-> — **Kilian Jornet**
+> "Imagination is the beginning of creation."  
+> — **George Bernard Shaw**
 
 ---
 
