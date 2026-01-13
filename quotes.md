@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The meaning of life is to find your gift. The purpose of life is to give it away."  
-> — **Pablo Picasso**
+> "The moment you stop to think about whether you love someone, you've already stopped loving that person forever."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
