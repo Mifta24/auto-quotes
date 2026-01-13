@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Confidence comes not from always being right but not fearing to be wrong."  
+> — **Unknown**
 
 ---
 
-_Last updated: 12 January 2026 ⏳_
+_Last updated: 13 January 2026 ⏳_

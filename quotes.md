@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your happiness is what truly matters most. Do what you have to do in order to be happy."  
-> — **Brian Tracy**
+> "Confidence comes not from always being right but not fearing to be wrong."  
+> — **Unknown**
 
 ---
 
-_Last updated: 12 January 2026 ⏳_
+_Last updated: 13 January 2026 ⏳_
