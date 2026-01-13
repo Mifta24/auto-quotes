@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you chase two rabbits, you catch none."  
-> — **Confucius**
+> "If a thing is worth doing, it is worth doing badly."  
+> — **Gilbert Chesterton**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict the future is to create it."  
-> — **Abraham Lincoln**
+> "If a thing is worth doing, it is worth doing badly."  
+> — **Gilbert Chesterton**
 
 ---
 
