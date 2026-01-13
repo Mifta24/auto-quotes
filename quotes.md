@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
-> — **Tony Robbins**
+> "Whatever your mind can conceive and believe, it can achieve."  
+> — **Napoleon Hill**
 
 ---
 
