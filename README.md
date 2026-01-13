@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The meaning of life is to find your gift. The purpose of life is to give it away."  
-> — **Pablo Picasso**
+> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
+> — **Tony Robbins**
 
 ---
 

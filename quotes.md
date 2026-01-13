@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you stop to think about whether you love someone, you've already stopped loving that person forever."  
-> — **Carlos Ruiz Zafon**
+> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives."  
+> — **Tony Robbins**
 
 ---
 
