@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence comes not from always being right but not fearing to be wrong."  
-> — **Unknown**
+> "Although the world is full of suffering, it is also full of the overcoming of it."  
+> — **Helen Keller**
 
 ---
 
