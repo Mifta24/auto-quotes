@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever your mind can conceive and believe, it can achieve."  
-> — **Napoleon Hill**
+> "If you chase two rabbits, you catch none."  
+> — **Confucius**
 
 ---
 
