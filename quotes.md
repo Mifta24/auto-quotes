@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you chase two rabbits, you catch none."  
-> — **Confucius**
+> "The best way to predict the future is to create it."  
+> — **Abraham Lincoln**
 
 ---
 
