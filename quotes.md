@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If a thing is worth doing, it is worth doing badly."  
-> — **Gilbert Chesterton**
+> "Go for it now. The future is promised to no one."  
+> — **Wayne Dyer**
 
 ---
 
