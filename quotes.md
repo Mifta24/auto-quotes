@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A memory is a beautiful thing, it's almost a desire that you miss."  
-> — **Gustave Flaubert**
+> "Walk slowly but never walk backward."  
+> — **Unknown**
 
 ---
 
