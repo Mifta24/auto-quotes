@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "You're only given a little spark of madness. You mustn't lose it."  
+> — **Robin Williams**
 
 ---
 
