@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "I learned the value of hard work by working hard. "  
+> — **Margaret Mead**
 
 ---
 
