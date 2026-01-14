@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never let your memories be greater than your dreams."  
-> — **Doug Ivester**
+> "A memory is a beautiful thing, it's almost a desire that you miss."  
+> — **Gustave Flaubert**
 
 ---
 

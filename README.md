@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "A memory is a beautiful thing, it's almost a desire that you miss."  
+> — **Gustave Flaubert**
 
 ---
 
