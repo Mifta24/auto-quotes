@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 

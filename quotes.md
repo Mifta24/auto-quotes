@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned the value of hard work by working hard. "  
-> — **Margaret Mead**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 
