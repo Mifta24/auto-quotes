@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're only given a little spark of madness. You mustn't lose it."  
-> — **Robin Williams**
+> "If you think you can do a thing or think you can't do a thing, you're right."  
+> — **Henry Ford**
 
 ---
 

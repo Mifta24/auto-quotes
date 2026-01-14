@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "If you think you can do a thing or think you can't do a thing, you're right."  
+> — **Henry Ford**
 
 ---
 
