@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A memory is a beautiful thing, it's almost a desire that you miss."  
-> — **Gustave Flaubert**
+> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
+> — **Og Mandino**
 
 ---
 
