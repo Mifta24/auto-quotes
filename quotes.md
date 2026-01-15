@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear can hold you prisoner. Hope can set you free."  
-> — **Stephen King**
+> "Be the change that you want to see in the world."  
+> — **Mahatma Gandhi**
 
 ---
 
