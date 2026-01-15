@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do you want to know who you are? Don't ask. Act! Action will delineate and define you."  
-> — **Thomas Jefferson**
+> "Don't give up the fight, Stand up for your rights."  
+> — **Bob Marley**
 
 ---
 
