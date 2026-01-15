@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the change that you want to see in the world."  
-> — **Mahatma Gandhi**
+> "Do you want to know who you are? Don't ask. Act! Action will delineate and define you."  
+> — **Thomas Jefferson**
 
 ---
 
