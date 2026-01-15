@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are ever the smartest person in the room, you are in the wrong room."  
-> — **C. Sean McGee**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 
