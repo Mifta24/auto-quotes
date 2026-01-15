@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
-> — **Og Mandino**
+> "If you are ever the smartest person in the room, you are in the wrong room."  
+> — **C. Sean McGee**
 
 ---
 
-_Last updated: 14 January 2026 ⏳_
+_Last updated: 15 January 2026 ⏳_
