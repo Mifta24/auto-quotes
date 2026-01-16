@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you look for perfection, you'll never be content."  
-> — **Leo Tolstoy**
+> "We must have strong minds, ready to accept facts as they are."  
+> — **Harry S. Truman**
 
 ---
 
