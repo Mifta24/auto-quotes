@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want things to be different, perhaps the answer is to become different yourself."  
-> — **Norman Vincent Peale**
+> "What lies behind us and what lies before us are tiny matters compared to what lies within us."  
+> — **Ralph Waldo Emerson**
 
 ---
 
