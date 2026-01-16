@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What lies behind us and what lies before us are tiny matters compared to what lies within us."  
-> — **Ralph Waldo Emerson**
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
+> — **Criss Jami**
 
 ---
 

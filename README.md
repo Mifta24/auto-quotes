@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want things to be different, perhaps the answer is to become different yourself."  
-> — **Norman Vincent Peale**
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
+> — **Criss Jami**
 
 ---
 
