@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
-> — **Criss Jami**
+> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
+> — **Joyce Meyer**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no accidents... there is only some purpose that we haven't yet understood."  
-> — **Deepak Chopra**
+> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
+> — **Joyce Meyer**
 
 ---
 
