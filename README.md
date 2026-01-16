@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
-> — **Joyce Meyer**
+> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
+> — **Shunryu Suzuki**
 
 ---
 

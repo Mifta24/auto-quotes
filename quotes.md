@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."  
-> — **Barack Obama**
+> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
+> — **Shunryu Suzuki**
 
 ---
 
