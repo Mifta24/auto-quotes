@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you look for perfection, you'll never be content."  
-> — **Leo Tolstoy**
+> "If you want things to be different, perhaps the answer is to become different yourself."  
+> — **Norman Vincent Peale**
 
 ---
 
