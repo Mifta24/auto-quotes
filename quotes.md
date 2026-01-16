@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
-> — **Criss Jami**
+> "There are no accidents... there is only some purpose that we haven't yet understood."  
+> — **Deepak Chopra**
 
 ---
 
