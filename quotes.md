@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
-> — **Joyce Meyer**
+> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."  
+> — **Barack Obama**
 
 ---
 
