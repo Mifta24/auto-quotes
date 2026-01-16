@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
-> — **Shunryu Suzuki**
+> "Your happiness is what truly matters most. Do what you have to do in order to be happy."  
+> — **Brian Tracy**
 
 ---
 
