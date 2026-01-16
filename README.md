@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life does not get better by chance, it gets better by change."  
-> — **Jim Rohn**
+> "If you look for perfection, you'll never be content."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 15 January 2026 ⏳_
+_Last updated: 16 January 2026 ⏳_

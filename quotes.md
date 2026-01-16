@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We live only now. Everything else is either passed or is unknown."  
-> — **Marcus Aurelius**
+> "If you look for perfection, you'll never be content."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 15 January 2026 ⏳_
+_Last updated: 16 January 2026 ⏳_
