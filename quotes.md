@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best answer to anger is silence."  
-> — **Marcus Aurelius**
+> "The cost of leadership is self-interest."  
+> — **Simon Sinek**
 
 ---
 
