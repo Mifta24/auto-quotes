@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you can't make them see the light, make them feel the heat."  
-> — **Ronald Reagan**
+> "The soul is neither born, and nor does it die."  
+> — **Bhagavad Gita**
 
 ---
 
