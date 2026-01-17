@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
-> — **Maxime Lagace**
+> "Growing up is losing some illusions, in order to acquire others."  
+> — **Virginia Woolf**
 
 ---
 
