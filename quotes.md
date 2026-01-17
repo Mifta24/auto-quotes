@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Chop your own wood and it will warm you twice. "  
-> — **Henry Ford**
+> "When you can't make them see the light, make them feel the heat."  
+> — **Ronald Reagan**
 
 ---
 

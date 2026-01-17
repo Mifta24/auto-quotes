@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Choose to be optimistic, it feels better."  
-> — **Dalai Lama**
+> "When you can't make them see the light, make them feel the heat."  
+> — **Ronald Reagan**
 
 ---
 
