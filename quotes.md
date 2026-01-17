@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you can't make them see the light, make them feel the heat."  
-> — **Ronald Reagan**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
