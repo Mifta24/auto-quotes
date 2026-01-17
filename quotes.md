@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul is neither born, and nor does it die."  
-> — **Bhagavad Gita**
+> "It is better to light a single candle than to curse the darkness."  
+> — **Eleanor Roosevelt**
 
 ---
 
