@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your happiness is what truly matters most. Do what you have to do in order to be happy."  
-> — **Brian Tracy**
+> "The best answer to anger is silence."  
+> — **Marcus Aurelius**
 
 ---
 
-_Last updated: 16 January 2026 ⏳_
+_Last updated: 17 January 2026 ⏳_
