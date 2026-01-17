@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Choose to be optimistic, it feels better."  
-> — **Dalai Lama**
+> "Chop your own wood and it will warm you twice. "  
+> — **Henry Ford**
 
 ---
 
