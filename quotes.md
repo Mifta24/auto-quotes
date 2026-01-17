@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growing up is losing some illusions, in order to acquire others."  
-> — **Virginia Woolf**
+> "Choose to be optimistic, it feels better."  
+> — **Dalai Lama**
 
 ---
 

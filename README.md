@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
-> — **Maxime Lagace**
+> "Choose to be optimistic, it feels better."  
+> — **Dalai Lama**
 
 ---
 
