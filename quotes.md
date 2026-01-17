@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The cost of leadership is self-interest."  
-> — **Simon Sinek**
+> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
+> — **Maxime Lagace**
 
 ---
 
