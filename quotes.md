@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must be willing to do what others won't do, to have what others won't have."  
-> — **Les Brown**
+> "Sometimes adversity is what you need to face in order to become successful."  
+> — **Zig Ziglar**
 
 ---
 
