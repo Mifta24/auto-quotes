@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The universe doesn't allow perfection."  
-> — **Stephen Hawking**
+> "The Truth is realized in an instant; the Act is practiced step by step."  
+> — **Seungsahn**
 
 ---
 
