@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees."  
-> — **Amelia Earhart**
+> "The universe doesn't allow perfection."  
+> — **Stephen Hawking**
 
 ---
 
