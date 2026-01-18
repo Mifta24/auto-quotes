@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
-> — **Brian Tracy**
+> "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants."  
+> — **Stephen King**
 
 ---
 
