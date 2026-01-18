@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freeing oneself from words is liberation. "  
-> — **Bodhidharma**
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
+> — **Criss Jami**
 
 ---
 
