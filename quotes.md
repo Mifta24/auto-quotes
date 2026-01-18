@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed."  
-> — **Lily Tomlin**
+> "A single act of kindness throws out roots in all directions, and the roots spring up and make new trees."  
+> — **Amelia Earhart**
 
 ---
 
