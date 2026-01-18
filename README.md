@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The universe doesn't allow perfection."  
-> — **Stephen Hawking**
+> "You must be willing to do what others won't do, to have what others won't have."  
+> — **Les Brown**
 
 ---
 

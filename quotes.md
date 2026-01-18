@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Truth is realized in an instant; the Act is practiced step by step."  
-> — **Seungsahn**
+> "You must be willing to do what others won't do, to have what others won't have."  
+> — **Les Brown**
 
 ---
 
