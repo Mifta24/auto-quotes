@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An intelligence test sometimes shows a man how smart he would have been not to have taken it."  
-> — **Laurence J. Peter**
+> "Whatever you think the world is withholding from you, you are withholding from the world."  
+> — **Eckhart Tolle**
 
 ---
 
