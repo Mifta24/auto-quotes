@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "Like it or not, this moment is all we really have to work with."  
+> — **Jon Kabat-Zinn**
 
 ---
 
