@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime."  
-> — **Steve Maraboli**
+> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
+> — **Aristotle**
 
 ---
 
