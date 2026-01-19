@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Like it or not, this moment is all we really have to work with."  
-> — **Jon Kabat-Zinn**
+> "An intelligence test sometimes shows a man how smart he would have been not to have taken it."  
+> — **Laurence J. Peter**
 
 ---
 
