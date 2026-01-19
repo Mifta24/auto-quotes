@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes adversity is what you need to face in order to become successful."  
+> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
 > — **Zig Ziglar**
 
 ---
 
-_Last updated: 18 January 2026 ⏳_
+_Last updated: 19 January 2026 ⏳_
