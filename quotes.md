@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever you think the world is withholding from you, you are withholding from the world."  
-> — **Eckhart Tolle**
+> "There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction."  
+> — **G.I. Gurdjieff**
 
 ---
 
