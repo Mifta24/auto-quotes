@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
-> — **Aristotle**
+> "Success is getting what you want, happiness is wanting what you get."  
+> — **W.P. Kinsella**
 
 ---
 
