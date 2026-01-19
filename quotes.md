@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "Big people don't make people feel small."  
+> — **Robin Sharma**
 
 ---
 
