@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Like it or not, this moment is all we really have to work with."  
-> — **Jon Kabat-Zinn**
+> "Life is one long process of getting tired."  
+> — **Samuel Butler**
 
 ---
 
