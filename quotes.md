@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
-> — **Mark Twain**
+> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
+> — **Steve Harvey**
 
 ---
 
