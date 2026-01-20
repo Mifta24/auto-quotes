@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is what you have before you understand the problem."  
-> — **Woody Allen**
+> "Realistic people do not accomplish extraordinary things."  
+> — **John Eliot**
 
 ---
 
