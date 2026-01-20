@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being a good example is the best form of service."  
-> — **Sathya Sai Baba**
+> "All we have to decide is what to do with the time that is given to us."  
+> — **J.R.R. Tolkien**
 
 ---
 
