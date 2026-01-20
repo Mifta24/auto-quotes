@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All religions, arts and sciences are branches of the same tree. "  
-> — **Albert Einstein**
+> "Confidence is what you have before you understand the problem."  
+> — **Woody Allen**
 
 ---
 
