@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being a good example is the best form of service."  
-> — **Sathya Sai Baba**
+> "There are no accidents... there is only some purpose that we haven't yet understood."  
+> — **Deepak Chopra**
 
 ---
 
