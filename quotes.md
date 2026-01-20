@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you can imagine is real."  
-> — **Pablo Picasso**
+> "If your mind is empty, it is always ready for anything, it is open to everything."  
+> — **Shunryu Suzuki**
 
 ---
 
