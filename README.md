@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you can imagine is real."  
-> — **Pablo Picasso**
+> "Being a good example is the best form of service."  
+> — **Sathya Sai Baba**
 
 ---
 

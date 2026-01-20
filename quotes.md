@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If your mind is empty, it is always ready for anything, it is open to everything."  
-> — **Shunryu Suzuki**
+> "Being a good example is the best form of service."  
+> — **Sathya Sai Baba**
 
 ---
 
