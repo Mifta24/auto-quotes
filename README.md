@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
-> — **Aristotle**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 19 January 2026 ⏳_
+_Last updated: 20 January 2026 ⏳_

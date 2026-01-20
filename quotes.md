@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is getting what you want, happiness is wanting what you get."  
-> — **W.P. Kinsella**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 19 January 2026 ⏳_
+_Last updated: 20 January 2026 ⏳_
