@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort."  
-> — **Steve Harvey**
+> "My guiding principle is this: Guilt is never to be doubted. "  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 20 January 2026 ⏳_
+_Last updated: 21 January 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
-> — **Mark Twain**
+> "My guiding principle is this: Guilt is never to be doubted. "  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 20 January 2026 ⏳_
+_Last updated: 21 January 2026 ⏳_
