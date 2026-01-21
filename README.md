@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
-> — **Roy T. Bennett**
+> "In the middle of chaos lies opportunity.  "  
+> — **Bruce Lee**
 
 ---
 
