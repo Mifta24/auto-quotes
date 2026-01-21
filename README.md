@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the middle of chaos lies opportunity.  "  
-> — **Bruce Lee**
+> "Failure is simply the opportunity to begin again, this time more intelligently."  
+> — **Henry Ford**
 
 ---
 
