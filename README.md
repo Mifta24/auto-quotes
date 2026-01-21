@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is simply the opportunity to begin again, this time more intelligently."  
-> — **Henry Ford**
+> "Experience is a comb which nature gives us when we are bald. "  
+> — **Chinese Proverb**
 
 ---
 
