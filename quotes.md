@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change your thoughts and you change your world."  
-> — **Norman Vincent Peale**
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
+> — **Roy T. Bennett**
 
 ---
 
