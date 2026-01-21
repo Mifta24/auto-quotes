@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My guiding principle is this: Guilt is never to be doubted. "  
-> — **Franz Kafka**
+> "Change your thoughts and you change your world."  
+> — **Norman Vincent Peale**
 
 ---
 
