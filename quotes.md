@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the middle of chaos lies opportunity.  "  
-> — **Bruce Lee**
+> "There's more to life than being a passenger."  
+> — **Amelia Earhart**
 
 ---
 
