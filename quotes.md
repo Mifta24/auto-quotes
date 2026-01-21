@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
-> — **Roy T. Bennett**
+> "The only thing new in the world is the history you do not know."  
+> — **Harry S. Truman**
 
 ---
 
