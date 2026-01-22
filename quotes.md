@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "Be confident, not certain."  
+> — **Eleanor Roosevelt**
 
 ---
 
