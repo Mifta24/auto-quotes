@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "When your intuition is strong, follow it."  
+> — **Lolly Daskal**
 
 ---
 
