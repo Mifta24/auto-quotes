@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Your setback is just a setup for a comeback."  
+> — **Steve Harvey**
 
 ---
 
