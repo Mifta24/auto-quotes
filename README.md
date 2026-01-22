@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Experience is a comb which nature gives us when we are bald. "  
-> — **Chinese Proverb**
+> "Keep others in suspense, cultivate an air of unpredictability."  
+> — **Robert Greene**
 
 ---
 
-_Last updated: 21 January 2026 ⏳_
+_Last updated: 22 January 2026 ⏳_

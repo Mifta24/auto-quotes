@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People don't care how much you know until they know how much you care."  
-> — **Theodore Roosevelt**
+> "Keep others in suspense, cultivate an air of unpredictability."  
+> — **Robert Greene**
 
 ---
 
-_Last updated: 21 January 2026 ⏳_
+_Last updated: 22 January 2026 ⏳_
