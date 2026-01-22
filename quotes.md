@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Riches don't make a man rich, they only make him busier."  
-> — **Christopher Columbus**
+> "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control."  
+> — **Maxime Lagace**
 
 ---
 

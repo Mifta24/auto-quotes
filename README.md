@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your setback is just a setup for a comeback."  
-> — **Steve Harvey**
+> "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control."  
+> — **Maxime Lagace**
 
 ---
 
