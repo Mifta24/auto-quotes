@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your setback is just a setup for a comeback."  
-> — **Steve Harvey**
+> "Riches don't make a man rich, they only make him busier."  
+> — **Christopher Columbus**
 
 ---
 
