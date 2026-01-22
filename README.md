@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 

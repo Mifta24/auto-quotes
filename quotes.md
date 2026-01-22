@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When your intuition is strong, follow it."  
-> — **Lolly Daskal**
+> "Remember to look up at the stars and not down at your feet."  
+> — **Stephen Hawking**
 
 ---
 
