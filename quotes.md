@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
+> "Time is a game played beautifully by children."  
 > — **Heraclitus**
 
 ---
