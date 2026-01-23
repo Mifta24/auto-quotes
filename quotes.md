@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
-> — **Rumi**
+> "From a certain point onward there is no longer any turning back. That is the point that must be reached."  
+> — **Franz Kafka**
 
 ---
 
