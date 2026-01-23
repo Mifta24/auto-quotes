@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who can, does."  
-> — **George Bernard Shaw**
+> "The more acquaintances you have, the less you know them."  
+> — **Chinese Proverb**
 
 ---
 
