@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From a certain point onward there is no longer any turning back. That is the point that must be reached."  
-> — **Franz Kafka**
+> "Don't let making a living prevent you from making a life."  
+> — **John Wooden**
 
 ---
 
