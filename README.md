@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "Success is going from failure to failure without losing your enthusiasm"  
+> — **Winston Churchill**
 
 ---
 
-_Last updated: 22 January 2026 ⏳_
+_Last updated: 23 January 2026 ⏳_
