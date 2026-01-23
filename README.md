@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything flows, nothing stands still."  
-> — **Heraclitus**
+> "He who can, does."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time is a game played beautifully by children."  
-> — **Heraclitus**
+> "He who can, does."  
+> — **George Bernard Shaw**
 
 ---
 
