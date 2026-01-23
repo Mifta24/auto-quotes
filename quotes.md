@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The final mystery is oneself."  
-> — **Oscar Wilde**
+> "Everything flows, nothing stands still."  
+> — **Heraclitus**
 
 ---
 
