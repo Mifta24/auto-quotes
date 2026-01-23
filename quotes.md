@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From a certain point onward there is no longer any turning back. That is the point that must be reached."  
-> — **Franz Kafka**
+> "Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some."  
+> — **Charles Dickens**
 
 ---
 
