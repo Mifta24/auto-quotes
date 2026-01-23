@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let making a living prevent you from making a life."  
-> — **John Wooden**
+> "The final mystery is oneself."  
+> — **Oscar Wilde**
 
 ---
 
