@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
-> — **Benjamin Franklin**
+> "The world would go on even without you. Don't take yourself so seriously."  
+> — **Norman Vincent Peale**
 
 ---
 
