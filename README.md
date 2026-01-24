@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream."  
-> — **Arnold Schwarzenegger**
+> "It is useless to meet revenge with revenge; it will heal nothing."  
+> — **J.R.R. Tolkien**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
-> — **Mark Twain**
+> "It is useless to meet revenge with revenge; it will heal nothing."  
+> — **J.R.R. Tolkien**
 
 ---
 
