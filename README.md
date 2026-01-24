@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever happens always happens on time."  
-> — **Zen Proverb**
+> "It doesn't matter how slow you go, as long as you don't stop."  
+> — **Confucius**
 
 ---
 
