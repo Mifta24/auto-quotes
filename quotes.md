@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just living is not enough... one must have sunshine, freedom, and a little flower. "  
-> — **Hans Christian Andersen**
+> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
+> — **Benjamin Franklin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is useless to meet revenge with revenge; it will heal nothing."  
-> — **J.R.R. Tolkien**
+> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
+> — **Benjamin Franklin**
 
 ---
 
