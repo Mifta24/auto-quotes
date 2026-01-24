@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is useless to meet revenge with revenge; it will heal nothing."  
-> — **J.R.R. Tolkien**
+> "Just living is not enough... one must have sunshine, freedom, and a little flower. "  
+> — **Hans Christian Andersen**
 
 ---
 
