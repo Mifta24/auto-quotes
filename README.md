@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "He who can, does."  
-> — **George Bernard Shaw**
+> "Whatever happens always happens on time."  
+> — **Zen Proverb**
 
 ---
 
-_Last updated: 23 January 2026 ⏳_
+_Last updated: 24 January 2026 ⏳_
