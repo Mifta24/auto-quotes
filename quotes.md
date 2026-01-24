@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter how slow you go, as long as you don't stop."  
-> — **Confucius**
+> "Integrity is the ability to stand by an idea."  
+> — **Ayn Rand**
 
 ---
 
