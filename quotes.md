@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you only knew the magnificence of the 3, 6, and 9, then you would have a key to the universe."  
-> — **Nikola Tesla**
+> "A man who dares to waste one hour of time has not discovered the value of life."  
+> — **Charles Darwin**
 
 ---
 
