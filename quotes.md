@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."  
-> — **Osho**
+> "The best way to find yourself is to lose yourself in the service of others."  
+> — **Mahatma Gandhi**
 
 ---
 
