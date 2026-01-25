@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
-> — **James Matthew Barrie**
+> "If you're waiting until you feel talented enough to make it, you'll never make it."  
+> — **Criss Jami**
 
 ---
 

@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
+> "If you're waiting until you feel talented enough to make it, you'll never make it."  
 > — **Criss Jami**
 
 ---
