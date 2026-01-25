@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man who dares to waste one hour of time has not discovered the value of life."  
-> — **Charles Darwin**
+> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."  
+> — **Osho**
 
 ---
 

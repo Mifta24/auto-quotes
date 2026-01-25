@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you only knew the magnificence of the 3, 6, and 9, then you would have a key to the universe."  
-> — **Nikola Tesla**
+> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."  
+> — **Osho**
 
 ---
 
