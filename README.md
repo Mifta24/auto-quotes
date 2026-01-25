@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're waiting until you feel talented enough to make it, you'll never make it."  
-> — **Criss Jami**
+> "If you only knew the magnificence of the 3, 6, and 9, then you would have a key to the universe."  
+> — **Nikola Tesla**
 
 ---
 
