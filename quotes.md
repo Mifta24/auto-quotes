@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to find yourself is to lose yourself in the service of others."  
-> — **Mahatma Gandhi**
+> "Success is built sequentially. It's one thing at a time."  
+> — **Gary Keller**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."  
-> — **Osho**
+> "Success is built sequentially. It's one thing at a time."  
+> — **Gary Keller**
 
 ---
 
