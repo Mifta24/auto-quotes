@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
-> — **Criss Jami**
+> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
+> — **James Matthew Barrie**
 
 ---
 
