@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is built sequentially. It's one thing at a time."  
-> — **Gary Keller**
+> "As you love yourself, life loves you back."  
+> — **Kamal Ravikant**
 
 ---
 
