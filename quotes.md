@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may think I'm small, but I have a universe inside my mind."  
-> — **Yoko Ono**
+> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
+> — **Jack London**
 
 ---
 
