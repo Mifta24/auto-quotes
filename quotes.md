@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "To lose your temper is only useful once a year."  
+> — **Colin R. Davis**
 
 ---
 

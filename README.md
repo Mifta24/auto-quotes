@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One day, in retrospect, the years of struggle will strike you as the most beautiful."  
-> — **Sigmund Freud**
+> "To lose your temper is only useful once a year."  
+> — **Colin R. Davis**
 
 ---
 
