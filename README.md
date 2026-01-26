@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is built sequentially. It's one thing at a time."  
-> — **Gary Keller**
+> "One day, in retrospect, the years of struggle will strike you as the most beautiful."  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 25 January 2026 ⏳_
+_Last updated: 26 January 2026 ⏳_
