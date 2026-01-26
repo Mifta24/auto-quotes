@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The merit of all things lies in their difficulty."  
-> — **Alexandre Dumas**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
+> — **Conrad Hilton**
 
 ---
 
