@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lose your temper is only useful once a year."  
-> — **Colin R. Davis**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 
