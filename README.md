@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lose your temper is only useful once a year."  
-> — **Colin R. Davis**
+> "You may think I'm small, but I have a universe inside my mind."  
+> — **Yoko Ono**
 
 ---
 

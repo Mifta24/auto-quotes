@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "You may think I'm small, but I have a universe inside my mind."  
+> — **Yoko Ono**
 
 ---
 
