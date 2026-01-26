@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The merit of all things lies in their difficulty."  
-> — **Alexandre Dumas**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 

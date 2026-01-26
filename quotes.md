@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit."  
-> — **Conrad Hilton**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 
