@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One day, in retrospect, the years of struggle will strike you as the most beautiful."  
-> — **Sigmund Freud**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
