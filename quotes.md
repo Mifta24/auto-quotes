@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. "  
-> — **Jack London**
+> "The merit of all things lies in their difficulty."  
+> — **Alexandre Dumas**
 
 ---
 
