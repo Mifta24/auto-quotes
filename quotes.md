@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing ever goes away until it has taught us what we need to know."  
-> — **Pema Chodron**
+> "The roots of education are bitter, but the fruit is sweet."  
+> — **Aristotle**
 
 ---
 
