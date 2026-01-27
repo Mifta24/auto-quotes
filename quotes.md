@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
+> — **Lolly Daskal**
 
 ---
 
