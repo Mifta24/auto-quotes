@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "Turn the pain into power."  
+> — **Unknown**
 
 ---
 
