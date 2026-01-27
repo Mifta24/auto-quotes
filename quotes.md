@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  "  
-> — **Wayne Dyer**
+> "There is no limit to the amount of good you can do if you don't care who gets the credit."  
+> — **Ronald Reagan**
 
 ---
 
