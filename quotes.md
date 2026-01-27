@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
-> — **Lolly Daskal**
+> "Life is a constant series of opportunities."  
+> — **Ming-Dao Deng**
 
 ---
 
