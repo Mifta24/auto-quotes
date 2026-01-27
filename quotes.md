@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn the pain into power."  
-> — **Unknown**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  "  
+> — **Wayne Dyer**
 
 ---
 
