@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know."  
-> — **Colin Powell**
+> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
+> — **Lao Tzu**
 
 ---
 

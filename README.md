@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.  "  
-> — **Jack Kerouac**
+> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
+> — **Lao Tzu**
 
 ---
 
