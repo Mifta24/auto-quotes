@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no limit to the amount of good you can do if you don't care who gets the credit."  
-> — **Ronald Reagan**
+> "Don't be afraid to go slowly. Be afraid of stopping."  
+> — **Zen Proverb**
 
 ---
 
