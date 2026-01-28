@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect was invented to cover the empty place where love should be."  
-> — **Leo Tolstoy**
+> "I hear and I forget. I see and I remember. I do and I understand. "  
+> — **Confucius**
 
 ---
 
