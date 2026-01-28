@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect was invented to cover the empty place where love should be."  
-> — **Leo Tolstoy**
+> "Don't try to be young. Just open your mind. Stay interested in stuff."  
+> — **Betty White**
 
 ---
 
