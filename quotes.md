@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let anyone define you. You define yourself."  
-> — **Billie Jean King**
+> "Sometimes letting things go is an act of far greater power than defending or hanging on."  
+> — **Eckhart Tolle**
 
 ---
 
