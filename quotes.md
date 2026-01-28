@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
-> — **Eleanor Roosevelt**
+> "Don't let anyone define you. You define yourself."  
+> — **Billie Jean King**
 
 ---
 
