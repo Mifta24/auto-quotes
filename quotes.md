@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Short cuts make long delays."  
-> — **J.R.R. Tolkien**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 

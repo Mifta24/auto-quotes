@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I hear and I forget. I see and I remember. I do and I understand. "  
-> — **Confucius**
+> "You can do two things at once, but you can't focus effectively on two things at once."  
+> — **Gary Keller**
 
 ---
 
