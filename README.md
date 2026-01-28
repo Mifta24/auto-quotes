@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
-> — **Lolly Daskal**
+> "Respect was invented to cover the empty place where love should be."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 27 January 2026 ⏳_
+_Last updated: 28 January 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is a constant series of opportunities."  
-> — **Ming-Dao Deng**
+> "Respect was invented to cover the empty place where love should be."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 27 January 2026 ⏳_
+_Last updated: 28 January 2026 ⏳_
