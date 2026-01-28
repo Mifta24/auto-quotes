@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can do two things at once, but you can't focus effectively on two things at once."  
-> — **Gary Keller**
+> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
+> — **Eleanor Roosevelt**
 
 ---
 

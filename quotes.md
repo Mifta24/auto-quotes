@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
-> — **Maxime Lagace**
+> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
+> — **Eleanor Roosevelt**
 
 ---
 
