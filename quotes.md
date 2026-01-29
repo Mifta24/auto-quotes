@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot change anything unless we accept it."  
-> — **Carl Jung**
+> "The man who removes a mountain begins by carrying away small stones."  
+> — **William Faulkner**
 
 ---
 
