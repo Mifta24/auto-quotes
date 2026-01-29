@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "No one is useless in this world who lightens the burdens of another."  
+> — **Charles Dickens**
 
 ---
 
