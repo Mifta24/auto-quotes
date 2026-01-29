@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "To succeed takes more than the desire to win. It also takes the acceptance that we could fail."  
+> — **Simon Sinek**
 
 ---
 

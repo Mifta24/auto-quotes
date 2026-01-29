@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one is useless in this world who lightens the burdens of another."  
-> — **Charles Dickens**
+> "To succeed takes more than the desire to win. It also takes the acceptance that we could fail."  
+> — **Simon Sinek**
 
 ---
 
