@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
-> — **Bhagavad Gita**
+> "Happiness is when what you think, what you say, and what you do are in harmony."  
+> — **Mahatma Gandhi**
 
 ---
 
