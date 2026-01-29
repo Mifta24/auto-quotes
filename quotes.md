@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a traveling to the edge of knowledge, then a leap taken."  
-> — **D. H. Lawrence**
+> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
+> — **Bhagavad Gita**
 
 ---
 

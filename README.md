@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To succeed takes more than the desire to win. It also takes the acceptance that we could fail."  
-> — **Simon Sinek**
+> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
+> — **Bhagavad Gita**
 
 ---
 
