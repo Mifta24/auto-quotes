@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To succeed takes more than the desire to win. It also takes the acceptance that we could fail."  
-> — **Simon Sinek**
+> "Life is a traveling to the edge of knowledge, then a leap taken."  
+> — **D. H. Lawrence**
 
 ---
 
