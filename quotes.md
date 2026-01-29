@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The man who removes a mountain begins by carrying away small stones."  
-> — **William Faulkner**
+> "I begin with an idea and then it becomes something else."  
+> — **Pablo Picasso**
 
 ---
 

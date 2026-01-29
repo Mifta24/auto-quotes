@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot change anything unless we accept it."  
-> — **Carl Jung**
+> "I begin with an idea and then it becomes something else."  
+> — **Pablo Picasso**
 
 ---
 
