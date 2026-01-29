@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes letting things go is an act of far greater power than defending or hanging on."  
-> — **Eckhart Tolle**
+> "We cannot change anything unless we accept it."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 28 January 2026 ⏳_
+_Last updated: 29 January 2026 ⏳_

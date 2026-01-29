@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You don't get in life what you want; you get in life what you are."  
-> — **Les Brown**
+> "We cannot change anything unless we accept it."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 28 January 2026 ⏳_
+_Last updated: 29 January 2026 ⏳_
