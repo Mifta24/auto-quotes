@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
-> — **Bhagavad Gita**
+> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
+> — **Bruce Lee**
 
 ---
 
