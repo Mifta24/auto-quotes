@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "  
-> — **Paramahansa Yogananda**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The harder you work, the harder it is to surrender."  
-> — **Vince Lombardi**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 
