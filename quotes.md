@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Study logic and math, because once you've mastered them, you won't fear any book."  
-> — **Naval Ravikant**
+> "Death and life have their determined appointments; riches and honors depend upon heaven. "  
+> — **Confucius**
 
 ---
 

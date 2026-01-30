@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the fearless attitude of a hero and the loving heart of a child."  
-> — **Soyen Shaku**
+> "Death and life have their determined appointments; riches and honors depend upon heaven. "  
+> — **Confucius**
 
 ---
 
