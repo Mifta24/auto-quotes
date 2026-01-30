@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Weeds are flowers too, once you get to know them."  
-> — **A.A. Milne**
+> "Always focus on the front windshield and not the rear view mirror."  
+> — **Colin Powell**
 
 ---
 

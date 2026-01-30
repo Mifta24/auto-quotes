@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to discover what another has discovered before."  
-> — **Christopher Columbus**
+> "Always focus on the front windshield and not the rear view mirror."  
+> — **Colin Powell**
 
 ---
 
