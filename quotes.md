@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If I love myself I love you. If I love you I love myself."  
-> — **Rumi**
+> "Have the fearless attitude of a hero and the loving heart of a child."  
+> — **Soyen Shaku**
 
 ---
 
-_Last updated: 29 January 2026 ⏳_
+_Last updated: 30 January 2026 ⏳_

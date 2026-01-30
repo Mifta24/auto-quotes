@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A wise man can learn more from a foolish question than a fool can learn from a wise answer.  "  
-> — **Bruce Lee**
+> "Have the fearless attitude of a hero and the loving heart of a child."  
+> — **Soyen Shaku**
 
 ---
 
-_Last updated: 29 January 2026 ⏳_
+_Last updated: 30 January 2026 ⏳_
