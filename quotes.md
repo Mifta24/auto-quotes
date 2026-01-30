@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death and life have their determined appointments; riches and honors depend upon heaven. "  
-> — **Confucius**
+> "In the practice of tolerance, one's enemy is the best teacher."  
+> — **Dalai Lama**
 
 ---
 
