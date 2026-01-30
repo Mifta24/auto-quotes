@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to discover what another has discovered before."  
-> — **Christopher Columbus**
+> "Weeds are flowers too, once you get to know them."  
+> — **A.A. Milne**
 
 ---
 
