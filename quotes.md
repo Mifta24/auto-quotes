@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the practice of tolerance, one's enemy is the best teacher."  
-> — **Dalai Lama**
+> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "  
+> — **Paramahansa Yogananda**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Death and life have their determined appointments; riches and honors depend upon heaven. "  
-> — **Confucius**
+> "Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. "  
+> — **Paramahansa Yogananda**
 
 ---
 
