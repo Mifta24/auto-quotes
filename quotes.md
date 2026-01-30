@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always focus on the front windshield and not the rear view mirror."  
-> — **Colin Powell**
+> "Anyone who has ever made anything of importance was disciplined."  
+> — **Andrew Hendrixson**
 
 ---
 
