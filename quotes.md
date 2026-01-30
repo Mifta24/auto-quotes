@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the fearless attitude of a hero and the loving heart of a child."  
-> — **Soyen Shaku**
+> "Study logic and math, because once you've mastered them, you won't fear any book."  
+> — **Naval Ravikant**
 
 ---
 
