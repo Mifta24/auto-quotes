@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "Optimism, when applied to your life, develops strength and peace within you."  
+> — **Norman Vincent Peale**
 
 ---
 
