@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Optimism, when applied to your life, develops strength and peace within you."  
-> — **Norman Vincent Peale**
+> "If you want work well done, select a busy man; the other kind has no time."  
+> — **Elbert Hubbard**
 
 ---
 
