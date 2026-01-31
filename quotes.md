@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You already have every characteristic necessary for success if you recognize, claim, develop and use them."  
-> — **Zig Ziglar**
+> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
+> — **Mark Twain**
 
 ---
 
