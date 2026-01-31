@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not a goal...it's a by-product of a life well lived."  
-> — **Eleanor Roosevelt**
+> "It is not uncommon for people to spend their whole life waiting to start living."  
+> — **Eckhart Tolle**
 
 ---
 
