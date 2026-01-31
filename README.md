@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Optimism, when applied to your life, develops strength and peace within you."  
+> "If you want things to be different, perhaps the answer is to become different yourself."  
 > — **Norman Vincent Peale**
 
 ---

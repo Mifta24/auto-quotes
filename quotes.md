@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want work well done, select a busy man; the other kind has no time."  
-> — **Elbert Hubbard**
+> "If you want things to be different, perhaps the answer is to become different yourself."  
+> — **Norman Vincent Peale**
 
 ---
 
