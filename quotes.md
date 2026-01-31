@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
