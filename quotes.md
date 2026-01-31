@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want things to be different, perhaps the answer is to become different yourself."  
-> — **Norman Vincent Peale**
+> "If you want to know what God thinks about money just look at the people He gives it to."  
+> — **Alexander Pope**
 
 ---
 
