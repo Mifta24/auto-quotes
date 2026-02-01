@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live, travel, adventure, bless, and don't be sorry.  "  
-> — **Jack Kerouac**
+> "You are today where your thoughts have brought you."  
+> — **James Allen**
 
 ---
 
