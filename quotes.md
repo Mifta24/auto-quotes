@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trusting our intuition often saves us from disaster. "  
-> — **Anne Wilson Schaef**
+> "What keeps life fascinating is the constant creativity of the soul."  
+> — **Deepak Chopra**
 
 ---
 
