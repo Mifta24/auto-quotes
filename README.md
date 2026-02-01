@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real growth comes through intense, difficult, and challenging situations."  
-> — **Kamal Ravikant**
+> "Trusting our intuition often saves us from disaster. "  
+> — **Anne Wilson Schaef**
 
 ---
 
