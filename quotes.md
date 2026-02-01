@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't try to steer the river."  
-> — **Deepak Chopra**
+> "Don't settle, and don't struggle."  
+> — **Naval Ravikant**
 
 ---
 
