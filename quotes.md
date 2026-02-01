@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Real growth comes through intense, difficult, and challenging situations."  
+> "No matter how smart we may think we are, no matter how committed we are to our truth, we can lose our way."  
 > — **Kamal Ravikant**
 
 ---
