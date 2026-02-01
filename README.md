@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't try to steer the river."  
-> — **Deepak Chopra**
+> "Live, travel, adventure, bless, and don't be sorry.  "  
+> — **Jack Kerouac**
 
 ---
 

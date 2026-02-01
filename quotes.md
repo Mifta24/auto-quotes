@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't settle, and don't struggle."  
-> — **Naval Ravikant**
+> "Live, travel, adventure, bless, and don't be sorry.  "  
+> — **Jack Kerouac**
 
 ---
 
