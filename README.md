@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "What keeps life fascinating is the constant creativity of the soul."  
+> "Don't try to steer the river."  
 > — **Deepak Chopra**
 
 ---
