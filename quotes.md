@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You don't have to control your thoughts; you just have to stop letting them control you."  
-> — **Dan Millman**
+> "Real growth comes through intense, difficult, and challenging situations."  
+> — **Kamal Ravikant**
 
 ---
 
-_Last updated: 31 January 2026 ⏳_
+_Last updated: 01 February 2026 ⏳_
