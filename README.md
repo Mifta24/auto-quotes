@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mastering others is strength, mastering yourself is true power."  
-> — **Lao Tzu**
+> "The difference between winning and losing is most often not quitting."  
+> — **Walt Disney**
 
 ---
 

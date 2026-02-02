@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The positive thinker sees the invisible, feels the intangible, and achieves the impossible."  
-> — **Winston Churchill**
+> "The difference between winning and losing is most often not quitting."  
+> — **Walt Disney**
 
 ---
 
