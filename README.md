@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Live, travel, adventure, bless, and don't be sorry.  "  
-> — **Jack Kerouac**
+> "The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes."  
+> — **Voltaire**
 
 ---
 
-_Last updated: 01 February 2026 ⏳_
+_Last updated: 02 February 2026 ⏳_
