@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between winning and losing is most often not quitting."  
-> — **Walt Disney**
+> "Follow your heart, listen to your inner voice, stop caring about what others think."  
+> — **Roy T. Bennett**
 
 ---
 
