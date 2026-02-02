@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it's not broken, tinker with it till you find out how it works."  
-> — **Bob Proctor**
+> "Experience is simply the name we give our mistakes. "  
+> — **Oscar Wilde**
 
 ---
 
