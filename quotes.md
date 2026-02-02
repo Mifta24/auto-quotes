@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes."  
-> — **Voltaire**
+> "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace."  
+> — **Morihei Ueshiba**
 
 ---
 
