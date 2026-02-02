@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes."  
-> — **Voltaire**
+> "If it's not broken, tinker with it till you find out how it works."  
+> — **Bob Proctor**
 
 ---
 
