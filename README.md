@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it's not broken, tinker with it till you find out how it works."  
-> — **Bob Proctor**
+> "Mastering others is strength, mastering yourself is true power."  
+> — **Lao Tzu**
 
 ---
 

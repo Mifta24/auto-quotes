@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Experience is simply the name we give our mistakes. "  
-> — **Oscar Wilde**
+> "Mastering others is strength, mastering yourself is true power."  
+> — **Lao Tzu**
 
 ---
 
