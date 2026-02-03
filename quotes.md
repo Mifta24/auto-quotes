@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dance first. Think later. It's the natural order."  
-> — **Samuel Beckett**
+> "The beautiful journey of today can only begin when we learn to let go of yesterday."  
+> — **Steve Maraboli**
 
 ---
 
