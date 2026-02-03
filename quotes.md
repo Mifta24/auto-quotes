@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
-> — **Herbert Hoover**
+> "Attitude is a little thing that makes a big difference."  
+> — **Winston Churchill**
 
 ---
 
