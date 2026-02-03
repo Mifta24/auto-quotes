@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The beautiful journey of today can only begin when we learn to let go of yesterday."  
-> — **Steve Maraboli**
+> "While some of us act without thinking, too many of us think without acting."  
+> — **Dan Millman**
 
 ---
 

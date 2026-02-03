@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you can't make them see the light, make them feel the heat."  
-> — **Ronald Reagan**
+> "While some of us act without thinking, too many of us think without acting."  
+> — **Dan Millman**
 
 ---
 
