@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Follow your heart, listen to your inner voice, stop caring about what others think."  
-> — **Roy T. Bennett**
+> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
+> — **Herbert Hoover**
 
 ---
 
-_Last updated: 02 February 2026 ⏳_
+_Last updated: 03 February 2026 ⏳_

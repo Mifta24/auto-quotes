@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The difference between winning and losing is most often not quitting."  
-> — **Walt Disney**
+> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
+> — **Herbert Hoover**
 
 ---
 
-_Last updated: 02 February 2026 ⏳_
+_Last updated: 03 February 2026 ⏳_
