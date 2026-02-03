@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
-> — **Roy T. Bennett**
+> "TEAMWORK: the fuel that allows common people attain uncommon results."  
+> — **Andrew Carnegie**
 
 ---
 
