@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get busy living, or get busy dying."  
-> — **Stephen King**
+> "Dance first. Think later. It's the natural order."  
+> — **Samuel Beckett**
 
 ---
 
