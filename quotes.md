@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Attitude is a little thing that makes a big difference."  
-> — **Winston Churchill**
+> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
+> — **Roy T. Bennett**
 
 ---
 

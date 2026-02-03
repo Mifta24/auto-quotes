@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
-> — **Herbert Hoover**
+> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
+> — **Roy T. Bennett**
 
 ---
 
