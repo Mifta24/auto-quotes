@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The beautiful journey of today can only begin when we learn to let go of yesterday."  
-> — **Steve Maraboli**
+> "When you can't make them see the light, make them feel the heat."  
+> — **Ronald Reagan**
 
 ---
 
