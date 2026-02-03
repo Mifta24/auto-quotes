@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "TEAMWORK: the fuel that allows common people attain uncommon results."  
-> — **Andrew Carnegie**
+> "Get busy living, or get busy dying."  
+> — **Stephen King**
 
 ---
 
