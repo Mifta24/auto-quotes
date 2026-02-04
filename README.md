@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more acquaintances you have, the less you know them."  
-> — **Chinese Proverb**
+> "Life is too important to be taken seriously."  
+> — **Oscar Wilde**
 
 ---
 
