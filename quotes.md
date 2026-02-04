@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality, not the longevity, of one's life is what is important."  
-> — **Martin Luther King, Jr.**
+> "Change is hardest at the beginning, messiest in the middle and best at the end."  
+> — **Robin Sharma**
 
 ---
 
