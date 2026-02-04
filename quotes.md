@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is too important to be taken seriously."  
-> — **Oscar Wilde**
+> "Strive for excellence, not perfection, because we don't live in a perfect world."  
+> — **Joyce Meyer**
 
 ---
 
