@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality, not the longevity, of one's life is what is important."  
-> — **Martin Luther King, Jr.**
+> "The more acquaintances you have, the less you know them."  
+> — **Chinese Proverb**
 
 ---
 

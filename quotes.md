@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is hardest at the beginning, messiest in the middle and best at the end."  
-> — **Robin Sharma**
+> "The more acquaintances you have, the less you know them."  
+> — **Chinese Proverb**
 
 ---
 
