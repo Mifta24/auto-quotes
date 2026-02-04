@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best time to plant a tree was 20 years ago. The second best time is now."  
-> — **Zen Proverb**
+> "The quality, not the longevity, of one's life is what is important."  
+> — **Martin Luther King, Jr.**
 
 ---
 
