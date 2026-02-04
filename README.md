@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "While some of us act without thinking, too many of us think without acting."  
-> — **Dan Millman**
+> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
+> — **Brian Tracy**
 
 ---
 
-_Last updated: 03 February 2026 ⏳_
+_Last updated: 04 February 2026 ⏳_
