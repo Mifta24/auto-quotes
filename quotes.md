@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strive for excellence, not perfection, because we don't live in a perfect world."  
-> — **Joyce Meyer**
+> "For your life to be great, your faith must be bigger than your fear."  
+> — **Robin Sharma**
 
 ---
 

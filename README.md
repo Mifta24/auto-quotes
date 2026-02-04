@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is too important to be taken seriously."  
-> — **Oscar Wilde**
+> "For your life to be great, your faith must be bigger than your fear."  
+> — **Robin Sharma**
 
 ---
 
