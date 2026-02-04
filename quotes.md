@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
-> — **Brian Tracy**
+> "The best time to plant a tree was 20 years ago. The second best time is now."  
+> — **Zen Proverb**
 
 ---
 
