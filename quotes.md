@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For your life to be great, your faith must be bigger than your fear."  
-> — **Robin Sharma**
+> "Everyone thinks of changing the world, but no one thinks of changing himself."  
+> — **Leo Tolstoy**
 
 ---
 
