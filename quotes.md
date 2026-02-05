@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Numbing the pain for a while will only make it worse when you finally feel it."  
-> — **Albus Dumbledore**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
