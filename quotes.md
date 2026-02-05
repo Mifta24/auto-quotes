@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people tend to become more successful because they are always thinking about their successes."  
-> — **Brian Tracy**
+> "The heart wants what it wants - or else it does not care."  
+> — **Emily Dickinson**
 
 ---
 
