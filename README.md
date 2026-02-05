@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people tend to become more successful because they are always thinking about their successes."  
-> — **Brian Tracy**
+> "Life moves on and so should we."  
+> — **Spencer Johnson**
 
 ---
 
