@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
+> — **Bette Midler**
 
 ---
 
