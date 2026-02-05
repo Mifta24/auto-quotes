@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone thinks of changing the world, but no one thinks of changing himself."  
-> — **Leo Tolstoy**
+> "Numbing the pain for a while will only make it worse when you finally feel it."  
+> — **Albus Dumbledore**
 
 ---
 
-_Last updated: 04 February 2026 ⏳_
+_Last updated: 05 February 2026 ⏳_
