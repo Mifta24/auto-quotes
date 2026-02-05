@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life moves on and so should we."  
-> — **Spencer Johnson**
+> "Success does not consist in never making mistakes but in never making the same one a second time."  
+> — **George Bernard Shaw**
 
 ---
 
