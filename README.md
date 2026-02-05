@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "Successful people tend to become more successful because they are always thinking about their successes."  
+> — **Brian Tracy**
 
 ---
 

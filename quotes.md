@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
-> — **Bette Midler**
+> "Successful people tend to become more successful because they are always thinking about their successes."  
+> — **Brian Tracy**
 
 ---
 
