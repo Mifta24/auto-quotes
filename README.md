@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Numbing the pain for a while will only make it worse when you finally feel it."  
-> — **Albus Dumbledore**
+> "A man sees in the world what he carries in his heart."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
