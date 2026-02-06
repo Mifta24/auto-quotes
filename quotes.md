@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "Wise people, even though all laws were abolished, would still lead the same life."  
+> — **Aristophanes**
 
 ---
 
