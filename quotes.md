@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The important thing is not what one is born with but what use one makes of that equipment."  
-> — **Alfred Adler**
+> "He who laughs at himself never runs out of things to laugh at."  
+> — **Epictetus**
 
 ---
 
