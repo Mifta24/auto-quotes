@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "The more you extend kindness to yourself, the more it will become your automatic response to others."  
+> — **Wayne Dyer**
 
 ---
 
