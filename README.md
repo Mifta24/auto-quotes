@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life moves on and so should we."  
-> — **Spencer Johnson**
+> "You have the potential for greatness."  
+> — **Steve Harvey**
 
 ---
 
-_Last updated: 05 February 2026 ⏳_
+_Last updated: 06 February 2026 ⏳_

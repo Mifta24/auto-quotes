@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success does not consist in never making mistakes but in never making the same one a second time."  
-> — **George Bernard Shaw**
+> "You have the potential for greatness."  
+> — **Steve Harvey**
 
 ---
 
-_Last updated: 05 February 2026 ⏳_
+_Last updated: 06 February 2026 ⏳_
