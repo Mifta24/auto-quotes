@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you extend kindness to yourself, the more it will become your automatic response to others."  
-> — **Wayne Dyer**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 

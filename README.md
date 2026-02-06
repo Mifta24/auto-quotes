@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 
