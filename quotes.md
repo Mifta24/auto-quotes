@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who laughs at himself never runs out of things to laugh at."  
-> — **Epictetus**
+> "The quality of your life is determined by the quality of questions you ask."  
+> — **Tony Robbins**
 
 ---
 
