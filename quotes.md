@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of questions you ask."  
-> — **Tony Robbins**
+> "In matters of style, swim with the current; in matters of principle, stand like a rock."  
+> — **Thomas Jefferson**
 
 ---
 
