@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the potential for greatness."  
-> — **Steve Harvey**
+> "The important thing is not what one is born with but what use one makes of that equipment."  
+> — **Alfred Adler**
 
 ---
 

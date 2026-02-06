@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You just can't beat the person who never gives up. "  
-> — **Babe Ruth**
+> "The important thing is not what one is born with but what use one makes of that equipment."  
+> — **Alfred Adler**
 
 ---
 
