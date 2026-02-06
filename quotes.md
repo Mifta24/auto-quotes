@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the potential for greatness."  
-> — **Steve Harvey**
+> "You just can't beat the person who never gives up. "  
+> — **Babe Ruth**
 
 ---
 
