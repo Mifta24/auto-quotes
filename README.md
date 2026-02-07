@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Life is either a daring adventure, or it is nothing."  
+> — **Helen Keller**
 
 ---
 

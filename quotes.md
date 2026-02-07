@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others and give something back."  
-> — **Arnold Schwarzenegger**
+> "Life is either a daring adventure, or it is nothing."  
+> — **Helen Keller**
 
 ---
 
