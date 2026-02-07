@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "A scientific man ought to have no wishes, no affections, - a mere heart of stone."  
+> — **Charles Darwin**
 
 ---
 
-_Last updated: 06 February 2026 ⏳_
+_Last updated: 07 February 2026 ⏳_
