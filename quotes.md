@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Help others and give something back."  
+> — **Arnold Schwarzenegger**
 
 ---
 
