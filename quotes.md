@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perfectionism is simply putting a limit on your future."  
-> — **John Eliot**
+> "Keep away from people who try to belittle your ambitions."  
+> — **Mark Twain**
 
 ---
 
