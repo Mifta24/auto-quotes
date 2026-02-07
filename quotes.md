@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A zen master's life is one continuous mistake."  
-> — **Dogen**
+> "Allow motion to equal emotion."  
+> — **Elbert Hubbard**
 
 ---
 
