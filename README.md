@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
-> — **Wayne Gretzky**
+> "Perfectionism is simply putting a limit on your future."  
+> — **John Eliot**
 
 ---
 

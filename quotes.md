@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In three words I can sum up everything I've learned about life: it goes on."  
-> — **Robert Frost**
+> "Perfectionism is simply putting a limit on your future."  
+> — **John Eliot**
 
 ---
 
