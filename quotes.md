@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is either a daring adventure, or it is nothing."  
-> — **Helen Keller**
+> "In order to attain the impossible, one must attempt the absurd."  
+> — **Miguel de Cervantes**
 
 ---
 
