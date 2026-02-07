@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A scientific man ought to have no wishes, no affections, - a mere heart of stone."  
-> — **Charles Darwin**
+> "A zen master's life is one continuous mistake."  
+> — **Dogen**
 
 ---
 
