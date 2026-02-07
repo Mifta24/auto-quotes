@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
-> — **Wayne Gretzky**
+> "In three words I can sum up everything I've learned about life: it goes on."  
+> — **Robert Frost**
 
 ---
 
