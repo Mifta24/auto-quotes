@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 

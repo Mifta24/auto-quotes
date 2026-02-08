@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fear of death is more to be feared, than death itself."  
-> — **Publilius Syrus**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 
