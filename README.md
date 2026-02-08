@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Perfectionism is simply putting a limit on your future."  
-> — **John Eliot**
+> "Perseverance and spirit have done wonders in all ages. "  
+> — **George Washington**
 
 ---
 
-_Last updated: 07 February 2026 ⏳_
+_Last updated: 08 February 2026 ⏳_

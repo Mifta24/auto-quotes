@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep away from people who try to belittle your ambitions."  
-> — **Mark Twain**
+> "Perseverance and spirit have done wonders in all ages. "  
+> — **George Washington**
 
 ---
 
-_Last updated: 07 February 2026 ⏳_
+_Last updated: 08 February 2026 ⏳_
