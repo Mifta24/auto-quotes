@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
-> — **Epictetus**
+> "The more people you help become successful the more successful you become."  
+> — **Steve Harvey**
 
 ---
 
