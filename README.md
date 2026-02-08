@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reality is nothing but a collective hunch."  
-> — **Lily Tomlin**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 

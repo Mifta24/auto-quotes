@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every poem should remind the reader that they are going to die."  
-> — **Edgar Allan Poe**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 
