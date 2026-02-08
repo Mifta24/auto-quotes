@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages. "  
-> — **George Washington**
+> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
+> — **Ming-Dao Deng**
 
 ---
 
