@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reality is nothing but a collective hunch."  
-> — **Lily Tomlin**
+> "Every poem should remind the reader that they are going to die."  
+> — **Edgar Allan Poe**
 
 ---
 
