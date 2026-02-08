@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying."  
-> — **Ming-Dao Deng**
+> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
+> — **Steve Jobs**
 
 ---
 

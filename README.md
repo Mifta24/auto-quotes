@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages. "  
-> — **George Washington**
+> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
+> — **Steve Jobs**
 
 ---
 
