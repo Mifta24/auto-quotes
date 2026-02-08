@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
-> — **Steve Jobs**
+> "To some degree, you control your life by controlling your time."  
+> — **Conrad Hilton**
 
 ---
 
