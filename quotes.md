@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do you have the patience to wait until your mud settles and the water is clear?"  
-> — **Lao Tzu**
+> "It is easier to fight for one's principles than to live up to them. "  
+> — **Alfred Adler**
 
 ---
 
