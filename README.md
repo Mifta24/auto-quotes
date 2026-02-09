@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
-> — **Epictetus**
+> "Do you have the patience to wait until your mud settles and the water is clear?"  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 08 February 2026 ⏳_
+_Last updated: 09 February 2026 ⏳_

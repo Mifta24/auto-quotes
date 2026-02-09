@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The more people you help become successful the more successful you become."  
-> — **Steve Harvey**
+> "Do you have the patience to wait until your mud settles and the water is clear?"  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 08 February 2026 ⏳_
+_Last updated: 09 February 2026 ⏳_
