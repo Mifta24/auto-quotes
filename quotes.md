@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "While we may not be able to control all that happens to us, we can control what happens inside us."  
-> — **Benjamin Franklin**
+> "Every failure brings with it the seed of an equivalent success."  
+> — **Napoleon Hill**
 
 ---
 
