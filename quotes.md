@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world makes way for the man who knows where he is going."  
-> — **Ralph Waldo Emerson**
+> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
+> — **Brian Tracy**
 
 ---
 
