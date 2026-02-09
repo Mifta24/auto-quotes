@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You change the world by being yourself."  
-> — **Yoko Ono**
+> "The world makes way for the man who knows where he is going."  
+> — **Ralph Waldo Emerson**
 
 ---
 

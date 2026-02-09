@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best of us sometimes eat our words.  "  
-> — **Albus Dumbledore**
+> "The world makes way for the man who knows where he is going."  
+> — **Ralph Waldo Emerson**
 
 ---
 
