@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new."  
-> — **Brian Tracy**
+> "While we may not be able to control all that happens to us, we can control what happens inside us."  
+> — **Benjamin Franklin**
 
 ---
 
