@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You change the world by being yourself."  
-> — **Yoko Ono**
+> "The best of us sometimes eat our words.  "  
+> — **Albus Dumbledore**
 
 ---
 
