@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every failure brings with it the seed of an equivalent success."  
-> — **Napoleon Hill**
+> "Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit."  
+> — **Robin Sharma**
 
 ---
 
