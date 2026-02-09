@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do you have the patience to wait until your mud settles and the water is clear?"  
-> — **Lao Tzu**
+> "You change the world by being yourself."  
+> — **Yoko Ono**
 
 ---
 
