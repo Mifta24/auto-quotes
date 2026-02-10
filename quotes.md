@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "The constant assertion of belief is an indication of fear."  
+> — **Jiddu Krishnamurti**
 
 ---
 
