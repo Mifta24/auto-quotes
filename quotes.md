@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man must use what he has, not hope for what is not."  
-> — **G.I. Gurdjieff**
+> "Truth is like most opinions - best unexpressed."  
+> — **Kenneth Branagh**
 
 ---
 
