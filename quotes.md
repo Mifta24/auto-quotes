@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forever is composed of now's."  
-> — **Emily Dickinson**
+> "By words the mind is winged."  
+> — **Aristophanes**
 
 ---
 
