@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man must use what he has, not hope for what is not."  
-> — **G.I. Gurdjieff**
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
+> — **George Eliot**
 
 ---
 

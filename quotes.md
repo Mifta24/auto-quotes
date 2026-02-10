@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
+> — **George Eliot**
 
 ---
 
