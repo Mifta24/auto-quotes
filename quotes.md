@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
-> — **Alfred Adler**
+> "He will win who knows when to fight and when not to fight."  
+> — **Sun Tzu**
 
 ---
 
