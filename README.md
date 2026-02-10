@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "The way of success is the way of continuous pursuit of knowledge."  
+> — **Napoleon Hill**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The constant assertion of belief is an indication of fear."  
-> — **Jiddu Krishnamurti**
+> "The way of success is the way of continuous pursuit of knowledge."  
+> — **Napoleon Hill**
 
 ---
 
