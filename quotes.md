@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A hut full of laughter is richer than a palace full of sadness."  
-> — **Zen Proverb**
+> "Man must use what he has, not hope for what is not."  
+> — **G.I. Gurdjieff**
 
 ---
 
-_Last updated: 09 February 2026 ⏳_
+_Last updated: 10 February 2026 ⏳_

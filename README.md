@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit."  
-> — **Robin Sharma**
+> "Man must use what he has, not hope for what is not."  
+> — **G.I. Gurdjieff**
 
 ---
 
-_Last updated: 09 February 2026 ⏳_
+_Last updated: 10 February 2026 ⏳_
