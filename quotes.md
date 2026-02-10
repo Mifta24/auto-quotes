@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
-> — **George Eliot**
+> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
+> — **Alfred Adler**
 
 ---
 
