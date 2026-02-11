@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a wisdom of the head, and there is a wisdom of the heart."  
-> — **Charles Dickens**
+> "Failure is acceptable. Not trying is a whole different ball park."  
+> — **Michael Jordan**
 
 ---
 

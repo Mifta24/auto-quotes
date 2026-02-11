@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We make a living by what we get, but we make a life by what we give."  
-> — **Unknown**
+> "Failure is acceptable. Not trying is a whole different ball park."  
+> — **Michael Jordan**
 
 ---
 
