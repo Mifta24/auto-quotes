@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is acceptable. Not trying is a whole different ball park."  
-> — **Michael Jordan**
+> "Mastering others is strength, mastering yourself is true power."  
+> — **Lao Tzu**
 
 ---
 

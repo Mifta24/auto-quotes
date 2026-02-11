@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have within you right now, everything you need to deal with whatever the world can throw at you."  
-> — **Brian Tracy**
+> "Mastering others is strength, mastering yourself is true power."  
+> — **Lao Tzu**
 
 ---
 
