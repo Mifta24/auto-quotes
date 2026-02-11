@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a wisdom of the head, and there is a wisdom of the heart."  
-> — **Charles Dickens**
+> "We make a living by what we get, but we make a life by what we give."  
+> — **Unknown**
 
 ---
 
