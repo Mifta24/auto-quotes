@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is your worst enemy. Risk is your best friend."  
-> — **Gurbaksh Chahal**
+> "Thinking is difficult, that's why most people judge."  
+> — **Carl Jung**
 
 ---
 
