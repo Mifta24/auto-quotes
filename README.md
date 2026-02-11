@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mastering others is strength, mastering yourself is true power."  
-> — **Lao Tzu**
+> "The prettiest eyes have cried the most."  
+> — **Unknown**
 
 ---
 
