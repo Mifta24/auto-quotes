@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mastering others is strength, mastering yourself is true power."  
-> — **Lao Tzu**
+> "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose."  
+> — **Simon Sinek**
 
 ---
 
