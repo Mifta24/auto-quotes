@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is your worst enemy. Risk is your best friend."  
-> — **Gurbaksh Chahal**
+> "There is a wisdom of the head, and there is a wisdom of the heart."  
+> — **Charles Dickens**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is difficult, that's why most people judge."  
-> — **Carl Jung**
+> "There is a wisdom of the head, and there is a wisdom of the heart."  
+> — **Charles Dickens**
 
 ---
 
