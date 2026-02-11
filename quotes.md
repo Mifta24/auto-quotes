@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The prettiest eyes have cried the most."  
-> — **Unknown**
+> "No one can confidently say that he will still be living tomorrow."  
+> — **Euripides**
 
 ---
 
