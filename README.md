@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The way of success is the way of continuous pursuit of knowledge."  
-> — **Napoleon Hill**
+> "Fear is your worst enemy. Risk is your best friend."  
+> — **Gurbaksh Chahal**
 
 ---
 
-_Last updated: 10 February 2026 ⏳_
+_Last updated: 11 February 2026 ⏳_

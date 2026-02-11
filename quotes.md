@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
-> — **Billie Jean King**
+> "Fear is your worst enemy. Risk is your best friend."  
+> — **Gurbaksh Chahal**
 
 ---
 
-_Last updated: 10 February 2026 ⏳_
+_Last updated: 11 February 2026 ⏳_
