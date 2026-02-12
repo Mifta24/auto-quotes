@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
-> — **Criss Jami**
+> "Every man desires to live long, but no man wishes to be old."  
+> — **Jonathan Swift**
 
 ---
 
