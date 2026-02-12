@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
-> — **Criss Jami**
+> "Courage is fear that has said its prayers and decided to go forward anyway."  
+> — **Joyce Meyer**
 
 ---
 

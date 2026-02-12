@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every man desires to live long, but no man wishes to be old."  
-> — **Jonathan Swift**
+> "Courage is fear that has said its prayers and decided to go forward anyway."  
+> — **Joyce Meyer**
 
 ---
 
