@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The scariest moment is always just before you start. After that, things can only get better."  
-> — **Stephen King**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 

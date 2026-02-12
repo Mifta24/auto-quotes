@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is more real than nothing."  
-> — **Samuel Beckett**
+> "The degree of responsibility you take for your life determines how much change you can create in it."  
+> — **Celestine Chua**
 
 ---
 
