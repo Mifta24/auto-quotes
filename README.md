@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will succeed because most people are lazy."  
-> — **Shahir Zag**
+> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
+> — **Criss Jami**
 
 ---
 
