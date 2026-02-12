@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No one can confidently say that he will still be living tomorrow."  
-> — **Euripides**
+> "You will succeed because most people are lazy."  
+> — **Shahir Zag**
 
 ---
 
-_Last updated: 11 February 2026 ⏳_
+_Last updated: 12 February 2026 ⏳_

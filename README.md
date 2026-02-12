@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The prettiest eyes have cried the most."  
-> — **Unknown**
+> "You will succeed because most people are lazy."  
+> — **Shahir Zag**
 
 ---
 
-_Last updated: 11 February 2026 ⏳_
+_Last updated: 12 February 2026 ⏳_
