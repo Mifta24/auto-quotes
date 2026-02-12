@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will succeed because most people are lazy."  
-> — **Shahir Zag**
+> "Heal the past, live the present, dream the future."  
+> — **Mary Engelbreit**
 
 ---
 
