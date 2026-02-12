@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is fear that has said its prayers and decided to go forward anyway."  
-> — **Joyce Meyer**
+> "The scariest moment is always just before you start. After that, things can only get better."  
+> — **Stephen King**
 
 ---
 

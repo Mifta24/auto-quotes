@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "The scariest moment is always just before you start. After that, things can only get better."  
+> — **Stephen King**
 
 ---
 
