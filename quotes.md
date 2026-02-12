@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is fear that has said its prayers and decided to go forward anyway."  
-> — **Joyce Meyer**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
