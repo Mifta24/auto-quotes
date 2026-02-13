@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less people know, the more stubbornly they know it."  
-> — **Osho**
+> "Allow motion to equal emotion."  
+> — **Elbert Hubbard**
 
 ---
 
