@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 

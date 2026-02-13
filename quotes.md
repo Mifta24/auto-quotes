@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Gratitude is the fairest blossom which springs from the soul."  
-> — **Henry Ward Beecher**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 
