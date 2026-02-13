@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it comes to mastering a skill, time is the magic ingredient."  
-> — **Robert Greene**
+> "Winners never quit and quitters never win."  
+> — **Vince Lombardi**
 
 ---
 
