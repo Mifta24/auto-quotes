@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever your mind can conceive and believe, it can achieve."  
-> — **Napoleon Hill**
+> "In the middle of chaos lies opportunity.  "  
+> — **Bruce Lee**
 
 ---
 
