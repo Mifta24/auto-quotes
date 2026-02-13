@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "People become attached to their burdens sometimes more than the burdens are attached to them."  
+> — **George Bernard Shaw**
 
 ---
 
