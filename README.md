@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The degree of responsibility you take for your life determines how much change you can create in it."  
-> — **Celestine Chua**
+> "Just do what must be done. This may not be happiness but it is greatness."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 12 February 2026 ⏳_
+_Last updated: 13 February 2026 ⏳_
