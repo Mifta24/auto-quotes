@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "When it comes to mastering a skill, time is the magic ingredient."  
+> — **Robert Greene**
 
 ---
 

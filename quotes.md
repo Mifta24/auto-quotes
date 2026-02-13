@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People become attached to their burdens sometimes more than the burdens are attached to them."  
-> — **George Bernard Shaw**
+> "When it comes to mastering a skill, time is the magic ingredient."  
+> — **Robert Greene**
 
 ---
 
