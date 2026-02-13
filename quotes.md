@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just do what must be done. This may not be happiness but it is greatness."  
-> — **George Bernard Shaw**
+> "The less people know, the more stubbornly they know it."  
+> — **Osho**
 
 ---
 
