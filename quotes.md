@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners never quit and quitters never win."  
-> — **Vince Lombardi**
+> "Whatever your mind can conceive and believe, it can achieve."  
+> — **Napoleon Hill**
 
 ---
 
