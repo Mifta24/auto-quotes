@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Gratitude is the fairest blossom which springs from the soul."  
+> — **Henry Ward Beecher**
 
 ---
 
