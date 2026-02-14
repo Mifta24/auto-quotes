@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I wasn't brave, I just didn't have time to be scared."  
-> — **Amelia Earhart**
+> "All problems are interpersonal relationship problems."  
+> — **Alfred Adler**
 
 ---
 

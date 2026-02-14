@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what you pay a man, but what he costs you that counts."  
-> — **Will Rogers**
+> "All problems are interpersonal relationship problems."  
+> — **Alfred Adler**
 
 ---
 
