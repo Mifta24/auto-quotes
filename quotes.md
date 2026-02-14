@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship takes time and energy if it's going to work."  
-> — **Betty White**
+> "If what you're doing is not your passion, you have nothing to lose."  
+> — **Celestine Chua**
 
 ---
 
