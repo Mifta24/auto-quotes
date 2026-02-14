@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All problems are interpersonal relationship problems."  
-> — **Alfred Adler**
+> "Friendship takes time and energy if it's going to work."  
+> — **Betty White**
 
 ---
 
