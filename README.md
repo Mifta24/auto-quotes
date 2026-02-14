@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If what you're doing is not your passion, you have nothing to lose."  
-> — **Celestine Chua**
+> "Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is."  
+> — **Nicolas Chamfort**
 
 ---
 

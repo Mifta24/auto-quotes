@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be where your enemy is not."  
-> — **Sun Tzu**
+> "Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is."  
+> — **Nicolas Chamfort**
 
 ---
 
