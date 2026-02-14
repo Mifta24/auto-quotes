@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Whatever your mind can conceive and believe, it can achieve."  
-> — **Napoleon Hill**
+> "I wasn't brave, I just didn't have time to be scared."  
+> — **Amelia Earhart**
 
 ---
 
-_Last updated: 13 February 2026 ⏳_
+_Last updated: 14 February 2026 ⏳_
