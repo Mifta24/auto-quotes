@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If what you're doing is not your passion, you have nothing to lose."  
-> — **Celestine Chua**
+> "Be where your enemy is not."  
+> — **Sun Tzu**
 
 ---
 
