@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Action may not always bring happiness, but there is no happiness without action."  
-> — **William James**
+> "What worries you, masters you."  
+> — **John Locke**
 
 ---
 
