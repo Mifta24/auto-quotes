@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is."  
-> — **Nicolas Chamfort**
+> "Action may not always bring happiness, but there is no happiness without action."  
+> — **William James**
 
 ---
 

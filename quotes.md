@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have more possibilities available in each moment than we realize."  
-> — **Thich Nhat Hanh**
+> "Action may not always bring happiness, but there is no happiness without action."  
+> — **William James**
 
 ---
 
