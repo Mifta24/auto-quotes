@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way to love anything is to realize that it may be lost."  
-> — **Gilbert Chesterton**
+> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
+> — **John Eliot**
 
 ---
 
