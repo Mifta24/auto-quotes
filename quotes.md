@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
-> — **John Eliot**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
