@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All problems are illusions of the mind."  
-> — **Eckhart Tolle**
+> "High thoughts must have high language."  
+> — **Aristophanes**
 
 ---
 
