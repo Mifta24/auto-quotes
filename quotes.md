@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have no more right to consume happiness without producing it than to consume wealth without producing it."  
-> — **George Bernard Shaw**
+> "Be grateful for what you have now, and nothing should be taken for granted."  
+> — **Roy T. Bennett**
 
 ---
 

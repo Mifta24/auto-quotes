@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when I fall do I get up again."  
-> — **Vincent van Gogh**
+> "Be grateful for what you have now, and nothing should be taken for granted."  
+> — **Roy T. Bennett**
 
 ---
 
