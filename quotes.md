@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What worries you, masters you."  
-> — **John Locke**
+> "The way to love anything is to realize that it may be lost."  
+> — **Gilbert Chesterton**
 
 ---
 
-_Last updated: 14 February 2026 ⏳_
+_Last updated: 15 February 2026 ⏳_
