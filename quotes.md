@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when I fall do I get up again."  
-> — **Vincent van Gogh**
+> "We have no more right to consume happiness without producing it than to consume wealth without producing it."  
+> — **George Bernard Shaw**
 
 ---
 
