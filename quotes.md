@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be grateful for what you have now, and nothing should be taken for granted."  
-> — **Roy T. Bennett**
+> "The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it."  
+> — **Carl Jung**
 
 ---
 
