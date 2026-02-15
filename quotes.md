@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "Every moment of happiness requires a great amount of Ignorance"  
+> — **Honore de Balzac**
 
 ---
 
