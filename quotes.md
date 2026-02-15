@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment of happiness requires a great amount of Ignorance"  
-> — **Honore de Balzac**
+> "All problems are illusions of the mind."  
+> — **Eckhart Tolle**
 
 ---
 
