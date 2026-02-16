@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Changing minds is harder than finding people who already agree."  
-> — **Jack Butcher**
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
+> — **Celestine Chua**
 
 ---
 

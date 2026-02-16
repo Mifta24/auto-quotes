@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All power is from within and therefore under our control."  
-> — **Robert Collier**
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage."  
+> — **Celestine Chua**
 
 ---
 
