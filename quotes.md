@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not stop thinking of life as an adventure."  
-> — **Eleanor Roosevelt**
+> "There is no significance in life without struggle."  
+> — **Lolly Daskal**
 
 ---
 
