@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be grateful for what you have now, and nothing should be taken for granted."  
-> — **Roy T. Bennett**
+> "All power is from within and therefore under our control."  
+> — **Robert Collier**
 
 ---
 
-_Last updated: 15 February 2026 ⏳_
+_Last updated: 16 February 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it."  
-> — **Carl Jung**
+> "All power is from within and therefore under our control."  
+> — **Robert Collier**
 
 ---
 
-_Last updated: 15 February 2026 ⏳_
+_Last updated: 16 February 2026 ⏳_
