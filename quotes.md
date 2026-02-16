@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is fear that has said its prayers and decided to go forward anyway."  
-> — **Joyce Meyer**
+> "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control."  
+> — **Maxime Lagace**
 
 ---
 
