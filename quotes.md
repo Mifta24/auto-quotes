@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let your mind stop you."  
-> — **Steve Harvey**
+> "Do not stop thinking of life as an adventure."  
+> — **Eleanor Roosevelt**
 
 ---
 
