@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All power is from within and therefore under our control."  
-> — **Robert Collier**
+> "Changing minds is harder than finding people who already agree."  
+> — **Jack Butcher**
 
 ---
 
