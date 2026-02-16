@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "Everyone you meet is fighting a battle you know nothing about. Be kind. Always."  
+> — **Robin Williams**
 
 ---
 

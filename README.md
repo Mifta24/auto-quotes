@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not stop thinking of life as an adventure."  
-> — **Eleanor Roosevelt**
+> "Everyone you meet is fighting a battle you know nothing about. Be kind. Always."  
+> — **Robin Williams**
 
 ---
 
