@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are few reasons for telling the truth, but for lying the number is infinite."  
-> — **Carlos Ruiz Zafon**
+> "Everything has its beauty, but not everyone sees it. "  
+> — **Confucius**
 
 ---
 
