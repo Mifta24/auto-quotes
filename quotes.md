@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power of man has grown in every sphere, except over himself."  
-> — **Winston Churchill**
+> "Life is 10% what happens to you and 90% how you react to it. "  
+> — **Charles Swindoll**
 
 ---
 

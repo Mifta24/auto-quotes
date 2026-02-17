@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
-> — **Tony Robbins**
+> "Life is 10% what happens to you and 90% how you react to it. "  
+> — **Charles Swindoll**
 
 ---
 
