@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you genuinely want something, don't wait for it - teach yourself."  
-> — **Gurbaksh Chahal**
+> "The road to success is always under construction."  
+> — **Steve Harvey**
 
 ---
 
