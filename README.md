@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
+> — **Tony Robbins**
 
 ---
 
