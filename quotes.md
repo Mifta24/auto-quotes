@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "Learn to value yourself, which means: fight for your happiness."  
+> — **Ayn Rand**
 
 ---
 
