@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are few reasons for telling the truth, but for lying the number is infinite."  
-> — **Carlos Ruiz Zafon**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 

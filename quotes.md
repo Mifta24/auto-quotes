@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it. "  
-> — **Confucius**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 
