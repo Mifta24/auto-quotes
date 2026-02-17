@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life has more imagination than we carry in our dreams."  
-> — **Christopher Columbus**
+> "There are few reasons for telling the truth, but for lying the number is infinite."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
-_Last updated: 16 February 2026 ⏳_
+_Last updated: 17 February 2026 ⏳_
