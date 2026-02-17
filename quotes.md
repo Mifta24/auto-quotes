@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is 10% what happens to you and 90% how you react to it. "  
-> — **Charles Swindoll**
+> "If you genuinely want something, don't wait for it - teach yourself."  
+> — **Gurbaksh Chahal**
 
 ---
 
