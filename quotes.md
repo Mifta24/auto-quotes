@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction."  
-> — **Steve Harvey**
+> "Our greatest glory is not in never falling but in rising every time we fall."  
+> — **Confucius**
 
 ---
 
