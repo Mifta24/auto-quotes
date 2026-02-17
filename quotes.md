@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided."  
-> — **Tony Robbins**
+> "The power of man has grown in every sphere, except over himself."  
+> — **Winston Churchill**
 
 ---
 
