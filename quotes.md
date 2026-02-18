@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "None are more hopelessly enslaved than those who falsely believe they are free."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
