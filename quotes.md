@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "Only he who has no use for the empire is fit to be entrusted with it."  
+> — **Zhuangzi**
 
 ---
 

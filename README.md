@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead."  
-> — **Samuel Butler**
+> "Only he who has no use for the empire is fit to be entrusted with it."  
+> — **Zhuangzi**
 
 ---
 
