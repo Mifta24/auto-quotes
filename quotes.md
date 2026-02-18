@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Magic is believing in yourself, if you can do that, you can make anything happen."  
-> — **Johann Wolfgang von Goethe**
+> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
+> — **Celestine Chua**
 
 ---
 
