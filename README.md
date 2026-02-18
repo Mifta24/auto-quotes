@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only he who has no use for the empire is fit to be entrusted with it."  
-> — **Zhuangzi**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
