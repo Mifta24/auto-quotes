@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only he who has no use for the empire is fit to be entrusted with it."  
-> — **Zhuangzi**
+> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
+> — **Mother Teresa**
 
 ---
 
