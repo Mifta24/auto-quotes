@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "None are more hopelessly enslaved than those who falsely believe they are free."  
-> — **Johann Wolfgang von Goethe**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 

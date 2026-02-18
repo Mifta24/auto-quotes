@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 
