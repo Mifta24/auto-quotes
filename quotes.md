@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."  
-> — **Celestine Chua**
+> "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead."  
+> — **Samuel Butler**
 
 ---
 

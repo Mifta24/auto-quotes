@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Magic is believing in yourself, if you can do that, you can make anything happen."  
-> — **Johann Wolfgang von Goethe**
+> "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead."  
+> — **Samuel Butler**
 
 ---
 
