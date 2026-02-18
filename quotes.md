@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Our greatest glory is not in never falling but in rising every time we fall."  
-> — **Confucius**
+> "Magic is believing in yourself, if you can do that, you can make anything happen."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
-_Last updated: 17 February 2026 ⏳_
+_Last updated: 18 February 2026 ⏳_
