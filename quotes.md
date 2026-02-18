@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "We create the world and ourselves;"  
+> — **Ming-Dao Deng**
 
 ---
 
