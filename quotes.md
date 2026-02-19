@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The divine is not something high above us. It is in heaven, it is in earth, it is inside us."  
-> — **Morihei Ueshiba**
+> "If you're afraid - don't do it, - if you're doing it - don't be afraid! "  
+> — **Genghis Khan**
 
 ---
 

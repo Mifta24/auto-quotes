@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Without education, we are in a horrible and deadly danger of taking educated people seriously."  
-> — **Gilbert Chesterton**
+> "If you're afraid - don't do it, - if you're doing it - don't be afraid! "  
+> — **Genghis Khan**
 
 ---
 
