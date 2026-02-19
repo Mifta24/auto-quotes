@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Without education, we are in a horrible and deadly danger of taking educated people seriously."  
-> — **Gilbert Chesterton**
+> "The divine is not something high above us. It is in heaven, it is in earth, it is inside us."  
+> — **Morihei Ueshiba**
 
 ---
 
