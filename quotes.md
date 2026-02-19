@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
-> — **Walt Whitman**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
