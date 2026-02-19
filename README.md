@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're afraid - don't do it, - if you're doing it - don't be afraid! "  
-> — **Genghis Khan**
+> "Never spend your money before you have earned it."  
+> — **Thomas Jefferson**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust, but verify."  
-> — **Ronald Reagan**
+> "Never spend your money before you have earned it."  
+> — **Thomas Jefferson**
 
 ---
 
