@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never spend your money before you have earned it."  
-> — **Thomas Jefferson**
+> "I no doubt deserved my enemies, but I don't believe I deserved my friends."  
+> — **Walt Whitman**
 
 ---
 
