@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "Trust, like the soul, never returns once it is gone."  
+> — **Publilius Syrus**
 
 ---
 
