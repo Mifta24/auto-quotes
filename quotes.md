@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never spend your money before you have earned it."  
-> — **Thomas Jefferson**
+> "If you try to micromanage yourself all you're going to do is make yourself miserable."  
+> — **Naval Ravikant**
 
 ---
 
