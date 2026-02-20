@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must create our own world or we will die from inaction."  
-> — **Robert Greene**
+> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
+> — **Orison Swett Marden**
 
 ---
 
