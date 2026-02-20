@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, you won't get it with violence."  
-> — **John Lennon**
+> "Pursue what catches your heart, not what catches your eyes."  
+> — **Roy T. Bennett**
 
 ---
 

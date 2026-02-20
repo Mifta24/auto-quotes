@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "Pursue what catches your heart, not what catches your eyes."  
+> — **Roy T. Bennett**
 
 ---
 
