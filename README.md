@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pursue what catches your heart, not what catches your eyes."  
-> — **Roy T. Bennett**
+> "We must create our own world or we will die from inaction."  
+> — **Robert Greene**
 
 ---
 
