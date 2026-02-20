@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Pursue what catches your heart, not what catches your eyes."  
+> "Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine."  
 > — **Roy T. Bennett**
 
 ---
