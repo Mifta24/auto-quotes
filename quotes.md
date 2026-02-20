@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving."  
-> — **Yanni**
+> "Be who you are and say what you feel because those who mind don't matter and those who matter don't mind."  
+> — **Dr. Seuss**
 
 ---
 
