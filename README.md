@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Trust, like the soul, never returns once it is gone."  
-> — **Publilius Syrus**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 19 February 2026 ⏳_
+_Last updated: 20 February 2026 ⏳_

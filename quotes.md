@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Art is the signature of civilizations. "  
-> — **Beverly Sills**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
-_Last updated: 19 February 2026 ⏳_
+_Last updated: 20 February 2026 ⏳_
