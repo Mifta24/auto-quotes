@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving."  
-> — **Yanni**
+> "To avoid criticism, do nothing, say nothing, and be nothing."  
+> — **Elbert Hubbard**
 
 ---
 
