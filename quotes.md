@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To avoid criticism, do nothing, say nothing, and be nothing."  
-> — **Elbert Hubbard**
+> "an action committed in anger is an action doomed to failure. "  
+> — **Genghis Khan**
 
 ---
 
