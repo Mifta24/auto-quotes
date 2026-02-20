@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must create our own world or we will die from inaction."  
-> — **Robert Greene**
+> "Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving."  
+> — **Yanni**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
-> — **Orison Swett Marden**
+> "Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving."  
+> — **Yanni**
 
 ---
 
