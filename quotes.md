@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "If you want peace, you won't get it with violence."  
+> — **John Lennon**
 
 ---
 
