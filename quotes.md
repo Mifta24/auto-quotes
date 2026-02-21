@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "an action committed in anger is an action doomed to failure. "  
-> — **Genghis Khan**
+> "Show me a hero, and I'll write you a tragedy."  
+> — **F. Scott Fitzgerald**
 
 ---
 
-_Last updated: 20 February 2026 ⏳_
+_Last updated: 21 February 2026 ⏳_
