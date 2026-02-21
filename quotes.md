@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "There is no path to Love. Love is the path."  
+> — **Dan Millman**
 
 ---
 
