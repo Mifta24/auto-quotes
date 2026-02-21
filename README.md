@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-control is strength."  
-> — **James Allen**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 

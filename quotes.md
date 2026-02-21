@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To plant a garden is to believe in tomorrow.  "  
-> — **Audrey Hepburn**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
