@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "Keep your face always toward the sunshine -  shadows will fall behind you."  
+> — **Walt Whitman**
 
 ---
 
