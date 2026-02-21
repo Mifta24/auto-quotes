@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-control is strength."  
-> — **James Allen**
+> "To plant a garden is to believe in tomorrow.  "  
+> — **Audrey Hepburn**
 
 ---
 
