@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love."  
+> — **Morihei Ueshiba**
 
 ---
 
