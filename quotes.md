@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Show me a hero, and I'll write you a tragedy."  
-> — **F. Scott Fitzgerald**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
