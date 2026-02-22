@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who are possessed by nothing possess everything."  
-> — **Morihei Ueshiba**
+> "Only the educated are free."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 21 February 2026 ⏳_
+_Last updated: 22 February 2026 ⏳_
