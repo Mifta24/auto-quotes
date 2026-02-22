@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the educated are free."  
-> — **Epictetus**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
