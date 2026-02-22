@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "Identification with our mind causes thought to become compulsive."  
+> — **Eckhart Tolle**
 
 ---
 

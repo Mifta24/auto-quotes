@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the educated are free."  
-> — **Epictetus**
+> "Identification with our mind causes thought to become compulsive."  
+> — **Eckhart Tolle**
 
 ---
 
