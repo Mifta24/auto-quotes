@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief danger in life is that you may take too many precautions."  
-> — **Alfred Adler**
+> "Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you."  
+> — **Norman Vincent Peale**
 
 ---
 

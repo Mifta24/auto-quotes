@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be. "  
-> — **Miguel de Cervantes**
+> "Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you."  
+> — **Norman Vincent Peale**
 
 ---
 
