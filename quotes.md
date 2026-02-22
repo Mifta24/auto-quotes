@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identification with our mind causes thought to become compulsive."  
-> — **Eckhart Tolle**
+> "Don't bother people for help without first trying to solve the problem yourself."  
+> — **Colin Powell**
 
 ---
 
