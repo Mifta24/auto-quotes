@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever you do a thing, act as if all the world were watching."  
-> — **Thomas Jefferson**
+> "The chief danger in life is that you may take too many precautions."  
+> — **Alfred Adler**
 
 ---
 
