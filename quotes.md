@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't bother people for help without first trying to solve the problem yourself."  
-> — **Colin Powell**
+> "Whenever you do a thing, act as if all the world were watching."  
+> — **Thomas Jefferson**
 
 ---
 

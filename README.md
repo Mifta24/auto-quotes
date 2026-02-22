@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identification with our mind causes thought to become compulsive."  
-> — **Eckhart Tolle**
+> "Whenever you do a thing, act as if all the world were watching."  
+> — **Thomas Jefferson**
 
 ---
 
