@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief danger in life is that you may take too many precautions."  
-> — **Alfred Adler**
+> "Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be. "  
+> — **Miguel de Cervantes**
 
 ---
 
