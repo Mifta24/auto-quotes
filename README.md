@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle."  
+> — **Albert Einstein**
 
 ---
 
