@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything."  
-> — **Sydney Smith**
+> "Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves."  
+> — **Adi Da Samraj**
 
 ---
 
