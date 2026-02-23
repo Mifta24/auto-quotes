@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "If you can see it in your mind, you can hold it in your mind."  
+> — **Steve Harvey**
 
 ---
 
