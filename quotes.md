@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."  
+> — **Wayne Dyer**
 
 ---
 
