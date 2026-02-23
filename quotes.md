@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can see it in your mind, you can hold it in your mind."  
-> — **Steve Harvey**
+> "Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything."  
+> — **Sydney Smith**
 
 ---
 

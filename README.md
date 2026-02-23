@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything."  
+> — **Sydney Smith**
 
 ---
 
