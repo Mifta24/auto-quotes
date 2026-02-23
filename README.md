@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always seek out the seed of triumph in every adversity."  
-> — **Og Mandino**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 
