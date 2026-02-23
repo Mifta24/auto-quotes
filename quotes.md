@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends."  
-> — **Albus Dumbledore**
+> "Always seek out the seed of triumph in every adversity."  
+> — **Og Mandino**
 
 ---
 
