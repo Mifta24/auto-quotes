@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's not about what it is, it's about what it can become."  
-> — **Dr. Seuss**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 22 February 2026 ⏳_
+_Last updated: 23 February 2026 ⏳_

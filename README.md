@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you."  
-> — **Norman Vincent Peale**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 22 February 2026 ⏳_
+_Last updated: 23 February 2026 ⏳_
