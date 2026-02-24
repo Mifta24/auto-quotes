@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "We will outstretch the hand if you unclench your fist."  
+> — **Barack Obama**
 
 ---
 
