@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people tend to become more successful because they are always thinking about their successes."  
-> — **Brian Tracy**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 

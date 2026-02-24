@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you stop questioning, you stop learning."  
-> — **Lolly Daskal**
+> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
+> — **Denis Waitley**
 
 ---
 
