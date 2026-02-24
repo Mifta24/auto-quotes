@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
+> — **Ralph Marston**
 
 ---
 
