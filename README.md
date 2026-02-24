@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude."  
-> — **Denis Waitley**
+> "We are shaped and fashioned by what we love."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

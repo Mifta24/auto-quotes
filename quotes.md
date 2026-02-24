@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy."  
-> — **Ralph Marston**
+> "We are shaped and fashioned by what we love."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
