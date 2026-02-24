@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are shaped and fashioned by what we love."  
-> — **Johann Wolfgang von Goethe**
+> "Most great people have achieved their greatest success just one step beyond their greatest failure."  
+> — **Napoleon Hill**
 
 ---
 
