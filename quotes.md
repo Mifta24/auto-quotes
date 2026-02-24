@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you stop questioning, you stop learning."  
-> — **Lolly Daskal**
+> "Successful people tend to become more successful because they are always thinking about their successes."  
+> — **Brian Tracy**
 
 ---
 
