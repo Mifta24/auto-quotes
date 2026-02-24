@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future."  
-> — **Nicolas Chamfort**
+> "Truth is like most opinions - best unexpressed."  
+> — **Kenneth Branagh**
 
 ---
 
