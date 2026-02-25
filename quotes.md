@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The man who removes a mountain begins by carrying away small stones."  
-> — **William Faulkner**
+> "If you believe you can, you can. If you believe you can't, then, well you can't."  
+> — **Celestine Chua**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who knows how to wait need make no concessions."  
-> — **Sigmund Freud**
+> "If you believe you can, you can. If you believe you can't, then, well you can't."  
+> — **Celestine Chua**
 
 ---
 
