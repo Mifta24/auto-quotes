@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Truth is like most opinions - best unexpressed."  
-> — **Kenneth Branagh**
+> "He who knows how to wait need make no concessions."  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 24 February 2026 ⏳_
+_Last updated: 25 February 2026 ⏳_

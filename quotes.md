@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We will outstretch the hand if you unclench your fist."  
-> — **Barack Obama**
+> "He who knows how to wait need make no concessions."  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 24 February 2026 ⏳_
+_Last updated: 25 February 2026 ⏳_
