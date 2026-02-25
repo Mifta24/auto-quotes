@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It isn't that they can't see the solution. It is that they can't see the problem."  
-> — **Gilbert Chesterton**
+> "Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on."  
+> — **Criss Jami**
 
 ---
 

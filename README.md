@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can handle rejection, you'll learn to get everything you want."  
-> — **Tony Robbins**
+> "Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on."  
+> — **Criss Jami**
 
 ---
 
