@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."  
-> — **Celestine Chua**
+> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
+> — **Charles Spurgeon**
 
 ---
 
