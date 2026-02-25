@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you believe you can, you can. If you believe you can't, then, well you can't."  
-> — **Celestine Chua**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
-> — **Charles Spurgeon**
+> "If you can handle rejection, you'll learn to get everything you want."  
+> — **Tony Robbins**
 
 ---
 
