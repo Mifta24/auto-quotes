@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can handle rejection, you'll learn to get everything you want."  
-> — **Tony Robbins**
+> "It isn't that they can't see the solution. It is that they can't see the problem."  
+> — **Gilbert Chesterton**
 
 ---
 
