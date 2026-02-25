@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Receive without complaint, Work with fate."  
-> — **Ming-Dao Deng**
+> "Success is built sequentially. It's one thing at a time."  
+> — **Gary Keller**
 
 ---
 
