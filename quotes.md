@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "Intelligent men are cruel. Stupid men are monstrously cruel."  
+> — **Jack London**
 
 ---
 
