@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mind is the creator of everything. You should therefore guide it to create only good."  
-> — **Paramahansa Yogananda**
+> "Being wrong opens us up to the possibility of change."  
+> — **Mark Manson**
 
 ---
 
