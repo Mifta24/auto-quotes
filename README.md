@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "Everyone thinks of changing the world, but no one thinks of changing himself."  
+> — **Leo Tolstoy**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all here for some special reason."  
-> — **Robin Sharma**
+> "Everyone thinks of changing the world, but no one thinks of changing himself."  
+> — **Leo Tolstoy**
 
 ---
 
