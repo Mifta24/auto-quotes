@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have a choice everyday regarding the attitude we will embrace for that day."  
-> — **Charles Swindoll**
+> "Never to suffer would never to have been blessed."  
+> — **Edgar Allan Poe**
 
 ---
 
