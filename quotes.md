@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone thinks of changing the world, but no one thinks of changing himself."  
-> — **Leo Tolstoy**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 
