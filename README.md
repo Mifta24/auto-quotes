@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mind is the creator of everything. You should therefore guide it to create only good."  
-> — **Paramahansa Yogananda**
+> "We have a choice everyday regarding the attitude we will embrace for that day."  
+> — **Charles Swindoll**
 
 ---
 

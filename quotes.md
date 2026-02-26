@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being wrong opens us up to the possibility of change."  
-> — **Mark Manson**
+> "We have a choice everyday regarding the attitude we will embrace for that day."  
+> — **Charles Swindoll**
 
 ---
 
