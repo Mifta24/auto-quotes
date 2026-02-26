@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 

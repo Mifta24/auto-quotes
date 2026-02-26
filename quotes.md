@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Intelligent men are cruel. Stupid men are monstrously cruel."  
-> — **Jack London**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 
