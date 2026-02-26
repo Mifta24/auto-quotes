@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "We are all here for some special reason."  
+> — **Robin Sharma**
 
 ---
 
