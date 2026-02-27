@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship takes time and energy if it's going to work."  
-> — **Betty White**
+> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
+> — **Kenji Miyazawa**
 
 ---
 
