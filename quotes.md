@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A heart is not judged by how much you love, but by how much you are loved by others."  
-> — **Judy Garland**
+> "It is easier to fight for one's principles than to live up to them. "  
+> — **Alfred Adler**
 
 ---
 
