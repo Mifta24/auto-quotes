@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others."  
-> — **Criss Jami**
+> "Love never keeps a man from pursuing his destiny."  
+> — **Paulo Coelho**
 
 ---
 
