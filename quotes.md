@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
-> — **Kenji Miyazawa**
+> "A heart is not judged by how much you love, but by how much you are loved by others."  
+> — **Judy Garland**
 
 ---
 
