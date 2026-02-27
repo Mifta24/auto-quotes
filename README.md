@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A heart is not judged by how much you love, but by how much you are loved by others."  
-> — **Judy Garland**
+> "To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others."  
+> — **Criss Jami**
 
 ---
 
