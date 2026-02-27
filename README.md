@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others."  
-> — **Criss Jami**
+> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
+> — **Theodore Roosevelt**
 
 ---
 
