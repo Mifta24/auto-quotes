@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone thinks of changing the world, but no one thinks of changing himself."  
-> — **Leo Tolstoy**
+> "Friendship takes time and energy if it's going to work."  
+> — **Betty White**
 
 ---
 
-_Last updated: 26 February 2026 ⏳_
+_Last updated: 27 February 2026 ⏳_
