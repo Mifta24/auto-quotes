@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
-> — **Theodore Roosevelt**
+> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
+> — **Socrates**
 
 ---
 
