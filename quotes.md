@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is always right to do what is right."  
-> — **Martin Luther King, Jr.**
+> "If we are not able to smile, then the world will not have peace."  
+> — **Thich Nhat Hanh**
 
 ---
 
