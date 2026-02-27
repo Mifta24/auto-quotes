@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far and away the best prize that life has to offer is the chance to work hard at work worth doing."  
-> — **Theodore Roosevelt**
+> "The time is always right to do what is right."  
+> — **Martin Luther King, Jr.**
 
 ---
 
