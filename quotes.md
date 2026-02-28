@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
-> — **John Eliot**
+> "Sometimes good things fall apart so better things can fall together."  
+> — **Marilyn Monroe**
 
 ---
 
