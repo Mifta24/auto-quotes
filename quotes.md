@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
-> — **Steve Harvey**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make each day a new horizon."  
-> — **Christopher McCandless**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
