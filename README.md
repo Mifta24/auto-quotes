@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "I love fools' experiments. I am always making them."  
+> — **Charles Darwin**
 
 ---
 
