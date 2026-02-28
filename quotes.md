@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is what you make it. Always has been, always will be."  
-> — **Eleanor Roosevelt**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 

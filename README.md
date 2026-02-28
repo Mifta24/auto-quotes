@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."  
-> — **Naval Ravikant**
+> "Make each day a new horizon."  
+> — **Christopher McCandless**
 
 ---
 
