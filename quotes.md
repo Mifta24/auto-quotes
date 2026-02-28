@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "The fear of death is more to be feared, than death itself."  
+> — **Publilius Syrus**
 
 ---
 
