@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I love fools' experiments. I am always making them."  
-> — **Charles Darwin**
+> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
+> — **John Eliot**
 
 ---
 
