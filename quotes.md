@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes good things fall apart so better things can fall together."  
-> — **Marilyn Monroe**
+> "I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive."  
+> — **Joan Rivers**
 
 ---
 
