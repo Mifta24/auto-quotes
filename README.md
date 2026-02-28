@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The time is always right to do what is right."  
-> — **Martin Luther King, Jr.**
+> "If it entertains you now but will bore you someday, it's a distraction. Keep looking."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 27 February 2026 ⏳_
+_Last updated: 28 February 2026 ⏳_
