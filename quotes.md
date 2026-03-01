@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is always right."  
-> — **Ming-Dao Deng**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
