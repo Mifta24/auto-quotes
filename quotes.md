@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The universe doesn't allow perfection."  
-> — **Stephen Hawking**
+> "Who you are is always right."  
+> — **Ming-Dao Deng**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "Who you are is always right."  
+> — **Ming-Dao Deng**
 
 ---
 
