@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
+> — **Criss Jami**
 
 ---
 
