@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
-> — **Les Brown**
+> "Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today."  
+> — **Thich Nhat Hanh**
 
 ---
 
