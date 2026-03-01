@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "The universe doesn't allow perfection."  
+> — **Stephen Hawking**
 
 ---
 
