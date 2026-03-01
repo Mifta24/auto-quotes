@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
-> — **Criss Jami**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 
