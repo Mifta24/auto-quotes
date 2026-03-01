@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today."  
-> — **Thich Nhat Hanh**
+> "It is not titles that honour men, but men that honour titles."  
+> — **Niccolo Machiavelli**
 
 ---
 
