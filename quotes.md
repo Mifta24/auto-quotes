@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not titles that honour men, but men that honour titles."  
-> — **Niccolo Machiavelli**
+> "Nothing is really work unless you would rather be doing something else. "  
+> — **James Matthew Barrie**
 
 ---
 
