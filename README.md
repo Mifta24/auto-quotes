@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Who you are is always right."  
-> — **Ming-Dao Deng**
+> "Don't spend major time on minor things."  
+> — **Jim Rohn**
 
 ---
 
-_Last updated: 01 March 2026 ⏳_
+_Last updated: 02 March 2026 ⏳_

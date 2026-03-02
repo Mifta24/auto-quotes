@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We live only now. Everything else is either passed or is unknown."  
-> — **Marcus Aurelius**
+> "Don't spend major time on minor things."  
+> — **Jim Rohn**
 
 ---
 
-_Last updated: 01 March 2026 ⏳_
+_Last updated: 02 March 2026 ⏳_
