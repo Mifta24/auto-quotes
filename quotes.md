@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "Never spend your money before you have earned it."  
+> — **Thomas Jefferson**
 
 ---
 
