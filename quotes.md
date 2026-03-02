@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you judge another, you do not define them, you define yourself"  
-> — **Wayne Dyer**
+> "Surround yourself with only people who are going to lift you higher. "  
+> — **Oprah Winfrey**
 
 ---
 

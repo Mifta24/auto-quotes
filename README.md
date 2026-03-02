@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live in the sunshine, swim the sea, drink the wild air."  
-> — **Ralph Waldo Emerson**
+> "Surround yourself with only people who are going to lift you higher. "  
+> — **Oprah Winfrey**
 
 ---
 
