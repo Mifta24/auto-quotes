@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself with only people who are going to lift you higher. "  
-> — **Oprah Winfrey**
+> "When one door closes another door opens. "  
+> — **Alexander Graham Bell**
 
 ---
 
