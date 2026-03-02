@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A different result requires doing something different."  
-> — **Gary Keller**
+> "It doesn't matter how slow you go, as long as you don't stop."  
+> — **Confucius**
 
 ---
 

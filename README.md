@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't spend major time on minor things."  
-> — **Jim Rohn**
+> "It doesn't matter how slow you go, as long as you don't stop."  
+> — **Confucius**
 
 ---
 
