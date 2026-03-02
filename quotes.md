@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When one door closes another door opens. "  
-> — **Alexander Graham Bell**
+> "Don't be afraid to go slowly. Be afraid of stopping."  
+> — **Zen Proverb**
 
 ---
 

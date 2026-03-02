@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself with only people who are going to lift you higher. "  
-> — **Oprah Winfrey**
+> "Don't be afraid to go slowly. Be afraid of stopping."  
+> — **Zen Proverb**
 
 ---
 
