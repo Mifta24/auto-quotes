@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter how slow you go, as long as you don't stop."  
-> — **Confucius**
+> "Live in the sunshine, swim the sea, drink the wild air."  
+> — **Ralph Waldo Emerson**
 
 ---
 
