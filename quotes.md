@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't spend major time on minor things."  
-> — **Jim Rohn**
+> "A different result requires doing something different."  
+> — **Gary Keller**
 
 ---
 
