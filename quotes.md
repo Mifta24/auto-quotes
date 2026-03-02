@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter how slow you go, as long as you don't stop."  
-> — **Confucius**
+> "The trouble with the rat race is that even if you win, you're still a rat."  
+> — **Lily Tomlin**
 
 ---
 
