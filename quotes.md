@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "Always be a first rate version of yourself and not a second rate version of someone else."  
+> — **Judy Garland**
 
 ---
 

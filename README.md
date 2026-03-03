@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important thing in communication is to hear what isn't being said."  
-> — **Peter Drucker**
+> "Always be a first rate version of yourself and not a second rate version of someone else."  
+> — **Judy Garland**
 
 ---
 
