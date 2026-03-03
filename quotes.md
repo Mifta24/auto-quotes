@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
-> — **Zen Proverb**
+> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard."  
+> — **Colin Powell**
 
 ---
 
