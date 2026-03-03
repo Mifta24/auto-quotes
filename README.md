@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "The primary cause of unhappiness is never the situation but your thoughts about it."  
+> — **Eckhart Tolle**
 
 ---
 
