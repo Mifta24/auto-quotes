@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important thing in communication is to hear what isn't being said."  
-> — **Peter Drucker**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 
