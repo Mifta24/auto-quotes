@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard."  
-> — **Colin Powell**
+> "Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend."  
+> — **Zen Proverb**
 
 ---
 
