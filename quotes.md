@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always be a first rate version of yourself and not a second rate version of someone else."  
-> — **Judy Garland**
+> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
+> — **Zen Proverb**
 
 ---
 
