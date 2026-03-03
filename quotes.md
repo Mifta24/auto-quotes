@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "The shoe that fits one person pinches another; there is no recipe for living that suits all cases."  
+> — **Carl Jung**
 
 ---
 
