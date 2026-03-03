@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way."  
+> — **Osho**
 
 ---
 
