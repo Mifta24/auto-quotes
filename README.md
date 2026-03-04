@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has more imagination than we carry in our dreams."  
-> — **Christopher Columbus**
+> "Nothing is really work unless you would rather be doing something else. "  
+> — **James Matthew Barrie**
 
 ---
 
