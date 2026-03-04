@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How to get more opportunity: Create more opportunity for others."  
-> — **Jack Butcher**
+> "Take responsibility of your own happiness, never put it in other people's hands."  
+> — **Roy T. Bennett**
 
 ---
 
