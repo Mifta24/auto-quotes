@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we know how to adapt, we end up being superior."  
-> — **Ming-Dao Deng**
+> "How to get more opportunity: Create more opportunity for others."  
+> — **Jack Butcher**
 
 ---
 

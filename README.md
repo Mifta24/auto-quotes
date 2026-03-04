@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "How to get more opportunity: Create more opportunity for others."  
+> — **Jack Butcher**
 
 ---
 
