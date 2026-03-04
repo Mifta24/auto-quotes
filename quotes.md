@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing endures but change."  
-> — **Heraclitus**
+> "Giving back involves a certain amount of giving up."  
+> — **Colin Powell**
 
 ---
 
