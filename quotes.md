@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has more imagination than we carry in our dreams."  
-> — **Christopher Columbus**
+> "Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability."  
+> — **John Wooden**
 
 ---
 
