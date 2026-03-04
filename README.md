@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The primary cause of unhappiness is never the situation but your thoughts about it."  
-> — **Eckhart Tolle**
+> "Nothing endures but change."  
+> — **Heraclitus**
 
 ---
 
-_Last updated: 03 March 2026 ⏳_
+_Last updated: 04 March 2026 ⏳_
