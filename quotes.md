@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "If we know how to adapt, we end up being superior."  
+> — **Ming-Dao Deng**
 
 ---
 
