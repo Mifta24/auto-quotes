@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 

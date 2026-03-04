@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
-> — **Alfred Adler**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 
