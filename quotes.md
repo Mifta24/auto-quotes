@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts."  
+> — **Alfred Adler**
 
 ---
 
