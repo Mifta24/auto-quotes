@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing endures but change."  
-> — **Heraclitus**
+> "Life has more imagination than we carry in our dreams."  
+> — **Christopher Columbus**
 
 ---
 

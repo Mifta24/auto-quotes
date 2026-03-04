@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving back involves a certain amount of giving up."  
-> — **Colin Powell**
+> "Life has more imagination than we carry in our dreams."  
+> — **Christopher Columbus**
 
 ---
 
