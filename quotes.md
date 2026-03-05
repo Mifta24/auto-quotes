@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identify your problems, but give your power and energy to solutions."  
-> — **Tony Robbins**
+> "Let us always meet each other with smile, for the smile is the beginning of love."  
+> — **Mother Teresa**
 
 ---
 
