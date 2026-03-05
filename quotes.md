@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter what you do, only how well you do it."  
-> — **Dan Millman**
+> "Identify your problems, but give your power and energy to solutions."  
+> — **Tony Robbins**
 
 ---
 

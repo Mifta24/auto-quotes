@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is worthwhile in itself."  
-> — **Amelia Earhart**
+> "Identify your problems, but give your power and energy to solutions."  
+> — **Tony Robbins**
 
 ---
 
