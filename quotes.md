@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no such thing as a great talent without great willpower."  
-> — **Honore de Balzac**
+> "Among the things you can give and still keep are your word, a smile, and a grateful heart."  
+> — **Zig Ziglar**
 
 ---
 

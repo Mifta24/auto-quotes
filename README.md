@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real friend is one who walks in when the rest of the world walks out."  
-> — **Unknown**
+> "Among the things you can give and still keep are your word, a smile, and a grateful heart."  
+> — **Zig Ziglar**
 
 ---
 
