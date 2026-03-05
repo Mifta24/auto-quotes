@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "How to get more opportunity: Create more opportunity for others."  
-> — **Jack Butcher**
+> "Adventure is worthwhile in itself."  
+> — **Amelia Earhart**
 
 ---
 
-_Last updated: 04 March 2026 ⏳_
+_Last updated: 05 March 2026 ⏳_

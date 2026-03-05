@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Take responsibility of your own happiness, never put it in other people's hands."  
-> — **Roy T. Bennett**
+> "Adventure is worthwhile in itself."  
+> — **Amelia Earhart**
 
 ---
 
-_Last updated: 04 March 2026 ⏳_
+_Last updated: 05 March 2026 ⏳_
