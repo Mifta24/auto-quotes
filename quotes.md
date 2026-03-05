@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide what your truth is. Then live it."  
-> — **Kamal Ravikant**
+> "To be able to forget means sanity."  
+> — **Jack London**
 
 ---
 
