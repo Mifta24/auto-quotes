@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be able to forget means sanity."  
-> — **Jack London**
+> "Real growth comes through intense, difficult, and challenging situations."  
+> — **Kamal Ravikant**
 
 ---
 
