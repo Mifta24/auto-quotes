@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is worthwhile in itself."  
-> — **Amelia Earhart**
+> "It doesn't matter what you do, only how well you do it."  
+> — **Dan Millman**
 
 ---
 
