@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identify your problems, but give your power and energy to solutions."  
-> — **Tony Robbins**
+> "A real friend is one who walks in when the rest of the world walks out."  
+> — **Unknown**
 
 ---
 

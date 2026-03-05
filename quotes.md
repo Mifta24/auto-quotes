@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let us always meet each other with smile, for the smile is the beginning of love."  
-> — **Mother Teresa**
+> "A real friend is one who walks in when the rest of the world walks out."  
+> — **Unknown**
 
 ---
 
