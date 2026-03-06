@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars. "  
-> — **Oscar Wilde**
+> "You don't have to control your thoughts; you just have to stop letting them control you."  
+> — **Dan Millman**
 
 ---
 
