@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In peace, sons bury their fathers. In war, fathers bury their sons. "  
-> — **Herodotus**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 

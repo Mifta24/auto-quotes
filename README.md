@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live in the sunshine, swim the sea, drink the wild air."  
-> — **Ralph Waldo Emerson**
+> "We are all in the gutter, but some of us are looking at the stars. "  
+> — **Oscar Wilde**
 
 ---
 
