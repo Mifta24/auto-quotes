@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live in the sunshine, swim the sea, drink the wild air."  
-> — **Ralph Waldo Emerson**
+> "In peace, sons bury their fathers. In war, fathers bury their sons. "  
+> — **Herodotus**
 
 ---
 
