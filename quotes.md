@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Showing off is the fool's idea of glory. "  
-> — **Bruce Lee**
+> "If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes."  
+> — **Andrew Carnegie**
 
 ---
 

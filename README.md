@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society."  
-> — **Jiddu Krishnamurti**
+> "If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes."  
+> — **Andrew Carnegie**
 
 ---
 
