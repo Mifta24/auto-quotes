@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To be able to forget means sanity."  
-> — **Jack London**
+> "Live in the sunshine, swim the sea, drink the wild air."  
+> — **Ralph Waldo Emerson**
 
 ---
 
-_Last updated: 05 March 2026 ⏳_
+_Last updated: 06 March 2026 ⏳_
