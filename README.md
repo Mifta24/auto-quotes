@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hardly anybody recognizes the most significant moments of their life at the time they happen."  
-> — **W.P. Kinsella**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest weariness comes from work not done."  
-> — **Eric Hoffer**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 
