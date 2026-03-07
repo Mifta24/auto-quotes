@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can see it in your mind, you can hold it in your mind."  
-> — **Steve Harvey**
+> "Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. "  
+> — **Paramahansa Yogananda**
 
 ---
 
