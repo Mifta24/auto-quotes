@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes."  
-> — **Andrew Carnegie**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
-_Last updated: 06 March 2026 ⏳_
+_Last updated: 07 March 2026 ⏳_
