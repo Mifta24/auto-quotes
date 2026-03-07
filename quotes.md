@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Avoiding failure is to avoid progress."  
-> — **Unknown**
+> "If you can see it in your mind, you can hold it in your mind."  
+> — **Steve Harvey**
 
 ---
 
