@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "Hardly anybody recognizes the most significant moments of their life at the time they happen."  
+> — **W.P. Kinsella**
 
 ---
 

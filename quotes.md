@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The friendship that can cease has never been real. "  
-> — **St. Jerome**
+> "Hardly anybody recognizes the most significant moments of their life at the time they happen."  
+> — **W.P. Kinsella**
 
 ---
 
