@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the sky. Everything else - it's just the weather."  
-> — **Pema Chodron**
+> "Surround yourself only with people who are going to take you higher."  
+> — **Oprah Winfrey**
 
 ---
 
