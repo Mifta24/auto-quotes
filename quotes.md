@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted."  
-> — **Robert Collier**
+> "Loyalty and friendship are the most precious possessions a man can have."  
+> — **Herbert Hoover**
 
 ---
 
