@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loyalty and friendship are the most precious possessions a man can have."  
-> — **Herbert Hoover**
+> "Successful people tend to become more successful because they are always thinking about their successes."  
+> — **Brian Tracy**
 
 ---
 
