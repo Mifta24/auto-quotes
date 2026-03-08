@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted."  
+> — **Robert Collier**
 
 ---
 
