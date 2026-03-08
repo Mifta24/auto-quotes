@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it."  
-> — **James Matthew Barrie**
+> "The only way it gets better for you is when you get better. Better is not something you wish, it's something you become."  
+> — **Jim Rohn**
 
 ---
 

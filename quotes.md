@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All human beings can alter their lives by altering their attitudes."  
-> — **Andrew Carnegie**
+> "The only way it gets better for you is when you get better. Better is not something you wish, it's something you become."  
+> — **Jim Rohn**
 
 ---
 
