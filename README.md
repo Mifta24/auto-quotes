@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loyalty and friendship are the most precious possessions a man can have."  
-> — **Herbert Hoover**
+> "An un-examined life is not worth living."  
+> — **Socrates**
 
 ---
 
