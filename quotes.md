@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An un-examined life is not worth living."  
-> — **Socrates**
+> "To the world you may be one person; but to one person you may be the world."  
+> — **Dr. Seuss**
 
 ---
 
