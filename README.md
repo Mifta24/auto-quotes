@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way it gets better for you is when you get better. Better is not something you wish, it's something you become."  
-> — **Jim Rohn**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 
