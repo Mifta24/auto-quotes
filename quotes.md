@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."  
-> — **Gurbaksh Chahal**
+> "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you."  
+> — **Simon Sinek**
 
 ---
 
