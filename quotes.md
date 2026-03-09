@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 

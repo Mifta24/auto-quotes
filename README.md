@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
-> — **Gary Keller**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
