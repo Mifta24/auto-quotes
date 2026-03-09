@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
-> — **Gary Keller**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 
