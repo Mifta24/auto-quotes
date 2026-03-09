@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "The two most powerful warriors are patience and time."  
+> — **Leo Tolstoy**
 
 ---
 
