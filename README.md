@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you."  
-> — **Simon Sinek**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 
