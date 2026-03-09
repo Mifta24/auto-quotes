@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 

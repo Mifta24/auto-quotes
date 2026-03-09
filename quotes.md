@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The two most powerful warriors are patience and time."  
-> — **Leo Tolstoy**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 
