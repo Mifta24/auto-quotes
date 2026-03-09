@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To the world you may be one person; but to one person you may be the world."  
-> — **Dr. Seuss**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 
-_Last updated: 08 March 2026 ⏳_
+_Last updated: 09 March 2026 ⏳_
