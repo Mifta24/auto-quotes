@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change happens when the pain of holding on becomes greater than the fear of letting go."  
-> — **Spencer Johnson**
+> "You must be willing to do what others won't do, to have what others won't have."  
+> — **Les Brown**
 
 ---
 
