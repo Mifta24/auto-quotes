@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change happens when the pain of holding on becomes greater than the fear of letting go."  
-> — **Spencer Johnson**
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
+> — **Dogen**
 
 ---
 

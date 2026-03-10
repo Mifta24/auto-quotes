@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must be willing to do what others won't do, to have what others won't have."  
-> — **Les Brown**
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
+> — **Dogen**
 
 ---
 
