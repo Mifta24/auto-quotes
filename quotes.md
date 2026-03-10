@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Within every desire is the mechanics of its fulfillment."  
-> — **Deepak Chopra**
+> "Change happens when the pain of holding on becomes greater than the fear of letting go."  
+> — **Spencer Johnson**
 
 ---
 

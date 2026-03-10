@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "Change happens when the pain of holding on becomes greater than the fear of letting go."  
+> — **Spencer Johnson**
 
 ---
 
