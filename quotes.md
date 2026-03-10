@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
-> — **Og Mandino**
+> "Trust your instincts: my first reaction is almost invariably the right one.  "  
+> — **Estee Lauder**
 
 ---
 
