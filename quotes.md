@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People rarely succeed unless they have fun in what they are doing."  
-> — **Dale Carnegie**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
