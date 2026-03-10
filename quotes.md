@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is achieved and maintained by those who try and keep trying. "  
-> — **W. Clement Stone**
+> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
+> — **Og Mandino**
 
 ---
 

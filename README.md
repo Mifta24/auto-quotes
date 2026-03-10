@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
-> — **Dogen**
+> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
+> — **Og Mandino**
 
 ---
 
