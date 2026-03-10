@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
-> — **Dogen**
+> "Success is achieved and maintained by those who try and keep trying. "  
+> — **W. Clement Stone**
 
 ---
 
