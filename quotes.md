@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "Within every desire is the mechanics of its fulfillment."  
+> — **Deepak Chopra**
 
 ---
 
