@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
-> — **Thomas Edison**
+> "Difficult roads often lead to beautiful destinations."  
+> — **Unknown**
 
 ---
 

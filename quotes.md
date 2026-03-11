@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must not sit down and wait for miracles. Up and be going!"  
-> — **John Eliot**
+> "Difficult roads often lead to beautiful destinations."  
+> — **Unknown**
 
 ---
 
