@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
-> — **Thomas Edison**
+> "We must not sit down and wait for miracles. Up and be going!"  
+> — **John Eliot**
 
 ---
 
