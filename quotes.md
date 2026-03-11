@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not use life to give life to death. Do not use death to bring death to life."  
-> — **Zhuangzi**
+> "The quality of your commitments will determine the course of your life."  
+> — **Ralph Marston**
 
 ---
 

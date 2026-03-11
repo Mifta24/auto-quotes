@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult roads often lead to beautiful destinations."  
-> — **Unknown**
+> "The quality of your commitments will determine the course of your life."  
+> — **Ralph Marston**
 
 ---
 
