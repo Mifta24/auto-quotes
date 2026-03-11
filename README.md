@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear does not have any special power unless you empower it by submitting to it."  
-> — **Les Brown**
+> "Turn your wounds into wisdom. "  
+> — **Oprah Winfrey**
 
 ---
 
