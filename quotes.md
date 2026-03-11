@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your commitments will determine the course of your life."  
-> — **Ralph Marston**
+> "Those who know, do. Those that understand, teach."  
+> — **Aristotle**
 
 ---
 
