@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear does not have any special power unless you empower it by submitting to it."  
-> — **Les Brown**
+> "I've always tried to go a step past wherever people expected me to end up."  
+> — **Beverly Sills**
 
 ---
 
