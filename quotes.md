@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words without actions are the assassins of idealism."  
-> — **Herbert Hoover**
+> "Opportunity is missed by most people because it is dressed in overalls and looks like work."  
+> — **Thomas Edison**
 
 ---
 
