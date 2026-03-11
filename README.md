@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new."  
-> — **Og Mandino**
+> "Fear does not have any special power unless you empower it by submitting to it."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 10 March 2026 ⏳_
+_Last updated: 11 March 2026 ⏳_

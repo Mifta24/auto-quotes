@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Trust your instincts: my first reaction is almost invariably the right one.  "  
-> — **Estee Lauder**
+> "Fear does not have any special power unless you empower it by submitting to it."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 10 March 2026 ⏳_
+_Last updated: 11 March 2026 ⏳_
