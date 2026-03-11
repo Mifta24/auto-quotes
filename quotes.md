@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your wounds into wisdom. "  
-> — **Oprah Winfrey**
+> "Words without actions are the assassins of idealism."  
+> — **Herbert Hoover**
 
 ---
 
