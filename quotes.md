@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A lot of people have gone further than they thought they could because someone else thought they could."  
-> — **Zig Ziglar**
+> "The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome."  
+> — **Tony Robbins**
 
 ---
 
