@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best fighter is never angry."  
-> — **Lao Tzu**
+> "Obstacles are those frightful things you see when you take your eyes off your goal."  
+> — **Henry Ford**
 
 ---
 

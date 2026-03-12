@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be poor to know the luxury of giving."  
-> — **George Eliot**
+> "Obstacles are those frightful things you see when you take your eyes off your goal."  
+> — **Henry Ford**
 
 ---
 
