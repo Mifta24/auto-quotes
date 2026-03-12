@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome."  
-> — **Tony Robbins**
+> "Stay away from people who makes you feel like you are wasting their time."  
+> — **Paulo Coelho**
 
 ---
 

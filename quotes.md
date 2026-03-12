@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "FOCUS - Follow One Course Until Successful"  
-> — **Robert Kiyosaki**
+> "Stay away from people who makes you feel like you are wasting their time."  
+> — **Paulo Coelho**
 
 ---
 
