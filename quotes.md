@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best fighter is never angry."  
-> — **Lao Tzu**
+> "One must be poor to know the luxury of giving."  
+> — **George Eliot**
 
 ---
 
