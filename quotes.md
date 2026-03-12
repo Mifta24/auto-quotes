@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stay away from people who makes you feel like you are wasting their time."  
-> — **Paulo Coelho**
+> "Discipline yourself, and others won't need to."  
+> — **John Wooden**
 
 ---
 
