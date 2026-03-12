@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The quality of your commitments will determine the course of your life."  
-> — **Ralph Marston**
+> "It is in changing that we find purpose."  
+> — **Heraclitus**
 
 ---
 
-_Last updated: 11 March 2026 ⏳_
+_Last updated: 12 March 2026 ⏳_

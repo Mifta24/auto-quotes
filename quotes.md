@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who know, do. Those that understand, teach."  
-> — **Aristotle**
+> "It is in changing that we find purpose."  
+> — **Heraclitus**
 
 ---
 
-_Last updated: 11 March 2026 ⏳_
+_Last updated: 12 March 2026 ⏳_
