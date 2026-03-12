@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Discipline yourself, and others won't need to."  
-> — **John Wooden**
+> "The best fighter is never angry."  
+> — **Lao Tzu**
 
 ---
 
