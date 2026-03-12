@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is in changing that we find purpose."  
-> — **Heraclitus**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
