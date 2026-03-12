@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles are those frightful things you see when you take your eyes off your goal."  
-> — **Henry Ford**
+> "You'll see it when you believe it. "  
+> — **Wayne Dyer**
 
 ---
 
