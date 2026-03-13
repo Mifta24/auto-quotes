@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big and dare to fail."  
-> — **Norman Vaughan**
+> "Sometimes out of your biggest misery, comes your greatest gain."  
+> — **Steve Harvey**
 
 ---
 
