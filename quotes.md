@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You'll see it when you believe it. "  
-> — **Wayne Dyer**
+> "The only thing new in the world is the history you do not know."  
+> — **Harry S. Truman**
 
 ---
 
-_Last updated: 12 March 2026 ⏳_
+_Last updated: 13 March 2026 ⏳_
