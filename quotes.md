@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't everything, but wanting to win is."  
-> — **Vince Lombardi**
+> "Dreams have only one owner at a time. That's why dreamers are lonely."  
+> — **William Faulkner**
 
 ---
 
