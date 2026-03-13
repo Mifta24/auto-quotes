@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is hard at first, messy in the middle and gorgeous at the end."  
-> — **Robin Sharma**
+> "Dream big and dare to fail."  
+> — **Norman Vaughan**
 
 ---
 

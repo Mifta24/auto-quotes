@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly think about how you could be doing things better."  
-> — **Elon Musk**
+> "Dream big and dare to fail."  
+> — **Norman Vaughan**
 
 ---
 
