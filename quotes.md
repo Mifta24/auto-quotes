@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly think about how you could be doing things better."  
-> — **Elon Musk**
+> "Change is hard at first, messy in the middle and gorgeous at the end."  
+> — **Robin Sharma**
 
 ---
 
