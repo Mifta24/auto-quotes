@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only thing new in the world is the history you do not know."  
-> — **Harry S. Truman**
+> "Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. "  
+> — **Martin Luther**
 
 ---
 
