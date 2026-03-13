@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Debt is the slavery of the free."  
-> — **Publilius Syrus**
+> "Constantly think about how you could be doing things better."  
+> — **Elon Musk**
 
 ---
 

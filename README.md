@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no self-discovery without pain and loss."  
-> — **Anita Krizzan**
+> "Constantly think about how you could be doing things better."  
+> — **Elon Musk**
 
 ---
 
