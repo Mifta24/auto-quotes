@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dream big and dare to fail."  
-> — **Norman Vaughan**
+> "Winning isn't everything, but wanting to win is."  
+> — **Vince Lombardi**
 
 ---
 

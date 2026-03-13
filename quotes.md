@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes out of your biggest misery, comes your greatest gain."  
-> — **Steve Harvey**
+> "Winning isn't everything, but wanting to win is."  
+> — **Vince Lombardi**
 
 ---
 
