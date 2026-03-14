@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best revenge is to be unlike him who performed the injury."  
-> — **Marcus Aurelius**
+> "You make your own luck if you stay at it long enough."  
+> — **Naval Ravikant**
 
 ---
 
