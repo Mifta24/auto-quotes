@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
-> — **Gary Keller**
+> "The best revenge is to be unlike him who performed the injury."  
+> — **Marcus Aurelius**
 
 ---
 

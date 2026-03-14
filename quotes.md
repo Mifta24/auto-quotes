@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him."  
-> — **Confucius**
+> "The best revenge is to be unlike him who performed the injury."  
+> — **Marcus Aurelius**
 
 ---
 
