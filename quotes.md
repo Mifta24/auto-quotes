@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever your heart clings to and confides in, that is really your God."  
-> — **Martin Luther**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 

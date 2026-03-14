@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no self-discovery without pain and loss."  
-> — **Anita Krizzan**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 
