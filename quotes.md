@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no self-discovery without pain and loss."  
-> — **Anita Krizzan**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 
