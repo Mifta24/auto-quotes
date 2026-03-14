@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Winning isn't everything, but wanting to win is."  
-> — **Vince Lombardi**
+> "Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away."  
+> — **John Lennon**
 
 ---
 
-_Last updated: 13 March 2026 ⏳_
+_Last updated: 14 March 2026 ⏳_
