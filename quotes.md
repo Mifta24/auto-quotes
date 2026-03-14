@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away."  
-> — **John Lennon**
+> "A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions."  
+> — **Ming-Dao Deng**
 
 ---
 
