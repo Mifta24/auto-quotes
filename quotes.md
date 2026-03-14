@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
-> — **Gary Keller**
+> "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him."  
+> — **Confucius**
 
 ---
 
