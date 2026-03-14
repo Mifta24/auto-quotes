@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best revenge is to be unlike him who performed the injury."  
-> — **Marcus Aurelius**
+> "If you aren't sure which way to do something, do it both ways and see which works better."  
+> — **John Carmack**
 
 ---
 

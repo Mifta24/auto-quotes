@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You make your own luck if you stay at it long enough."  
-> — **Naval Ravikant**
+> "If you aren't sure which way to do something, do it both ways and see which works better."  
+> — **John Carmack**
 
 ---
 
