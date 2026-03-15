@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you aren't sure which way to do something, do it both ways and see which works better."  
-> — **John Carmack**
+> "Adults are just children who earn money."  
+> — **Kenneth Branagh**
 
 ---
 
-_Last updated: 14 March 2026 ⏳_
+_Last updated: 15 March 2026 ⏳_

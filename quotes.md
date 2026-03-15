@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We tend to live up to our expectations."  
-> — **Earl Nightingale**
+> "Adults are just children who earn money."  
+> — **Kenneth Branagh**
 
 ---
 
-_Last updated: 14 March 2026 ⏳_
+_Last updated: 15 March 2026 ⏳_
