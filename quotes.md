@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adults are just children who earn money."  
-> — **Kenneth Branagh**
+> "I can think of nothing less pleasurable than a life devoted to pleasure."  
+> — **John D. Rockefeller**
 
 ---
 
