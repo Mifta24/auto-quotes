@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
-> — **Zig Ziglar**
+> "Not all of us can do great things. But we can do small things with great love."  
+> — **Mother Teresa**
 
 ---
 
