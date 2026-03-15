@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adults are just children who earn money."  
-> — **Kenneth Branagh**
+> "A day without laughter is a day wasted."  
+> — **Charlie Chaplin**
 
 ---
 

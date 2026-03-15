@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can think of nothing less pleasurable than a life devoted to pleasure."  
-> — **John D. Rockefeller**
+> "A day without laughter is a day wasted."  
+> — **Charlie Chaplin**
 
 ---
 
