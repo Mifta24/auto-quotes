@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
-> — **Dan Millman**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 

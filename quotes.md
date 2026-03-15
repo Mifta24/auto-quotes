@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 
