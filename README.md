@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day without laughter is a day wasted."  
-> — **Charlie Chaplin**
+> "Growth is in a series of mistakes. That's the only way you learn."  
+> — **Steve Harvey**
 
 ---
 
