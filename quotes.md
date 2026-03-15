@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."  
-> — **Steve Harvey**
+> "It is easy to discover what another has discovered before."  
+> — **Christopher Columbus**
 
 ---
 
