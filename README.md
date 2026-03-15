@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."  
-> — **Steve Harvey**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 

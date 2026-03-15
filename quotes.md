@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easy to discover what another has discovered before."  
-> — **Christopher Columbus**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
