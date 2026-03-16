@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Where does a thought go when it's forgotten?"  
-> — **Sigmund Freud**
+> "Teachers open the door. You enter by yourself. "  
+> — **Chinese Proverb**
 
 ---
 
