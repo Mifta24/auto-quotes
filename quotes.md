@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Not all of us can do great things. But we can do small things with great love."  
-> — **Mother Teresa**
+> "Where does a thought go when it's forgotten?"  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 15 March 2026 ⏳_
+_Last updated: 16 March 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
-> — **Zig Ziglar**
+> "Where does a thought go when it's forgotten?"  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 15 March 2026 ⏳_
+_Last updated: 16 March 2026 ⏳_
