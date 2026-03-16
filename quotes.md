@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return."  
-> — **Nelson Mandela**
+> "He who possesses most must be most afraid of loss."  
+> — **Leonardo da Vinci**
 
 ---
 

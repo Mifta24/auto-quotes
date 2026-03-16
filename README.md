@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who can make you believe absurdities can make you commit atrocities. "  
-> — **Voltaire**
+> "He who possesses most must be most afraid of loss."  
+> — **Leonardo da Vinci**
 
 ---
 
