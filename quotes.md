@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All our dreams can come true, if we have the courage to pursue them."  
-> — **Walt Disney**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who possesses most must be most afraid of loss."  
-> — **Leonardo da Vinci**
+> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
+> — **Eckhart Tolle**
 
 ---
 
