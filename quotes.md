@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who possesses most must be most afraid of loss."  
-> — **Leonardo da Vinci**
+> "All our dreams can come true, if we have the courage to pursue them."  
+> — **Walt Disney**
 
 ---
 
