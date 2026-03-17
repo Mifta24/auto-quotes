@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who has ever made anything of importance was disciplined."  
-> — **Andrew Hendrixson**
+> "What keeps life fascinating is the constant creativity of the soul."  
+> — **Deepak Chopra**
 
 ---
 
