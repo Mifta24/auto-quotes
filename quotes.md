@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The healthiest response to life is joy."  
-> — **Deepak Chopra**
+> "Anyone who has ever made anything of importance was disciplined."  
+> — **Andrew Hendrixson**
 
 ---
 

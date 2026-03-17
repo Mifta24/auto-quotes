@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Still your waters."  
-> — **Josh Waitzkin**
+> "Anyone who has ever made anything of importance was disciplined."  
+> — **Andrew Hendrixson**
 
 ---
 
