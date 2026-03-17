@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every act of creation is first an act of destruction."  
-> — **Pablo Picasso**
+> "Still your waters."  
+> — **Josh Waitzkin**
 
 ---
 
