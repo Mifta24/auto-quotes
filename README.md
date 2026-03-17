@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 16 March 2026 ⏳_
+_Last updated: 17 March 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When it is dark enough, you can see the stars."  
-> — **Ralph Waldo Emerson**
+> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 16 March 2026 ⏳_
+_Last updated: 17 March 2026 ⏳_
