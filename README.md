@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who has ever made anything of importance was disciplined."  
-> — **Andrew Hendrixson**
+> "Life is not a problem to be solved, but a reality to be experienced."  
+> — **Soren Kierkegaard**
 
 ---
 

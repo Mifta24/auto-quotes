@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What keeps life fascinating is the constant creativity of the soul."  
-> — **Deepak Chopra**
+> "Life is not a problem to be solved, but a reality to be experienced."  
+> — **Soren Kierkegaard**
 
 ---
 
