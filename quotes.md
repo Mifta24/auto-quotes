@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Still your waters."  
-> — **Josh Waitzkin**
+> "The healthiest response to life is joy."  
+> — **Deepak Chopra**
 
 ---
 
