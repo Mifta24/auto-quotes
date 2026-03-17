@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not a problem to be solved, but a reality to be experienced."  
-> — **Soren Kierkegaard**
+> "Optimism, when applied to your life, develops strength and peace within you."  
+> — **Norman Vincent Peale**
 
 ---
 
