@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Optimism, when applied to your life, develops strength and peace within you."  
-> — **Norman Vincent Peale**
+> "A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you."  
+> — **Bob Proctor**
 
 ---
 
