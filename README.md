@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Optimism, when applied to your life, develops strength and peace within you."  
-> — **Norman Vincent Peale**
+> "Seek not the good in external things;seek it in yourselves."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 17 March 2026 ⏳_
+_Last updated: 18 March 2026 ⏳_

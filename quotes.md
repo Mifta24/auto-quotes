@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you."  
-> — **Bob Proctor**
+> "Seek not the good in external things;seek it in yourselves."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 17 March 2026 ⏳_
+_Last updated: 18 March 2026 ⏳_
