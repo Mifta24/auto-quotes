@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your face to the sun, as flowers know how to do."  
-> — **Ming-Dao Deng**
+> "The score never interested me, only the game."  
+> — **Mae West**
 
 ---
 

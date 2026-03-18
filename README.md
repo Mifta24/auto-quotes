@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Seek not the good in external things;seek it in yourselves."  
-> — **Epictetus**
+> "The score never interested me, only the game."  
+> — **Mae West**
 
 ---
 
