@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opportunity of defeating the enemy is provided by the enemy himself."  
-> — **Sun Tzu**
+> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
+> — **Zen Proverb**
 
 ---
 
