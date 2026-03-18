@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real friend is one who walks in when the rest of the world walks out."  
-> — **Unknown**
+> "Be approximately right rather than exactly wrong."  
+> — **John Tukey**
 
 ---
 
