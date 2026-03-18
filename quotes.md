@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
+> — **Kahlil Gibran**
 
 ---
 
