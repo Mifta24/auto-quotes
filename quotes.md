@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
-> — **Kahlil Gibran**
+> "A real friend is one who walks in when the rest of the world walks out."  
+> — **Unknown**
 
 ---
 

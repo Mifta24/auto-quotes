@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "A real friend is one who walks in when the rest of the world walks out."  
+> — **Unknown**
 
 ---
 
