@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
-> — **Zen Proverb**
+> "Darkness is the absence of light."  
+> — **Kamal Ravikant**
 
 ---
 

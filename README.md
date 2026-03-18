@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opportunity of defeating the enemy is provided by the enemy himself."  
-> — **Sun Tzu**
+> "Darkness is the absence of light."  
+> — **Kamal Ravikant**
 
 ---
 
