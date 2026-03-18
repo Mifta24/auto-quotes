@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be approximately right rather than exactly wrong."  
-> — **John Tukey**
+> "The opportunity of defeating the enemy is provided by the enemy himself."  
+> — **Sun Tzu**
 
 ---
 

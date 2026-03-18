@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A real friend is one who walks in when the rest of the world walks out."  
-> — **Unknown**
+> "The opportunity of defeating the enemy is provided by the enemy himself."  
+> — **Sun Tzu**
 
 ---
 
