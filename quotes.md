@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Seek not the good in external things;seek it in yourselves."  
-> — **Epictetus**
+> "Turn your face to the sun, as flowers know how to do."  
+> — **Ming-Dao Deng**
 
 ---
 
