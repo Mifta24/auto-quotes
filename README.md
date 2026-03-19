@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
-> — **Roy T. Bennett**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 

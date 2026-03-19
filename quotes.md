@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The privilege of a lifetime is to become who you truly are."  
-> — **Carl Jung**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 
