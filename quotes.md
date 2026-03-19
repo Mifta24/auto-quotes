@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
-> — **Helen Keller**
+> "Most people dabble their way through life, never deciding to master anything in particular."  
+> — **Tony Robbins**
 
 ---
 
