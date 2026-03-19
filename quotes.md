@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whoever is happy will make others happy too."  
-> — **Anne Frank**
+> "Anxiety is the dizziness of freedom."  
+> — **Soren Kierkegaard**
 
 ---
 
