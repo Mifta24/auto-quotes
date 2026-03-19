@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life. "  
-> — **Eckhart Tolle**
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
+> — **Roy T. Bennett**
 
 ---
 
