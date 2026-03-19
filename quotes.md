@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you always do what you've always done, you'll always get what you've always got. "  
-> — **Henry Ford**
+> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
+> — **Helen Keller**
 
 ---
 
