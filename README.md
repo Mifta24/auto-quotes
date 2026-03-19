@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
-> — **Helen Keller**
+> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
+> — **Roy T. Bennett**
 
 ---
 

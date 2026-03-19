@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people dabble their way through life, never deciding to master anything in particular."  
-> — **Tony Robbins**
+> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
+> — **Roy T. Bennett**
 
 ---
 
