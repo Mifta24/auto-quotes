@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The energy of the mind is the essence of life."  
-> — **Aristotle**
+> "If you always do what you've always done, you'll always get what you've always got. "  
+> — **Henry Ford**
 
 ---
 
