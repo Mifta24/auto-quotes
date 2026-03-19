@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
-> — **Roy T. Bennett**
+> "The energy of the mind is the essence of life."  
+> — **Aristotle**
 
 ---
 
