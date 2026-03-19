@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect other people's feelings. It might mean nothing to you, but it could mean everything to them."  
-> — **Roy T. Bennett**
+> "The privilege of a lifetime is to become who you truly are."  
+> — **Carl Jung**
 
 ---
 
