@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
-> — **Bhagavad Gita**
+> "The worst part of success is trying to find someone who is happy for you."  
+> — **Bette Midler**
 
 ---
 
