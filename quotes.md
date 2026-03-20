@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Realize deeply that the present moment is all you ever have. "  
-> — **Eckhart Tolle**
+> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
+> — **Bhagavad Gita**
 
 ---
 
