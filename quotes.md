@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never fear quarrels, but seek hazardous adventures."  
-> — **Alexandre Dumas**
+> "Lying can never save us from another lie."  
+> — **Vaclav Havel**
 
 ---
 
