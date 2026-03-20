@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
-> — **Mahatma Gandhi**
+> "Walking with a friend in the dark is better than walking alone in the light."  
+> — **Helen Keller**
 
 ---
 

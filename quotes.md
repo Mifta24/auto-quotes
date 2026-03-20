@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you do today can improve all your tomorrows."  
-> — **Ralph Marston**
+> "Walking with a friend in the dark is better than walking alone in the light."  
+> — **Helen Keller**
 
 ---
 
