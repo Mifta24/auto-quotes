@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never fear quarrels, but seek hazardous adventures."  
-> — **Alexandre Dumas**
+> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
+> — **Mahatma Gandhi**
 
 ---
 
