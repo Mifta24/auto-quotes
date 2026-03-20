@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "Hold yourself responsible for a higher standard than anybody else expects of you."  
+> — **Henry Ward Beecher**
 
 ---
 
