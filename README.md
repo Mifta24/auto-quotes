@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
-> — **Bhagavad Gita**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 
