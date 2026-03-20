@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Anxiety is the dizziness of freedom."  
-> — **Soren Kierkegaard**
+> "Never fear quarrels, but seek hazardous adventures."  
+> — **Alexandre Dumas**
 
 ---
 
-_Last updated: 19 March 2026 ⏳_
+_Last updated: 20 March 2026 ⏳_
