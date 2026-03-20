@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
-> — **Mahatma Gandhi**
+> "What you do today can improve all your tomorrows."  
+> — **Ralph Marston**
 
 ---
 
