@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."  
+> — **Colin Powell**
 
 ---
 
-_Last updated: 20 March 2026 ⏳_
+_Last updated: 21 March 2026 ⏳_
