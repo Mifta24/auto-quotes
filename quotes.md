@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is much more successfully looked at from a single window."  
-> — **F. Scott Fitzgerald**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 

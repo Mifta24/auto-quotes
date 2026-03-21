@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either write something worth reading or do something worth writing."  
-> — **Benjamin Franklin**
+> "From morning till night, we should never rely on a single thing."  
+> — **Huang Po**
 
 ---
 
