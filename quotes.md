@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From morning till night, we should never rely on a single thing."  
-> — **Huang Po**
+> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
+> — **Oprah Winfrey**
 
 ---
 
