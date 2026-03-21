@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."  
-> — **Colin Powell**
+> "Success comes from knowing that you did your best to become the best that you are capable of becoming."  
+> — **John Wooden**
 
 ---
 
