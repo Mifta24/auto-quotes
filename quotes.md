@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either write something worth reading or do something worth writing."  
-> — **Benjamin Franklin**
+> "Life is much more successfully looked at from a single window."  
+> — **F. Scott Fitzgerald**
 
 ---
 
