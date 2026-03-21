@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!"  
-> — **Robert Kiyosaki**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 

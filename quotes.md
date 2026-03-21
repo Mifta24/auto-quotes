@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life goes by fast. Enjoy it. Calm down. It's all funny."  
-> — **Joan Rivers**
+> "People do not decide their futures, they decide their habits and their habits decide their futures."  
+> — **Gary Keller**
 
 ---
 
