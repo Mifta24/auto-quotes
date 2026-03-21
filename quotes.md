@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
-> — **Oprah Winfrey**
+> "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!"  
+> — **Robert Kiyosaki**
 
 ---
 
