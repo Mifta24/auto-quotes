@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."  
-> — **Colin Powell**
+> "Either write something worth reading or do something worth writing."  
+> — **Benjamin Franklin**
 
 ---
 

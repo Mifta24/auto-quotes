@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success comes from knowing that you did your best to become the best that you are capable of becoming."  
-> — **John Wooden**
+> "Either write something worth reading or do something worth writing."  
+> — **Benjamin Franklin**
 
 ---
 
