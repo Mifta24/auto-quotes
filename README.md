@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The very essence of instinct is that it's followed independently of reason."  
-> — **Charles Darwin**
+> "The Art of Peace begins with you."  
+> — **Morihei Ueshiba**
 
 ---
 
