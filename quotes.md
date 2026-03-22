@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure in the job puts perfection in the work."  
-> — **Aristotle**
+> "If what you're doing is not your passion, you have nothing to lose."  
+> — **Celestine Chua**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "If what you're doing is not your passion, you have nothing to lose."  
+> — **Celestine Chua**
 
 ---
 
