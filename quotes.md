@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To achieve, you need thought. You have to know what you are doing and that's real power."  
-> — **Ayn Rand**
+> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
+> — **Kenji Miyazawa**
 
 ---
 
