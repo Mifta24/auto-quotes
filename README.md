@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To achieve, you need thought. You have to know what you are doing and that's real power."  
-> — **Ayn Rand**
+> "The very essence of instinct is that it's followed independently of reason."  
+> — **Charles Darwin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "She who loves roses must be patient and not cry out when she is pierced by thorns."  
-> — **Kenji Miyazawa**
+> "The very essence of instinct is that it's followed independently of reason."  
+> — **Charles Darwin**
 
 ---
 
