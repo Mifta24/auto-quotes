@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The Art of Peace begins with you."  
-> — **Morihei Ueshiba**
+> "Pleasure in the job puts perfection in the work."  
+> — **Aristotle**
 
 ---
 
