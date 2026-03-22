@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Begin at once to live, and count each separate day as a separate life.  "  
-> — **Seneca**
+> "Mistake is a mistake only if you make it twice."  
+> — **Robin Sharma**
 
 ---
 
