@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistake is a mistake only if you make it twice."  
-> — **Robin Sharma**
+> "To achieve, you need thought. You have to know what you are doing and that's real power."  
+> — **Ayn Rand**
 
 ---
 

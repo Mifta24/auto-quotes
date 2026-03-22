@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Begin at once to live, and count each separate day as a separate life.  "  
-> — **Seneca**
+> "To achieve, you need thought. You have to know what you are doing and that's real power."  
+> — **Ayn Rand**
 
 ---
 
