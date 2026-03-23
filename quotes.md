@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can do nothing to change the past, and the future will never come exactly as you plan or hope for."  
-> — **Dan Millman**
+> "Life is a process. We are a process. The universe is a process."  
+> — **Anne Wilson Schaef**
 
 ---
 
