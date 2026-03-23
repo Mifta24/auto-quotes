@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There can be no deep disappointment where there is not deep love."  
-> — **Martin Luther King, Jr.**
+> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
+> — **Brian Tracy**
 
 ---
 
