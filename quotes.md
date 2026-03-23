@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot have a positive life and a negative mind."  
-> — **Joyce Meyer**
+> "Everybody needs a passion. That's what keeps life interesting."  
+> — **Betty White**
 
 ---
 

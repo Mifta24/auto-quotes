@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "Everybody needs a passion. That's what keeps life interesting."  
+> — **Betty White**
 
 ---
 
