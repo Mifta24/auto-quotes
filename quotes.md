@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a process. We are a process. The universe is a process."  
-> — **Anne Wilson Schaef**
+> "The only limits in your life are those that you set yourself."  
+> — **Celestine Chua**
 
 ---
 
