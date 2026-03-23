@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There can be no deep disappointment where there is not deep love."  
-> — **Martin Luther King, Jr.**
+> "I begin with an idea and then it becomes something else."  
+> — **Pablo Picasso**
 
 ---
 

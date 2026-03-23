@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is to focus our conscious mind on things we desire not things we fear. "  
-> — **Brian Tracy**
+> "I begin with an idea and then it becomes something else."  
+> — **Pablo Picasso**
 
 ---
 
