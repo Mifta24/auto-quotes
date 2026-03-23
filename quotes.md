@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "You cannot have a positive life and a negative mind."  
+> — **Joyce Meyer**
 
 ---
 
