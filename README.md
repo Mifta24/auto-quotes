@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only limits in your life are those that you set yourself."  
-> — **Celestine Chua**
+> "There can be no deep disappointment where there is not deep love."  
+> — **Martin Luther King, Jr.**
 
 ---
 
