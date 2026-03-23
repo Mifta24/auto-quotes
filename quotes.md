@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people."  
-> — **Roy T. Bennett**
+> "You can do nothing to change the past, and the future will never come exactly as you plan or hope for."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 22 March 2026 ⏳_
+_Last updated: 23 March 2026 ⏳_

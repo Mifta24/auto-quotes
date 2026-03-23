@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If what you're doing is not your passion, you have nothing to lose."  
-> — **Celestine Chua**
+> "You can do nothing to change the past, and the future will never come exactly as you plan or hope for."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 22 March 2026 ⏳_
+_Last updated: 23 March 2026 ⏳_
