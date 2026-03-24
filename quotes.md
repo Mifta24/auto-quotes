@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is about creating value."  
-> — **Candice Carpenter**
+> "You cannot push anyone up a ladder unless he is willing to climb a little himself."  
+> — **Andrew Carnegie**
 
 ---
 
