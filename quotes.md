@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growing up is losing some illusions, in order to acquire others."  
-> — **Virginia Woolf**
+> "A man should do his job so well that the living, the dead, and the unborn could do it no better."  
+> — **Martin Luther King, Jr.**
 
 ---
 
