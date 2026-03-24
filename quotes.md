@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When at last you are come to the ocean of happiness, do not go back thirsty."  
-> — **Kabir**
+> "Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence."  
+> — **Helen Keller**
 
 ---
 

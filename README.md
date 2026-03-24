@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Understanding that rests in what it does not understand is the finest."  
-> — **Zhuangzi**
+> "Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence."  
+> — **Helen Keller**
 
 ---
 
