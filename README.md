@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growing up is losing some illusions, in order to acquire others."  
-> — **Virginia Woolf**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 
