@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "Understanding that rests in what it does not understand is the finest."  
+> — **Zhuangzi**
 
 ---
 

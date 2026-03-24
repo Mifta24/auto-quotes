@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is a source of great strength."  
-> — **Lao Tzu**
+> "Understanding that rests in what it does not understand is the finest."  
+> — **Zhuangzi**
 
 ---
 
