@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence."  
-> — **Helen Keller**
+> "Some people don't like change, but you need to embrace change if the alternative is disaster."  
+> — **Elon Musk**
 
 ---
 
