@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "Silence is a source of great strength."  
+> — **Lao Tzu**
 
 ---
 
