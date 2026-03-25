@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
-> — **Deepak Chopra**
+> "Take responsibility of your own happiness, never put it in other people's hands."  
+> — **Roy T. Bennett**
 
 ---
 

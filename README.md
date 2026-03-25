@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Disobedience is the true foundation of liberty. The obedient must be slaves."  
-> — **Henry David Thoreau**
+> "Take responsibility of your own happiness, never put it in other people's hands."  
+> — **Roy T. Bennett**
 
 ---
 
