@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What the caterpillar calls the end of the world, the master calls a butterfly."  
-> — **Richard Bach**
+> "Awakening is possible only for those who seek it and want it."  
+> — **G.I. Gurdjieff**
 
 ---
 
