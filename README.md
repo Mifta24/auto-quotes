@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What the caterpillar calls the end of the world, the master calls a butterfly."  
-> — **Richard Bach**
+> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
+> — **Sathya Sai Baba**
 
 ---
 

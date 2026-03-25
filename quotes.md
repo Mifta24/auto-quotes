@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awakening is possible only for those who seek it and want it."  
-> — **G.I. Gurdjieff**
+> "Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it!"  
+> — **Sathya Sai Baba**
 
 ---
 
