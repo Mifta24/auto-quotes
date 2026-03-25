@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the hand that erases can write the true thing."  
-> — **Meister Eckhart**
+> "What the caterpillar calls the end of the world, the master calls a butterfly."  
+> — **Richard Bach**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The moment you doubt whether you can fly, you cease for ever to be able to do it."  
-> — **James Matthew Barrie**
+> "What the caterpillar calls the end of the world, the master calls a butterfly."  
+> — **Richard Bach**
 
 ---
 
