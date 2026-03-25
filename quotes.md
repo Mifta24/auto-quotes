@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You cannot push anyone up a ladder unless he is willing to climb a little himself."  
-> — **Andrew Carnegie**
+> "Only the hand that erases can write the true thing."  
+> — **Meister Eckhart**
 
 ---
 
-_Last updated: 24 March 2026 ⏳_
+_Last updated: 25 March 2026 ⏳_
