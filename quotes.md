@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take responsibility of your own happiness, never put it in other people's hands."  
-> — **Roy T. Bennett**
+> "Every traveler has a home of his own, and he learns to appreciate it the more from his wandering."  
+> — **Charles Dickens**
 
 ---
 
