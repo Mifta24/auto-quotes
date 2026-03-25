@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. "  
-> — **Denis Waitley**
+> "Disobedience is the true foundation of liberty. The obedient must be slaves."  
+> — **Henry David Thoreau**
 
 ---
 
