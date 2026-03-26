@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot always do great things in life, but we can do small things with great love."  
-> — **Dan Millman**
+> "He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. "  
+> — **Albert Einstein**
 
 ---
 
