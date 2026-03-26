@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "To every action there is always opposed an equal reaction."  
+> — **Isaac Newton**
 
 ---
 

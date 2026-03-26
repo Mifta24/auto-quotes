@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very strange that the people you love are often the people you're most cruel to."  
-> — **Kenneth Branagh**
+> "To every action there is always opposed an equal reaction."  
+> — **Isaac Newton**
 
 ---
 
