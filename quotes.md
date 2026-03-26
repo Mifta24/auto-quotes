@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The least deviation from truth will be multiplied later."  
-> — **Aristotle**
+> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
+> — **Rumi**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. "  
-> — **Albert Einstein**
+> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
+> — **Rumi**
 
 ---
 
