@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To every action there is always opposed an equal reaction."  
-> — **Isaac Newton**
+> "The best way to predict your future is to create it."  
+> — **Abraham Lincoln**
 
 ---
 
