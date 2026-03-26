@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To every action there is always opposed an equal reaction."  
-> — **Isaac Newton**
+> "We cannot always do great things in life, but we can do small things with great love."  
+> — **Dan Millman**
 
 ---
 

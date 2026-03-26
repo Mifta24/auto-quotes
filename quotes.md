@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to predict your future is to create it."  
-> — **Abraham Lincoln**
+> "We cannot always do great things in life, but we can do small things with great love."  
+> — **Dan Millman**
 
 ---
 
