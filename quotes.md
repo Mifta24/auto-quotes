@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
-> — **Rumi**
+> "The time is always right to do what is right."  
+> — **Martin Luther King, Jr.**
 
 ---
 
