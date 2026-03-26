@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot always do great things in life, but we can do small things with great love."  
-> — **Dan Millman**
+> "Love is the expression of one's values."  
+> — **Ayn Rand**
 
 ---
 
