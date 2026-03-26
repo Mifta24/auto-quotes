@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Take responsibility of your own happiness, never put it in other people's hands."  
-> — **Roy T. Bennett**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 25 March 2026 ⏳_
+_Last updated: 26 March 2026 ⏳_
