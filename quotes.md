@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your past does not equal your future."  
-> — **Tony Robbins**
+> "Awakening is possible only for those who seek it and want it."  
+> — **G.I. Gurdjieff**
 
 ---
 
