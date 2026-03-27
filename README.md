@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You know you are on the road to success if you would do your job and not be paid for it."  
-> — **Oprah Winfrey**
+> "Your past does not equal your future."  
+> — **Tony Robbins**
 
 ---
 
