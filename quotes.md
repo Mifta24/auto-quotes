@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
-> — **Deepak Chopra**
+> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
+> — **Celestine Chua**
 
 ---
 
