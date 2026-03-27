@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awakening is possible only for those who seek it and want it."  
-> — **G.I. Gurdjieff**
+> "He who laughs at himself never runs out of things to laugh at."  
+> — **Epictetus**
 
 ---
 

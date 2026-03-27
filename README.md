@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your past does not equal your future."  
-> — **Tony Robbins**
+> "He who laughs at himself never runs out of things to laugh at."  
+> — **Epictetus**
 
 ---
 
