@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
-> — **Rumi**
+> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
+> — **Deepak Chopra**
 
 ---
 
-_Last updated: 26 March 2026 ⏳_
+_Last updated: 27 March 2026 ⏳_
