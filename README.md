@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "You know you are on the road to success if you would do your job and not be paid for it."  
+> — **Oprah Winfrey**
 
 ---
 
