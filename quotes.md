@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
-> — **Celestine Chua**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
