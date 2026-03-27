@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who laughs at himself never runs out of things to laugh at."  
-> — **Epictetus**
+> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
+> — **Deepak Chopra**
 
 ---
 
