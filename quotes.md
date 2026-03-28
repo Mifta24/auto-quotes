@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The golden opportunity you are seeking is within yourself."  
-> — **Mary Engelbreit**
+> "The only way to make sense out of change is to plunge into it, move with it, and join the dance."  
+> — **Alan Watts**
 
 ---
 

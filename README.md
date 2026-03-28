@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right."  
-> — **Albus Dumbledore**
+> "The only way to make sense out of change is to plunge into it, move with it, and join the dance."  
+> — **Alan Watts**
 
 ---
 
