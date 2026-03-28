@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The successful warrior is the average man, with laser-like focus."  
-> — **Bruce Lee**
+> "You know you are on the road to success if you would do your job and not be paid for it."  
+> — **Oprah Winfrey**
 
 ---
 

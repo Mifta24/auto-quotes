@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
-> — **Alfred Adler**
+> "You know you are on the road to success if you would do your job and not be paid for it."  
+> — **Oprah Winfrey**
 
 ---
 
