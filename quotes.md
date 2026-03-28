@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT."  
-> — **Deepak Chopra**
+> "The key to success is failure."  
+> — **Michael Jordan**
 
 ---
 
-_Last updated: 27 March 2026 ⏳_
+_Last updated: 28 March 2026 ⏳_
