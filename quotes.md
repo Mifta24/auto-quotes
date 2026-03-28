@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You know you are on the road to success if you would do your job and not be paid for it."  
-> — **Oprah Winfrey**
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  "  
+> — **Zig Ziglar**
 
 ---
 
