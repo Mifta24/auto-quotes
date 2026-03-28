@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is failure."  
-> — **Michael Jordan**
+> "Try to be a rainbow in someone's cloud."  
+> — **Maya Angelou**
 
 ---
 
