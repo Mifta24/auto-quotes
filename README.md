@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "Self-control is strength."  
+> — **James Allen**
 
 ---
 

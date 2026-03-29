@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ladder of success is best climbed by stepping on the rungs of opportunity."  
-> — **Ayn Rand**
+> "Self-control is strength."  
+> — **James Allen**
 
 ---
 
