@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I want the fishing rod, not the fish."  
-> — **Yanni**
+> "Stay away from people who makes you feel like you are wasting their time."  
+> — **Paulo Coelho**
 
 ---
 
