@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every blessing ignored becomes a curse."  
-> — **Paulo Coelho**
+> "I want the fishing rod, not the fish."  
+> — **Yanni**
 
 ---
 

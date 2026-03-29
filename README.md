@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-control is strength."  
-> — **James Allen**
+> "I want the fishing rod, not the fish."  
+> — **Yanni**
 
 ---
 
