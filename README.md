@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You know you are on the road to success if you would do your job and not be paid for it."  
-> — **Oprah Winfrey**
+> "Don't settle, and don't struggle."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 28 March 2026 ⏳_
+_Last updated: 29 March 2026 ⏳_
