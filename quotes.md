@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A mistake is only an error, it becomes a mistake when you fail to correct it."  
-> — **John Lennon**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
