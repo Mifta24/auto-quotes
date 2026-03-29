@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't settle, and don't struggle."  
-> — **Naval Ravikant**
+> "A mistake is only an error, it becomes a mistake when you fail to correct it."  
+> — **John Lennon**
 
 ---
 

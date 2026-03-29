@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The desire for more positive experience is itself a negative experience."  
-> — **Mark Manson**
+> "A mistake is only an error, it becomes a mistake when you fail to correct it."  
+> — **John Lennon**
 
 ---
 
