@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Self-control is strength."  
-> — **James Allen**
+> "Every blessing ignored becomes a curse."  
+> — **Paulo Coelho**
 
 ---
 
