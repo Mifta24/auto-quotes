@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A mistake is only an error, it becomes a mistake when you fail to correct it."  
-> — **John Lennon**
+> "Be curious, not judgmental."  
+> — **Walt Whitman**
 
 ---
 
