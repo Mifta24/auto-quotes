@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "The ladder of success is best climbed by stepping on the rungs of opportunity."  
+> — **Ayn Rand**
 
 ---
 
