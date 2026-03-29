@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't settle, and don't struggle."  
-> — **Naval Ravikant**
+> "The desire for more positive experience is itself a negative experience."  
+> — **Mark Manson**
 
 ---
 
