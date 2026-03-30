@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
-> — **John Eliot**
+> "Work as though you would live forever, and live as though you would die today. Go another mile."  
+> — **Og Mandino**
 
 ---
 

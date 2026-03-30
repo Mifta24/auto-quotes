@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You get paid in direct proportion to the difficulty of problems you solve."  
-> — **Elon Musk**
+> "Work as though you would live forever, and live as though you would die today. Go another mile."  
+> — **Og Mandino**
 
 ---
 
