@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
-> — **Aristotle**
+> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
+> — **John Eliot**
 
 ---
 

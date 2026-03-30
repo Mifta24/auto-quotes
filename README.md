@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
+> — **John Eliot**
 
 ---
 
