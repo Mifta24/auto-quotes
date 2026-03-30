@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not what happened to me, I am what I choose to become."  
-> — **Carl Jung**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 
