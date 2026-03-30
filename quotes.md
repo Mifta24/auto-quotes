@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
-> — **Les Brown**
+> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
+> — **Sonia Ricotti**
 
 ---
 

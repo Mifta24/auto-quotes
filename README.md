@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not what happened to me, I am what I choose to become."  
-> — **Carl Jung**
+> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
+> — **Sonia Ricotti**
 
 ---
 
