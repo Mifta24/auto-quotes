@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work as though you would live forever, and live as though you would die today. Go another mile."  
-> — **Og Mandino**
+> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
+> — **Oprah Winfrey**
 
 ---
 
