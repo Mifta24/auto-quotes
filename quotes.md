@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Stay away from people who makes you feel like you are wasting their time."  
-> — **Paulo Coelho**
+> "I am not what happened to me, I am what I choose to become."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 29 March 2026 ⏳_
+_Last updated: 30 March 2026 ⏳_
