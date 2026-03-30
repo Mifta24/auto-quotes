@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition."  
-> — **John Eliot**
+> "You get paid in direct proportion to the difficulty of problems you solve."  
+> — **Elon Musk**
 
 ---
 
