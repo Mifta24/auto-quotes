@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
+> — **Aristotle**
 
 ---
 
