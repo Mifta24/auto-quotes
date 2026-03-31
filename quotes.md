@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can start changing our world for the better daily, no matter how small the action."  
-> — **Nelson Mandela**
+> "It isn't that they can't see the solution. It is that they can't see the problem."  
+> — **Gilbert Chesterton**
 
 ---
 
