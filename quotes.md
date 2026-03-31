@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We become what we believe."  
-> — **Lolly Daskal**
+> "He who is untrue to his own cause cannot command the respect of others."  
+> — **Albert Einstein**
 
 ---
 
