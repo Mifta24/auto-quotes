@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Work as though you would live forever, and live as though you would die today. Go another mile."  
-> — **Og Mandino**
+> "You can't get to a place that you don't believe exists."  
+> — **Unknown**
 
 ---
 
-_Last updated: 30 March 2026 ⏳_
+_Last updated: 31 March 2026 ⏳_

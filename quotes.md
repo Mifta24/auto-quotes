@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
-> — **Oprah Winfrey**
+> "You can't get to a place that you don't believe exists."  
+> — **Unknown**
 
 ---
 
-_Last updated: 30 March 2026 ⏳_
+_Last updated: 31 March 2026 ⏳_
