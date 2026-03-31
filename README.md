@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't get to a place that you don't believe exists."  
-> — **Unknown**
+> "Man must use what he has, not hope for what is not."  
+> — **G.I. Gurdjieff**
 
 ---
 

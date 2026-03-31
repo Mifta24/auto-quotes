@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "TEAMWORK: the fuel that allows common people attain uncommon results."  
-> — **Andrew Carnegie**
+> "Man must use what he has, not hope for what is not."  
+> — **G.I. Gurdjieff**
 
 ---
 
