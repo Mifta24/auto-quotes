@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Attitude is a little thing that makes a big difference."  
-> — **Winston Churchill**
+> "We become what we believe."  
+> — **Lolly Daskal**
 
 ---
 
