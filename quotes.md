@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man must use what he has, not hope for what is not."  
-> — **G.I. Gurdjieff**
+> "Attitude is a little thing that makes a big difference."  
+> — **Winston Churchill**
 
 ---
 
