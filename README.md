@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can start changing our world for the better daily, no matter how small the action."  
-> — **Nelson Mandela**
+> "There are no shortcuts to any place worth going. "  
+> — **Beverly Sills**
 
 ---
 
