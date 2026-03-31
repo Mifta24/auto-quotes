@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't get to a place that you don't believe exists."  
-> — **Unknown**
+> "TEAMWORK: the fuel that allows common people attain uncommon results."  
+> — **Andrew Carnegie**
 
 ---
 
