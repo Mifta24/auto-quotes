@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going. "  
-> — **Beverly Sills**
+> "The act of taking the first step is what separates the winners from the losers."  
+> — **Brian Tracy**
 
 ---
 
