@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who is untrue to his own cause cannot command the respect of others."  
-> — **Albert Einstein**
+> "You can start changing our world for the better daily, no matter how small the action."  
+> — **Nelson Mandela**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We become what we believe."  
-> — **Lolly Daskal**
+> "You can start changing our world for the better daily, no matter how small the action."  
+> — **Nelson Mandela**
 
 ---
 
