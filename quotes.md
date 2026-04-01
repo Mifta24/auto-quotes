@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress lies not in enhancing what is, but in advancing toward what will be."  
-> — **Kahlil Gibran**
+> "Only put off until tomorrow what you are willing to die having left undone."  
+> — **Pablo Picasso**
 
 ---
 
