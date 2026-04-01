@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Exceptional thinkers ignore their critics and go about their business making history."  
-> — **John Eliot**
+> "Magic is believing in yourself, if you can do that, you can make anything happen."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
