@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The act of taking the first step is what separates the winners from the losers."  
-> — **Brian Tracy**
+> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
+> — **Laurence J. Peter**
 
 ---
 
-_Last updated: 31 March 2026 ⏳_
+_Last updated: 01 April 2026 ⏳_

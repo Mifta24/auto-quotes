@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going. "  
-> — **Beverly Sills**
+> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
+> — **Laurence J. Peter**
 
 ---
 
-_Last updated: 31 March 2026 ⏳_
+_Last updated: 01 April 2026 ⏳_
