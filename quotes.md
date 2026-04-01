@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Magic is believing in yourself, if you can do that, you can make anything happen."  
-> — **Johann Wolfgang von Goethe**
+> "Life is ten percent what you experience and ninety percent how you respond to it."  
+> — **Unknown**
 
 ---
 
