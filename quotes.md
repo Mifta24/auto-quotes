@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
-> — **Laurence J. Peter**
+> "Progress lies not in enhancing what is, but in advancing toward what will be."  
+> — **Kahlil Gibran**
 
 ---
 
