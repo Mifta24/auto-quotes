@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only put off until tomorrow what you are willing to die having left undone."  
-> — **Pablo Picasso**
+> "The two most important days in your life are the day you are born and the day you find out why."  
+> — **Mark Twain**
 
 ---
 
