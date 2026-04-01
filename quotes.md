@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The fastest way to change is to laugh at your own folly."  
-> — **Spencer Johnson**
+> "You can't build a reputation on what you are going to do. "  
+> — **Henry Ford**
 
 ---
 
