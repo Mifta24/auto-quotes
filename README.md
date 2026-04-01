@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only put off until tomorrow what you are willing to die having left undone."  
-> — **Pablo Picasso**
+> "Exceptional thinkers ignore their critics and go about their business making history."  
+> — **John Eliot**
 
 ---
 
