@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is ten percent what you experience and ninety percent how you respond to it."  
-> — **Unknown**
+> "The fastest way to change is to laugh at your own folly."  
+> — **Spencer Johnson**
 
 ---
 

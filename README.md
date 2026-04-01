@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Magic is believing in yourself, if you can do that, you can make anything happen."  
-> — **Johann Wolfgang von Goethe**
+> "The fastest way to change is to laugh at your own folly."  
+> — **Spencer Johnson**
 
 ---
 
