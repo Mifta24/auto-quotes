@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "That some achieve great success is proof to all that others can achieve it as well."  
-> — **Abraham Lincoln**
+> "The opposite of courage in our society is not cowardice... it is conformity."  
+> — **Earl Nightingale**
 
 ---
 
