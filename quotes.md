@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Living life in style also means living a life of balance."  
-> — **Jim Rohn**
+> "I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in."  
+> — **Virginia Woolf**
 
 ---
 
