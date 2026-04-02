@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work."  
-> — **John Eliot**
+> "Living life in style also means living a life of balance."  
+> — **Jim Rohn**
 
 ---
 

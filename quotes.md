@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be prepared is half the victory. "  
-> — **Miguel de Cervantes**
+> "Living life in style also means living a life of balance."  
+> — **Jim Rohn**
 
 ---
 
