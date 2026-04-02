@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opposite of courage in our society is not cowardice... it is conformity."  
-> — **Earl Nightingale**
+> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
