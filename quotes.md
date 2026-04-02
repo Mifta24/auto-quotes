@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "That some achieve great success is proof to all that others can achieve it as well."  
-> — **Abraham Lincoln**
+> "The art of being happy lies in the power of extracting happiness from common things."  
+> — **Henry Ward Beecher**
 
 ---
 
