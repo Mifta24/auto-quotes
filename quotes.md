@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can't build a reputation on what you are going to do. "  
-> — **Henry Ford**
+> "Life should be touched, not strangled.  "  
+> — **Ray Bradbury**
 
 ---
 
-_Last updated: 01 April 2026 ⏳_
+_Last updated: 02 April 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The fastest way to change is to laugh at your own folly."  
-> — **Spencer Johnson**
+> "Life should be touched, not strangled.  "  
+> — **Ray Bradbury**
 
 ---
 
-_Last updated: 01 April 2026 ⏳_
+_Last updated: 02 April 2026 ⏳_
