@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life should be touched, not strangled.  "  
-> — **Ray Bradbury**
+> "All animals except man know that the principal business of life is to enjoy it."  
+> — **Samuel Butler**
 
 ---
 
