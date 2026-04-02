@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life should be touched, not strangled.  "  
-> — **Ray Bradbury**
+> "That some achieve great success is proof to all that others can achieve it as well."  
+> — **Abraham Lincoln**
 
 ---
 

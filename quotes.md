@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All animals except man know that the principal business of life is to enjoy it."  
-> — **Samuel Butler**
+> "That some achieve great success is proof to all that others can achieve it as well."  
+> — **Abraham Lincoln**
 
 ---
 
