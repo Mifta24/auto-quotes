@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A warrior does not give up what he loves, he finds the love in what he does."  
-> — **Dan Millman**
+> "I am who I am today because of the choices I made yesterday."  
+> — **Eleanor Roosevelt**
 
 ---
 
