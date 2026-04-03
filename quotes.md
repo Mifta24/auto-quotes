@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Less is more."  
-> — **Robert Browning**
+> "Give out what you most want to come back."  
+> — **Robin Sharma**
 
 ---
 
