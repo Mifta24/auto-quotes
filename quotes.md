@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It does not do to dwell on dreams and forget to live, remember that."  
-> — **Albus Dumbledore**
+> "Successful people ask better questions, and as a result, they get better answers."  
+> — **Tony Robbins**
 
 ---
 
