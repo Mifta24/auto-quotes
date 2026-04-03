@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You just can't beat the person who never gives up. "  
-> — **Babe Ruth**
+> "A warrior does not give up what he loves, he finds the love in what he does."  
+> — **Dan Millman**
 
 ---
 
