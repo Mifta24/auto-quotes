@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Living life in style also means living a life of balance."  
-> — **Jim Rohn**
+> "It does not do to dwell on dreams and forget to live, remember that."  
+> — **Albus Dumbledore**
 
 ---
 
-_Last updated: 02 April 2026 ⏳_
+_Last updated: 03 April 2026 ⏳_
