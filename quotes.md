@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people ask better questions, and as a result, they get better answers."  
-> — **Tony Robbins**
+> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
+> — **Aristotle**
 
 ---
 

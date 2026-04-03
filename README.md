@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It does not do to dwell on dreams and forget to live, remember that."  
-> — **Albus Dumbledore**
+> "We are what we repeatedly do. Excellence, then, is not an act, but a habit."  
+> — **Aristotle**
 
 ---
 
