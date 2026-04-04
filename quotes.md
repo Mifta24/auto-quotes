@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man should fear never beginning to live."  
-> — **Marcus Aurelius**
+> "If the only prayer you ever say in your entire life is thank you, it will be enough."  
+> — **Meister Eckhart**
 
 ---
 
