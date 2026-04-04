@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "Everyone wants to go to Heaven, but no one wants to die."  
+> — **Robert Kiyosaki**
 
 ---
 
