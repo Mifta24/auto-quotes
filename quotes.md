@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
-> — **Mark Manson**
+> "Anything you may hold firmly in your imagination can be yours."  
+> — **William James**
 
 ---
 
