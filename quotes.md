@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone wants to go to Heaven, but no one wants to die."  
-> — **Robert Kiyosaki**
+> "Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."  
+> — **Ralph Marston**
 
 ---
 

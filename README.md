@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."  
+> — **Ralph Marston**
 
 ---
 
