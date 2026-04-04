@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."  
-> — **Ralph Marston**
+> "The only real mistake is the one from which we learn nothing. "  
+> — **Henry Ford**
 
 ---
 
