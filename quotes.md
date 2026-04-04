@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Give out what you most want to come back."  
-> — **Robin Sharma**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 
-_Last updated: 03 April 2026 ⏳_
+_Last updated: 04 April 2026 ⏳_
