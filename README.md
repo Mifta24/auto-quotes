@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man should fear never beginning to live."  
-> — **Marcus Aurelius**
+> "If I persist long enough I will win."  
+> — **Og Mandino**
 
 ---
 
