@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest work that kindness does to others is that it makes them kind themselves."  
-> — **Amelia Earhart**
+> "Man should fear never beginning to live."  
+> — **Marcus Aurelius**
 
 ---
 

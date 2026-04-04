@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If they wrote it to make money, don't read it."  
-> — **Naval Ravikant**
+> "Man should fear never beginning to live."  
+> — **Marcus Aurelius**
 
 ---
 
