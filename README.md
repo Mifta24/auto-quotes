@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
-> — **Mark Manson**
+> "The greatest work that kindness does to others is that it makes them kind themselves."  
+> — **Amelia Earhart**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything you may hold firmly in your imagination can be yours."  
-> — **William James**
+> "The greatest work that kindness does to others is that it makes them kind themselves."  
+> — **Amelia Earhart**
 
 ---
 
