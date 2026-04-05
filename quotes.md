@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mistakes are always forgivable, if one has the courage to admit them. "  
-> — **Bruce Lee**
+> "To know your Enemy, you must become your Enemy."  
+> — **Sun Tzu**
 
 ---
 
