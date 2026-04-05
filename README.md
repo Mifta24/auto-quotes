@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now."  
-> — **Ralph Marston**
+> "Muddy water is best cleared by leaving it alone."  
+> — **Alan Watts**
 
 ---
 
-_Last updated: 04 April 2026 ⏳_
+_Last updated: 05 April 2026 ⏳_

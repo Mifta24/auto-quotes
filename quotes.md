@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The only real mistake is the one from which we learn nothing. "  
-> — **Henry Ford**
+> "Muddy water is best cleared by leaving it alone."  
+> — **Alan Watts**
 
 ---
 
-_Last updated: 04 April 2026 ⏳_
+_Last updated: 05 April 2026 ⏳_
