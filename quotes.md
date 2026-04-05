@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
-> — **Deepak Chopra**
+> "Mistakes are always forgivable, if one has the courage to admit them. "  
+> — **Bruce Lee**
 
 ---
 
