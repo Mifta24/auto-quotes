@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To know your Enemy, you must become your Enemy."  
-> — **Sun Tzu**
+> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
+> — **Oprah Winfrey**
 
 ---
 
