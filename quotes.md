@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Muddy water is best cleared by leaving it alone."  
-> — **Alan Watts**
+> "Life is simply what our feelings do to us."  
+> — **Honore de Balzac**
 
 ---
 
