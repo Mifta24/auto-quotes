@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is simply what our feelings do to us."  
-> — **Honore de Balzac**
+> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
+> — **Deepak Chopra**
 
 ---
 
