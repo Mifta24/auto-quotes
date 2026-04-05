@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To know your Enemy, you must become your Enemy."  
-> — **Sun Tzu**
+> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
+> — **Norman Vincent Peale**
 
 ---
 

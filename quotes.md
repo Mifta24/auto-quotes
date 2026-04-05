@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is a great teacher. If you're open to it every mistake has a lesson to offer."  
-> — **Oprah Winfrey**
+> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
+> — **Norman Vincent Peale**
 
 ---
 
