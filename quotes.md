@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listen to the secret sound, the real sound, which is inside you."  
-> — **Kabir**
+> "The chief danger in life is that you may take too many precautions."  
+> — **Alfred Adler**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
-> — **Norman Vincent Peale**
+> "The chief danger in life is that you may take too many precautions."  
+> — **Alfred Adler**
 
 ---
 
