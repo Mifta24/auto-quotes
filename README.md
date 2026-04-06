@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Humans and prosperity never endure side by side for long."  
-> — **Herodotus**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 

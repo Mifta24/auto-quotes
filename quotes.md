@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all here for some special reason."  
-> — **Robin Sharma**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 
