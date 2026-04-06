@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't settle, and don't struggle."  
-> — **Naval Ravikant**
+> "We think too much and feel too little."  
+> — **Charlie Chaplin**
 
 ---
 
