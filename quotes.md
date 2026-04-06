@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "Sometimes adversity is what you need to face in order to become successful."  
+> — **Zig Ziglar**
 
 ---
 

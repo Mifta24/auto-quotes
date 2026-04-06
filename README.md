@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "Sometimes adversity is what you need to face in order to become successful."  
+> — **Zig Ziglar**
 
 ---
 
