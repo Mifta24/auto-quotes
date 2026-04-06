@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
-> — **Celestine Chua**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
