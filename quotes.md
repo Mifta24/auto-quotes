@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 

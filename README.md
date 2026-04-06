@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't settle, and don't struggle."  
-> — **Naval Ravikant**
+> "The more you take responsibility for your past and present, the more you are able to create the future you seek."  
+> — **Celestine Chua**
 
 ---
 
