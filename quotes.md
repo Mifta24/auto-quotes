@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A good system shortens the road to the goal. "  
-> — **Orison Swett Marden**
+> "Don't settle, and don't struggle."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 05 April 2026 ⏳_
+_Last updated: 06 April 2026 ⏳_

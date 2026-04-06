@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The chief danger in life is that you may take too many precautions."  
-> — **Alfred Adler**
+> "Don't settle, and don't struggle."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 05 April 2026 ⏳_
+_Last updated: 06 April 2026 ⏳_
