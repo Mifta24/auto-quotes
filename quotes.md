@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Humans and prosperity never endure side by side for long."  
-> — **Herodotus**
+> "We are all here for some special reason."  
+> — **Robin Sharma**
 
 ---
 
