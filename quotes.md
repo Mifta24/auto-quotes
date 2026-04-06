@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
-> — **Charles Spurgeon**
+> "Humans and prosperity never endure side by side for long."  
+> — **Herodotus**
 
 ---
 

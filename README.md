@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes adversity is what you need to face in order to become successful."  
-> — **Zig Ziglar**
+> "Humans and prosperity never endure side by side for long."  
+> — **Herodotus**
 
 ---
 
