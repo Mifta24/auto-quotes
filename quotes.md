@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes adversity is what you need to face in order to become successful."  
-> — **Zig Ziglar**
+> "Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths."  
+> — **Charles Spurgeon**
 
 ---
 
