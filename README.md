@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is the greatest friend."  
-> — **Lao Tzu**
+> "The dreamers are the saviors of the worlds."  
+> — **James Allen**
 
 ---
 
