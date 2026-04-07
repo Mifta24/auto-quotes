@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Love. Love is the path."  
-> — **Dan Millman**
+> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
+> — **Norman Vincent Peale**
 
 ---
 
