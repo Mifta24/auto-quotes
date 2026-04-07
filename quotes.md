@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the behavior of others destroy your inner peace."  
-> — **Dalai Lama**
+> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
+> — **Oprah Winfrey**
 
 ---
 
