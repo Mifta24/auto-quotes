@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the behavior of others destroy your inner peace."  
-> — **Dalai Lama**
+> "There is no path to Love. Love is the path."  
+> — **Dan Millman**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
-> — **Oprah Winfrey**
+> "There is no path to Love. Love is the path."  
+> — **Dan Millman**
 
 ---
 
