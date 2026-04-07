@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dreamers are the saviors of the worlds."  
-> — **James Allen**
+> "Don't let the behavior of others destroy your inner peace."  
+> — **Dalai Lama**
 
 ---
 
