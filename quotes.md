@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "I don't ever give up. I'd have to be dead or completely incapacitated."  
+> — **Elon Musk**
 
 ---
 
