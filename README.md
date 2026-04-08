@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day wasted on others is not wasted on one's self."  
-> — **Charles Dickens**
+> "Adventure is worthwhile in itself."  
+> — **Amelia Earhart**
 
 ---
 

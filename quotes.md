@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a quality of the soul...not a function of one's material circumstances."  
-> — **Aristotle**
+> "Adventure is worthwhile in itself."  
+> — **Amelia Earhart**
 
 ---
 
