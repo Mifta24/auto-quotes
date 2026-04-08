@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
-> — **Unknown**
+> "Confidence is the greatest friend."  
+> — **Lao Tzu**
 
 ---
 
