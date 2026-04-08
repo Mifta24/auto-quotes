@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "It's easier to go down a hill than up it but the view is much better at the top."  
+> — **Henry Ward Beecher**
 
 ---
 

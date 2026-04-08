@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I don't ever give up. I'd have to be dead or completely incapacitated."  
-> — **Elon Musk**
+> "It's easier to go down a hill than up it but the view is much better at the top."  
+> — **Henry Ward Beecher**
 
 ---
 
