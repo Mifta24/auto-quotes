@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day wasted on others is not wasted on one's self."  
-> — **Charles Dickens**
+> "Happiness is a quality of the soul...not a function of one's material circumstances."  
+> — **Aristotle**
 
 ---
 
