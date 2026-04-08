@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Heart is what separates the good from the great."  
-> — **Michael Jordan**
+> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
+> — **Unknown**
 
 ---
 

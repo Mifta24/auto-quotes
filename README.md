@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to go down a hill than up it but the view is much better at the top."  
-> — **Henry Ward Beecher**
+> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
+> — **Unknown**
 
 ---
 
