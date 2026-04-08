@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is worthwhile in itself."  
-> — **Amelia Earhart**
+> "The truth is rarely pure and never simple. "  
+> — **Oscar Wilde**
 
 ---
 
