@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not titles that honour men, but men that honour titles."  
-> — **Niccolo Machiavelli**
+> "The smallest of actions is always better than the noblest of intentions."  
+> — **Robin Sharma**
 
 ---
 
