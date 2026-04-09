@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the touchstones of our characters."  
-> — **Henry David Thoreau**
+> "Walk slowly but never walk backward."  
+> — **Unknown**
 
 ---
 
