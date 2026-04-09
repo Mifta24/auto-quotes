@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are what you believe yourself to be."  
-> — **Paulo Coelho**
+> "It is not titles that honour men, but men that honour titles."  
+> — **Niccolo Machiavelli**
 
 ---
 

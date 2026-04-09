@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far more crucial than what we know or do not know is what we do not want to know."  
-> — **Eric Hoffer**
+> "It is not titles that honour men, but men that honour titles."  
+> — **Niccolo Machiavelli**
 
 ---
 
