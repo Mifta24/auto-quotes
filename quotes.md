@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Walk slowly but never walk backward."  
-> — **Unknown**
+> "Trusting our intuition often saves us from disaster. "  
+> — **Anne Wilson Schaef**
 
 ---
 
