@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far more crucial than what we know or do not know is what we do not want to know."  
-> — **Eric Hoffer**
+> "You are what you believe yourself to be."  
+> — **Paulo Coelho**
 
 ---
 
