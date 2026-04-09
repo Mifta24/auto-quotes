@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The smallest of actions is always better than the noblest of intentions."  
-> — **Robin Sharma**
+> "The greatest deception men suffer is from their own opinions."  
+> — **Leonardo da Vinci**
 
 ---
 
