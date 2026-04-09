@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the touchstones of our characters."  
-> — **Henry David Thoreau**
+> "Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now."  
+> — **Spencer Johnson**
 
 ---
 
