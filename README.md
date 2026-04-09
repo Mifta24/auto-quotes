@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The smallest of actions is always better than the noblest of intentions."  
-> — **Robin Sharma**
+> "Dreams are the touchstones of our characters."  
+> — **Henry David Thoreau**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest deception men suffer is from their own opinions."  
-> — **Leonardo da Vinci**
+> "Dreams are the touchstones of our characters."  
+> — **Henry David Thoreau**
 
 ---
 
