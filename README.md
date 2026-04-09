@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
-> — **Unknown**
+> "Far more crucial than what we know or do not know is what we do not want to know."  
+> — **Eric Hoffer**
 
 ---
 
-_Last updated: 08 April 2026 ⏳_
+_Last updated: 09 April 2026 ⏳_
