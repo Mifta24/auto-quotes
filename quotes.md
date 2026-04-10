@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person hears only what they understand."  
-> — **Johann Wolfgang von Goethe**
+> "Invisible things are the only realities."  
+> — **Edgar Allan Poe**
 
 ---
 
