@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place."  
-> — **Richard Bach**
+> "The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive."  
+> — **Herodotus**
 
 ---
 
