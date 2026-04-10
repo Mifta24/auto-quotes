@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Walk slowly but never walk backward."  
+> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
 > — **Unknown**
 
 ---
 
-_Last updated: 09 April 2026 ⏳_
+_Last updated: 10 April 2026 ⏳_
