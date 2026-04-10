@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to stand for what you believe in, even if that means standing alone."  
-> — **Unknown**
+> "Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place."  
+> — **Richard Bach**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People do not decide their futures, they decide their habits and their habits decide their futures."  
-> — **Gary Keller**
+> "Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place."  
+> — **Richard Bach**
 
 ---
 
