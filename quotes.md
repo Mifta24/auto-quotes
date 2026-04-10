@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "Formal education will make you a living, self-education will make you a fortune."  
+> — **Jim Rohn**
 
 ---
 
