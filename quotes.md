@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "The more perfect a person is on the outside, the more demons they have on the inside."  
+> — **Sigmund Freud**
 
 ---
 
