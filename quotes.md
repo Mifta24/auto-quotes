@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more perfect a person is on the outside, the more demons they have on the inside."  
-> — **Sigmund Freud**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 

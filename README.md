@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
