@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a succession of lessons, which must be lived to be understood."  
-> — **Ralph Waldo Emerson**
+> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
+> — **Audrey Hepburn**
 
 ---
 
