@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 

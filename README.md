@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're afraid to die, you're afraid to live. You can't have one without the other."  
-> — **Rita Mae Brown**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 
