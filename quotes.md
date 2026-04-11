@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honor is the foundation of courage."  
-> — **Amelia Earhart**
+> "You are the only problem you will ever have and you are the only solution."  
+> — **Bob Proctor**
 
 ---
 

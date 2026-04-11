@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "You are the only problem you will ever have and you are the only solution."  
+> — **Bob Proctor**
 
 ---
 
