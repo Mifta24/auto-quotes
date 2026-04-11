@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the only problem you will ever have and you are the only solution."  
-> — **Bob Proctor**
+> "The most important battle is one to conquer yourself."  
+> — **Yanni**
 
 ---
 
