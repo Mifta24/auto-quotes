@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "If you're afraid to die, you're afraid to live. You can't have one without the other."  
+> — **Rita Mae Brown**
 
 ---
 

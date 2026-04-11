@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live."  
-> — **Robert F. Kennedy**
+> "If you're afraid to die, you're afraid to live. You can't have one without the other."  
+> — **Rita Mae Brown**
 
 ---
 
