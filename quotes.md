@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Formal education will make you a living, self-education will make you a fortune."  
-> — **Jim Rohn**
+> "Life is a succession of lessons, which must be lived to be understood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
-_Last updated: 10 April 2026 ⏳_
+_Last updated: 11 April 2026 ⏳_
