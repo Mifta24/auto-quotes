@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live."  
+> — **Robert F. Kennedy**
 
 ---
 
