@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "Honor is the foundation of courage."  
+> — **Amelia Earhart**
 
 ---
 
