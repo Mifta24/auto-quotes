@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "The greatest step towards a life of simplicity is to learn to let go."  
+> — **Steve Maraboli**
 
 ---
 
