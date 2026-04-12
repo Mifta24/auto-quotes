@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "Fishing is much more than fish."  
+> — **Herbert Hoover**
 
 ---
 

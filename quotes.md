@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't have anything worthwhile without difficulties."  
-> — **Harry S. Truman**
+> "Fishing is much more than fish."  
+> — **Herbert Hoover**
 
 ---
 
