@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fishing is much more than fish."  
-> — **Herbert Hoover**
+> "Being wrong opens us up to the possibility of change."  
+> — **Mark Manson**
 
 ---
 
