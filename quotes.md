@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being wrong opens us up to the possibility of change."  
-> — **Mark Manson**
+> "If you don't break your ropes while you're alive, do you think ghosts will do it after?"  
+> — **Kabir**
 
 ---
 
