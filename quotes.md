@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Leadership is solving problems"  
-> — **Colin Powell**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 

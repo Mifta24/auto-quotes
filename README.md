@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is liking yourself, liking what you do, and liking how you do it."  
-> — **Maya Angelou**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
+> — **Kahlil Gibran**
 
 ---
 
