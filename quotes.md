@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest step towards a life of simplicity is to learn to let go."  
-> — **Steve Maraboli**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 

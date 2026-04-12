@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."  
-> — **Kahlil Gibran**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 
