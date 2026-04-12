@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most important battle is one to conquer yourself."  
-> — **Yanni**
+> "Success is liking yourself, liking what you do, and liking how you do it."  
+> — **Maya Angelou**
 
 ---
 
-_Last updated: 11 April 2026 ⏳_
+_Last updated: 12 April 2026 ⏳_

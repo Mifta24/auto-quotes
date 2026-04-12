@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are the only problem you will ever have and you are the only solution."  
-> — **Bob Proctor**
+> "Success is liking yourself, liking what you do, and liking how you do it."  
+> — **Maya Angelou**
 
 ---
 
-_Last updated: 11 April 2026 ⏳_
+_Last updated: 12 April 2026 ⏳_
