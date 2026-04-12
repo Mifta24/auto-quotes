@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't break your ropes while you're alive, do you think ghosts will do it after?"  
-> — **Kabir**
+> "Life can be wonderful if you're not afraid of it."  
+> — **Charlie Chaplin**
 
 ---
 
