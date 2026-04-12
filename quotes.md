@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "You can't have anything worthwhile without difficulties."  
+> — **Harry S. Truman**
 
 ---
 
