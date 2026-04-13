@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 
