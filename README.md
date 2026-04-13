@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "Fool me once, shame on you; fool me twice, shame on me. "  
+> — **Chinese Proverb**
 
 ---
 

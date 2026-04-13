@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to dance than to march through life."  
-> — **Yoko Ono**
+> "Fool me once, shame on you; fool me twice, shame on me. "  
+> — **Chinese Proverb**
 
 ---
 
