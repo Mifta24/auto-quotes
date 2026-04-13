@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
+> — **Henry Ford**
 
 ---
 
