@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists."  
+> — **Charles Dickens**
 
 ---
 

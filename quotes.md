@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
-> — **Henry Ford**
+> "A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists."  
+> — **Charles Dickens**
 
 ---
 
