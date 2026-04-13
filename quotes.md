@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life can be wonderful if you're not afraid of it."  
-> — **Charlie Chaplin**
+> "It's much better to do good in a way that no one knows anything about it."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 12 April 2026 ⏳_
+_Last updated: 13 April 2026 ⏳_
