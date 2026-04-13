@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists."  
-> — **Charles Dickens**
+> "It doesn't matter how much you want. What really matters is how much you want it."  
+> — **Ralph Marston**
 
 ---
 
