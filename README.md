@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's much better to do good in a way that no one knows anything about it."  
-> — **Leo Tolstoy**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 

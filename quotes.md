@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to learn late than never."  
-> — **Publilius Syrus**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 
