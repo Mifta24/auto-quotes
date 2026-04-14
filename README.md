@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must find the place inside yourself where nothing is impossible."  
-> — **Les Brown**
+> "Art, like morality, consists of drawing the line somewhere."  
+> — **Gilbert Chesterton**
 
 ---
 

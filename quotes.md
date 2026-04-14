@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "Art, like morality, consists of drawing the line somewhere."  
+> — **Gilbert Chesterton**
 
 ---
 
