@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves."  
-> — **Steve Maraboli**
+> "Do not pray for an easy life, pray for the strength to endure a difficult one.  "  
+> — **Bruce Lee**
 
 ---
 
