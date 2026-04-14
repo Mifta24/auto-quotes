@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is from the inside out. When you shift on the inside, life shifts on the outside."  
-> — **Kamal Ravikant**
+> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations."  
+> — **Alfred Adler**
 
 ---
 
