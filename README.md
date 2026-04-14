@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists."  
-> — **Charles Dickens**
+> "You must find the place inside yourself where nothing is impossible."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 13 April 2026 ⏳_
+_Last updated: 14 April 2026 ⏳_

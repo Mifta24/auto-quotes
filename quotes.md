@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It doesn't matter how much you want. What really matters is how much you want it."  
-> — **Ralph Marston**
+> "You must find the place inside yourself where nothing is impossible."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 13 April 2026 ⏳_
+_Last updated: 14 April 2026 ⏳_
