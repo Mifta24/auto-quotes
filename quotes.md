@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You must find the place inside yourself where nothing is impossible."  
-> — **Les Brown**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 
