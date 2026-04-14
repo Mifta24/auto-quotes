@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art, like morality, consists of drawing the line somewhere."  
-> — **Gilbert Chesterton**
+> "A person who does not read is no better than one cannot read."  
+> — **Earl Nightingale**
 
 ---
 
