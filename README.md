@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "Work for something because it is good, not just because it stands a chance to succeed."  
+> — **Vaclav Havel**
 
 ---
 

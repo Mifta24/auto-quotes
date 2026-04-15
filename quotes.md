@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "Work for something because it is good, not just because it stands a chance to succeed."  
+> — **Vaclav Havel**
 
 ---
 
