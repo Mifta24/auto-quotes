@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise learn many things from their enemies."  
-> — **Aristophanes**
+> "Never to suffer would never to have been blessed."  
+> — **Edgar Allan Poe**
 
 ---
 

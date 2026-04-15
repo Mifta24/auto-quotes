@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adults are just children who earn money."  
-> — **Kenneth Branagh**
+> "Never to suffer would never to have been blessed."  
+> — **Edgar Allan Poe**
 
 ---
 
