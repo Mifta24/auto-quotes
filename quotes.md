@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be brave. Take risks. Nothing can substitute experience."  
-> — **Paulo Coelho**
+> "Life is trying things to see if they work."  
+> — **Ray Bradbury**
 
 ---
 
