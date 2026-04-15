@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never to suffer would never to have been blessed."  
-> — **Edgar Allan Poe**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 
