@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise learn many things from their enemies."  
-> — **Aristophanes**
+> "Adults are just children who earn money."  
+> — **Kenneth Branagh**
 
 ---
 
