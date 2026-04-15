@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work for something because it is good, not just because it stands a chance to succeed."  
-> — **Vaclav Havel**
+> "It is not the knowing that is difficult, but the doing. "  
+> — **Chinese Proverb**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech. "  
-> — **Albert Einstein**
+> "It is not the knowing that is difficult, but the doing. "  
+> — **Chinese Proverb**
 
 ---
 
