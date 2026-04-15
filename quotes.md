@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not the knowing that is difficult, but the doing. "  
-> — **Chinese Proverb**
+> "Why fit in when you were born to stand out?"  
+> — **Dr. Seuss**
 
 ---
 
