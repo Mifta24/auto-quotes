@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "Be brave. Take risks. Nothing can substitute experience."  
+> — **Paulo Coelho**
 
 ---
 

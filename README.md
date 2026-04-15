@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not the knowing that is difficult, but the doing. "  
-> — **Chinese Proverb**
+> "Be brave. Take risks. Nothing can substitute experience."  
+> — **Paulo Coelho**
 
 ---
 
