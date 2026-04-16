@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with most of us is that we'd rather be ruined by praise than saved by criticism."  
-> — **Norman Vincent Peale**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 

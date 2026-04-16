@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting."  
-> — **Bhagavad Gita**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 
