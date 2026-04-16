@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "Science can flourish only in an atmosphere of free speech. "  
+> — **Albert Einstein**
 
 ---
 
