@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. "  
-> — **Nikola Tesla**
+> "The trouble with most of us is that we'd rather be ruined by praise than saved by criticism."  
+> — **Norman Vincent Peale**
 
 ---
 
