@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing good ever comes of violence."  
-> — **Martin Luther**
+> "Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. "  
+> — **Nikola Tesla**
 
 ---
 
