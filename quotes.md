@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success."  
-> — **Mark Manson**
+> "If you run you stand a chance of losing, but if you don't run you've already lost."  
+> — **Barack Obama**
 
 ---
 
