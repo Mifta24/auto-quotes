@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech. "  
-> — **Albert Einstein**
+> "If you want to achieve greatness stop asking for permission."  
+> — **Unknown**
 
 ---
 

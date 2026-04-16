@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "If you want to achieve greatness stop asking for permission."  
+> — **Unknown**
 
 ---
 
