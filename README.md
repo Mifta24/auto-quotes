@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want to achieve greatness stop asking for permission."  
-> — **Unknown**
+> "I'm not afraid of death, but I'm in no hurry to die."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 16 April 2026 ⏳_
+_Last updated: 17 April 2026 ⏳_
