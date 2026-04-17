@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "Thinking is difficult, that's why most people judge."  
+> — **Carl Jung**
 
 ---
 
