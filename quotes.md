@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is difficult, that's why most people judge."  
-> — **Carl Jung**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 
