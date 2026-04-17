@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Care about what other people think and you will always be their prisoner."  
-> — **Lao Tzu**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 

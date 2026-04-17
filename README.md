@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life begins where fear ends."  
-> — **Osho**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
