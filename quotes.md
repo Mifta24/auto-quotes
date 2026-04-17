@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I'm not afraid of death, but I'm in no hurry to die."  
-> — **Stephen Hawking**
+> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
+> — **James Matthew Barrie**
 
 ---
 
