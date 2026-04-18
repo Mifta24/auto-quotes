@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future."  
-> — **Deepak Chopra**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 
