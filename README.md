@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man becomes rich unless he enriches others."  
-> — **Andrew Carnegie**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 

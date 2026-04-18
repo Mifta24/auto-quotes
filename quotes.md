@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever happens always happens on time."  
-> — **Zen Proverb**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 
