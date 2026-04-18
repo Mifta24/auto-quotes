@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "Peace is not the absence of conflict, but the ability to cope with it."  
+> — **Unknown**
 
 ---
 
