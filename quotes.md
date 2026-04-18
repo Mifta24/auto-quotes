@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not the absence of conflict, but the ability to cope with it."  
-> — **Unknown**
+> "No man becomes rich unless he enriches others."  
+> — **Andrew Carnegie**
 
 ---
 
