@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The finish line is just the beginning of a whole new race."  
-> — **Unknown**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
-_Last updated: 17 April 2026 ⏳_
+_Last updated: 18 April 2026 ⏳_

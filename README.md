@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
-_Last updated: 17 April 2026 ⏳_
+_Last updated: 18 April 2026 ⏳_
