@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "Chase your passion, not your pension. "  
+> — **Denis Waitley**
 
 ---
 
