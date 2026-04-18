@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man becomes rich unless he enriches others."  
-> — **Andrew Carnegie**
+> "Whatever happens always happens on time."  
+> — **Zen Proverb**
 
 ---
 
