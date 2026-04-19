@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. "  
-> — **Orison Swett Marden**
+> "There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return."  
+> — **Nelson Mandela**
 
 ---
 
