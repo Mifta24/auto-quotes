@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "You can't let your failures define you. You have to let your failures teach you."  
+> — **Barack Obama**
 
 ---
 
-_Last updated: 18 April 2026 ⏳_
+_Last updated: 19 April 2026 ⏳_
