@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "By words the mind is winged."  
+> — **Aristophanes**
 
 ---
 
