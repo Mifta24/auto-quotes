@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless you're ashamed of yourself now and then, you're not honest."  
-> — **William Faulkner**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 

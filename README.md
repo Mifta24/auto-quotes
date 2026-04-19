@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't let your failures define you. You have to let your failures teach you."  
-> — **Barack Obama**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
