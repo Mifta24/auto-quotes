@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return."  
-> — **Nelson Mandela**
+> "Sometimes you have to travel a long way to find what is near."  
+> — **Paulo Coelho**
 
 ---
 
