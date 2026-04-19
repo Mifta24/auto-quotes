@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't let your failures define you. You have to let your failures teach you."  
-> — **Barack Obama**
+> "Unless you're ashamed of yourself now and then, you're not honest."  
+> — **William Faulkner**
 
 ---
 
