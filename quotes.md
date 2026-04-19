@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Today I begin a new life. I will greet this day with love in my heart."  
-> — **Og Mandino**
+> "Quality is not an act, it is a habit."  
+> — **Aristotle**
 
 ---
 
