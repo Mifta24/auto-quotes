@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "Today I begin a new life. I will greet this day with love in my heart."  
+> — **Og Mandino**
 
 ---
 

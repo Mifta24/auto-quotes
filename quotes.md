@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "Today I begin a new life. I will greet this day with love in my heart."  
+> — **Og Mandino**
 
 ---
 
