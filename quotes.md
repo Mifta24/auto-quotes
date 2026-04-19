@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to travel a long way to find what is near."  
-> — **Paulo Coelho**
+> "What we dwell on is who we become."  
+> — **Oprah Winfrey**
 
 ---
 
