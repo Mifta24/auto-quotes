@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life isn't about finding yourself. Life is about creating yourself."  
-> — **George Bernard Shaw**
+> "Is it really possible to tell someone else what one feels?"  
+> — **Leo Tolstoy**
 
 ---
 
