@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At every moment where language can't go, that's your mind."  
-> — **Bodhidharma**
+> "No man becomes rich unless he enriches others."  
+> — **Andrew Carnegie**
 
 ---
 
