@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "Reversing your treatment of the man you have wronged is better than asking his forgiveness."  
+> — **Elbert Hubbard**
 
 ---
 
