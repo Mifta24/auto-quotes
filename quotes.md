@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What we dwell on is who we become."  
-> — **Oprah Winfrey**
+> "Life isn't about finding yourself. Life is about creating yourself."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 19 April 2026 ⏳_
+_Last updated: 20 April 2026 ⏳_
