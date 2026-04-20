@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Is it really possible to tell someone else what one feels?"  
-> — **Leo Tolstoy**
+> "Discipline is the bridge between goals and accomplishment."  
+> — **Jim Rohn**
 
 ---
 

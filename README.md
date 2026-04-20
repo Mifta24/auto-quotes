@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life isn't about finding yourself. Life is about creating yourself."  
-> — **George Bernard Shaw**
+> "Discipline is the bridge between goals and accomplishment."  
+> — **Jim Rohn**
 
 ---
 
