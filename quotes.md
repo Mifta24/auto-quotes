@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
-> — **Dalai Lama**
+> "Words are the clothing of our thoughts."  
+> — **Jonathan Swift**
 
 ---
 
