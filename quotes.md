@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become."  
-> — **Heraclitus**
+> "At every moment where language can't go, that's your mind."  
+> — **Bodhidharma**
 
 ---
 

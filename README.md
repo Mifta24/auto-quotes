@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Discipline is the bridge between goals and accomplishment."  
-> — **Jim Rohn**
+> "At every moment where language can't go, that's your mind."  
+> — **Bodhidharma**
 
 ---
 
