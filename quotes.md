@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man becomes rich unless he enriches others."  
-> — **Andrew Carnegie**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 

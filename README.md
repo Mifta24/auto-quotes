@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At every moment where language can't go, that's your mind."  
-> — **Bodhidharma**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 
