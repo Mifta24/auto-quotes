@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reversing your treatment of the man you have wronged is better than asking his forgiveness."  
-> — **Elbert Hubbard**
+> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
+> — **Dalai Lama**
 
 ---
 

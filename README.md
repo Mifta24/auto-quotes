@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
+> — **Dalai Lama**
 
 ---
 
