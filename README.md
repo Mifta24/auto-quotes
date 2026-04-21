@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is exact correspondence with reality. "  
-> — **Paramahansa Yogananda**
+> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."  
+> — **Confucius**
 
 ---
 
