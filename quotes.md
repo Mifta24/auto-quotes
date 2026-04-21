@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "The only way to 'find out if it will work out' is to do it."  
+> — **Simon Sinek**
 
 ---
 
