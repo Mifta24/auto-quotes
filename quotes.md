@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."  
-> — **Confucius**
+> "Problems remain as problems because people are busy defending them rather than finding solutions."  
+> — **Celestine Chua**
 
 ---
 
