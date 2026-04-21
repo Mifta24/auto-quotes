@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."  
-> — **Peter Drucker**
+> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."  
+> — **Steve Jobs**
 
 ---
 

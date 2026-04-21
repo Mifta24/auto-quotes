@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
-> — **Albert Einstein**
+> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."  
+> — **Steve Jobs**
 
 ---
 
