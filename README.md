@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion."  
-> — **Dalai Lama**
+> "The first man gets the oyster, the second man gets the shell."  
+> — **Andrew Carnegie**
 
 ---
 
-_Last updated: 20 April 2026 ⏳_
+_Last updated: 21 April 2026 ⏳_
