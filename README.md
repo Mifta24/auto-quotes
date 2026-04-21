@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first man gets the oyster, the second man gets the shell."  
-> — **Andrew Carnegie**
+> "Truth is exact correspondence with reality. "  
+> — **Paramahansa Yogananda**
 
 ---
 
