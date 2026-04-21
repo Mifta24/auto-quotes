@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Problems remain as problems because people are busy defending them rather than finding solutions."  
-> — **Celestine Chua**
+> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you."  
+> — **Peter Drucker**
 
 ---
 
