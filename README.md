@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you know what you want, and want it bad enough, you will find a way to get it."  
-> — **Jim Rohn**
+> "Life is a succession of lessons, which must be lived to be understood."  
+> — **Ralph Waldo Emerson**
 
 ---
 
