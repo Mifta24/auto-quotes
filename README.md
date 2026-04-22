@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not wait for leaders; do it alone, person to person."  
-> — **Mother Teresa**
+> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
+> — **Alexander Graham Bell**
 
 ---
 

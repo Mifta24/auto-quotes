@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What you get by achieving your goals is not as important as what you become by achieving your goals."  
-> — **Henry David Thoreau**
+> "Ideas do not reach perfection in a day, no matter how much study is put upon them."  
+> — **Alexander Graham Bell**
 
 ---
 
