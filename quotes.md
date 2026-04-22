@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not wait for leaders; do it alone, person to person."  
-> — **Mother Teresa**
+> "What you get by achieving your goals is not as important as what you become by achieving your goals."  
+> — **Henry David Thoreau**
 
 ---
 
