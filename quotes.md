@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you know what you want, and want it bad enough, you will find a way to get it."  
-> — **Jim Rohn**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
