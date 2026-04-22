@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How you think when you lose determines how long it will be until you win."  
-> — **Gilbert Chesterton**
+> "When you know what you want, and want it bad enough, you will find a way to get it."  
+> — **Jim Rohn**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give so much away people insist on paying you."  
-> — **Jack Butcher**
+> "When you know what you want, and want it bad enough, you will find a way to get it."  
+> — **Jim Rohn**
 
 ---
 
