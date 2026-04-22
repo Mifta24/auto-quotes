@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give so much away people insist on paying you."  
-> — **Jack Butcher**
+> "How you think when you lose determines how long it will be until you win."  
+> — **Gilbert Chesterton**
 
 ---
 
