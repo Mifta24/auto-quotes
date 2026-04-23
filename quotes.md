@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love never keeps a man from pursuing his destiny."  
-> — **Paulo Coelho**
+> "The future is not a gift. It is an achievement."  
+> — **Robert F. Kennedy**
 
 ---
 
