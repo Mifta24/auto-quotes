@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future is not a gift. It is an achievement."  
-> — **Robert F. Kennedy**
+> "Most people dabble their way through life, never deciding to master anything in particular."  
+> — **Tony Robbins**
 
 ---
 

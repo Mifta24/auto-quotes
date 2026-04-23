@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love."  
-> — **John Lennon**
+> "Most people dabble their way through life, never deciding to master anything in particular."  
+> — **Tony Robbins**
 
 ---
 
