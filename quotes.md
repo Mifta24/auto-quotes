@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people dabble their way through life, never deciding to master anything in particular."  
-> — **Tony Robbins**
+> "Everyone thinks of changing the world, but no one thinks of changing himself."  
+> — **Leo Tolstoy**
 
 ---
 
