@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people want it to happen, some wish it would happen, others make it happen."  
-> — **Michael Jordan**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 
