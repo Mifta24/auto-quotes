@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What keeps life fascinating is the constant creativity of the soul."  
-> — **Deepak Chopra**
+> "It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love."  
+> — **John Lennon**
 
 ---
 
