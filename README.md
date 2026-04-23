@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is a succession of lessons, which must be lived to be understood."  
-> — **Ralph Waldo Emerson**
+> "Some people want it to happen, some wish it would happen, others make it happen."  
+> — **Michael Jordan**
 
 ---
 
-_Last updated: 22 April 2026 ⏳_
+_Last updated: 23 April 2026 ⏳_
