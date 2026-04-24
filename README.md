@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "Absence makes the heart grow fonder."  
+> — **Eleanor Roosevelt**
 
 ---
 
