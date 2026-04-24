@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everyone thinks of changing the world, but no one thinks of changing himself."  
-> — **Leo Tolstoy**
+> "The measure of wisdom is how calm you are when facing any given situation."  
+> — **Naval Ravikant**
 
 ---
 
-_Last updated: 23 April 2026 ⏳_
+_Last updated: 24 April 2026 ⏳_
