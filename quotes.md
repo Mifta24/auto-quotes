@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker.  "  
-> — **Zig Ziglar**
+> "All our dreams can come true, if we have the courage to pursue them."  
+> — **Walt Disney**
 
 ---
 
