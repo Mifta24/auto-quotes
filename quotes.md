@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The measure of wisdom is how calm you are when facing any given situation."  
-> — **Naval Ravikant**
+> "Who you are is always right."  
+> — **Ming-Dao Deng**
 
 ---
 
