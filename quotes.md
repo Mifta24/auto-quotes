@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The journey, not the destination matters."  
-> — **T.S. Eliot**
+> "Make failure your teacher, not your undertaker.  "  
+> — **Zig Ziglar**
 
 ---
 
