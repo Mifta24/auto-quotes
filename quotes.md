@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absence makes the heart grow fonder."  
-> — **Eleanor Roosevelt**
+> "Difficult roads often lead to beautiful destinations."  
+> — **Unknown**
 
 ---
 
