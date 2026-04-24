@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is always right."  
-> — **Ming-Dao Deng**
+> "Allow motion to equal emotion."  
+> — **Elbert Hubbard**
 
 ---
 
