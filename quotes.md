@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Generosity is giving more than you can, and pride is taking less than you need."  
-> — **Kahlil Gibran**
+> "Happiness is when what you think, what you say, and what you do are in harmony."  
+> — **Mahatma Gandhi**
 
 ---
 
