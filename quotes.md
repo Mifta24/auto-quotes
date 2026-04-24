@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Allow motion to equal emotion."  
-> — **Elbert Hubbard**
+> "Generosity is giving more than you can, and pride is taking less than you need."  
+> — **Kahlil Gibran**
 
 ---
 
