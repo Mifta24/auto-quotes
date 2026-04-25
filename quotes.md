@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
-> — **Winston Churchill**
+> "People think about what they don't want and attract more of the same."  
+> — **Unknown**
 
 ---
 
