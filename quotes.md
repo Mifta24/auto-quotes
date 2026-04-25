@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like underwear, should be changed twice a day.  "  
-> — **Ray Bradbury**
+> "There's no next time. It's now or never."  
+> — **Celestine Chua**
 
 ---
 
