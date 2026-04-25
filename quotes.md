@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
+> — **Winston Churchill**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like underwear, should be changed twice a day.  "  
-> — **Ray Bradbury**
+> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
+> — **Winston Churchill**
 
 ---
 
