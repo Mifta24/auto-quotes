@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If your happiness depends on what somebody else does, I guess you do have a problem."  
-> — **Richard Bach**
+> "In matters of style, swim with the current; in matters of principle, stand like a rock."  
+> — **Thomas Jefferson**
 
 ---
 
