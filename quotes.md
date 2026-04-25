@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do anything, but let it produce joy."  
-> — **Walt Whitman**
+> "If your happiness depends on what somebody else does, I guess you do have a problem."  
+> — **Richard Bach**
 
 ---
 
