@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
-> — **Aristotle**
+> "However difficult life may seem, there is always something you can do and succeed at."  
+> — **Stephen Hawking**
 
 ---
 
