@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is never final; failure is never fatal."  
-> — **Conrad Hilton**
+> "Life is like underwear, should be changed twice a day.  "  
+> — **Ray Bradbury**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In matters of style, swim with the current; in matters of principle, stand like a rock."  
-> — **Thomas Jefferson**
+> "Life is like underwear, should be changed twice a day.  "  
+> — **Ray Bradbury**
 
 ---
 
