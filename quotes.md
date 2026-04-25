@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "However difficult life may seem, there is always something you can do and succeed at."  
-> — **Stephen Hawking**
+> "Do anything, but let it produce joy."  
+> — **Walt Whitman**
 
 ---
 
