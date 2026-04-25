@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Absence makes the heart grow fonder."  
-> — **Eleanor Roosevelt**
+> "Happiness is the meaning and the purpose of life, the whole aim and end of human existence."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 24 April 2026 ⏳_
+_Last updated: 25 April 2026 ⏳_
