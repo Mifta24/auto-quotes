@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fool me once, shame on you; fool me twice, shame on me. "  
-> — **Chinese Proverb**
+> "You cannot teach a crab to walk straight."  
+> — **Aristophanes**
 
 ---
 
