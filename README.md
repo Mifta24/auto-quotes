@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
-> — **Winston Churchill**
+> "A fear of weakness only strengthens weakness."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 25 April 2026 ⏳_
+_Last updated: 26 April 2026 ⏳_

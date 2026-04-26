@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People think about what they don't want and attract more of the same."  
-> — **Unknown**
+> "A fear of weakness only strengthens weakness."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 25 April 2026 ⏳_
+_Last updated: 26 April 2026 ⏳_
