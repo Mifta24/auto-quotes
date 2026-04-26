@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The person who cannot control his words shows that he cannot control himself."  
-> — **Robert Greene**
+> "Fool me once, shame on you; fool me twice, shame on me. "  
+> — **Chinese Proverb**
 
 ---
 
