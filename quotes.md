@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw me to the wolves and I will return leading the pack.  "  
-> — **Seneca**
+> "If the plan doesn't work, change the plan, but never the goal."  
+> — **Unknown**
 
 ---
 
