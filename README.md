@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fool me once, shame on you; fool me twice, shame on me. "  
-> — **Chinese Proverb**
+> "If life were predictable it would cease to be life, and be without flavor."  
+> — **Eleanor Roosevelt**
 
 ---
 

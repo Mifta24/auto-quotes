@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot teach a crab to walk straight."  
-> — **Aristophanes**
+> "If life were predictable it would cease to be life, and be without flavor."  
+> — **Eleanor Roosevelt**
 
 ---
 
