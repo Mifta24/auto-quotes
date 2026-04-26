@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear of weakness only strengthens weakness."  
-> — **Criss Jami**
+> "The great use of life is to spend it for something that will outlast it."  
+> — **William James**
 
 ---
 
