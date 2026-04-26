@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fear of weakness only strengthens weakness."  
-> — **Criss Jami**
+> "Throw me to the wolves and I will return leading the pack.  "  
+> — **Seneca**
 
 ---
 

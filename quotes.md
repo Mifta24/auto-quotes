@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The great use of life is to spend it for something that will outlast it."  
-> — **William James**
+> "Throw me to the wolves and I will return leading the pack.  "  
+> — **Seneca**
 
 ---
 
