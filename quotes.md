@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mind is the creator of everything. You should therefore guide it to create only good."  
-> — **Paramahansa Yogananda**
+> "The person who cannot control his words shows that he cannot control himself."  
+> — **Robert Greene**
 
 ---
 
