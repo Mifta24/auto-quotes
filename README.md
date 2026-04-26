@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw me to the wolves and I will return leading the pack.  "  
-> — **Seneca**
+> "Mind is the creator of everything. You should therefore guide it to create only good."  
+> — **Paramahansa Yogananda**
 
 ---
 

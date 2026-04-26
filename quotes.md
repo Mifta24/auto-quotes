@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If the plan doesn't work, change the plan, but never the goal."  
-> — **Unknown**
+> "Mind is the creator of everything. You should therefore guide it to create only good."  
+> — **Paramahansa Yogananda**
 
 ---
 
