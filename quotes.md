@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When your intuition is strong, follow it."  
-> — **Lolly Daskal**
+> "Today will never happen again. Don't waste it with a false start or no start at all."  
+> — **Og Mandino**
 
 ---
 
