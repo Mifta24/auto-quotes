@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is to be willing to die over and over again."  
-> — **Pema Chodron**
+> "When your intuition is strong, follow it."  
+> — **Lolly Daskal**
 
 ---
 

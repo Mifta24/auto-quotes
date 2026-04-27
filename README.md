@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
-> — **Criss Jami**
+> "When your intuition is strong, follow it."  
+> — **Lolly Daskal**
 
 ---
 
