@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want."  
-> — **Tony Robbins**
+> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
+> — **Ming-Dao Deng**
 
 ---
 
