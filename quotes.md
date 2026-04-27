@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is from the inside out. When you shift on the inside, life shifts on the outside."  
-> — **Kamal Ravikant**
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 26 April 2026 ⏳_
+_Last updated: 27 April 2026 ⏳_

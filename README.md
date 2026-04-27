@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If life were predictable it would cease to be life, and be without flavor."  
-> — **Eleanor Roosevelt**
+> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 26 April 2026 ⏳_
+_Last updated: 27 April 2026 ⏳_
