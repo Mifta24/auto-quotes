@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you."  
-> — **Criss Jami**
+> "To live is to be willing to die over and over again."  
+> — **Pema Chodron**
 
 ---
 
