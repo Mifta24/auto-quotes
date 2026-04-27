@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
-> — **Ming-Dao Deng**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
