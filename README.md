@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
-> — **Ming-Dao Deng**
+> "Success in any endeavor depends on the degree to which it is an expression of your true self. "  
+> — **Ralph Marston**
 
 ---
 

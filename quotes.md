@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "Success in any endeavor depends on the degree to which it is an expression of your true self. "  
+> — **Ralph Marston**
 
 ---
 
