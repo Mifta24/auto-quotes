@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success in any endeavor depends on the degree to which it is an expression of your true self. "  
-> — **Ralph Marston**
+> "Never let the things you can't do stop you from doing what you can."  
+> — **Ronald Reagan**
 
 ---
 
