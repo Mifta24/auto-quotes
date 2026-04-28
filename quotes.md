@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never let the things you can't do stop you from doing what you can."  
-> — **Ronald Reagan**
+> "Luck is a matter of preparation meeting opportunity."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 27 April 2026 ⏳_
+_Last updated: 28 April 2026 ⏳_
