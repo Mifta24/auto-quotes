@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Things may come to those who wait, but only the things left by those who hustle."  
-> — **Abraham Lincoln**
+> "The few who do are the envy of the many who only watch."  
+> — **Jim Rohn**
 
 ---
 
