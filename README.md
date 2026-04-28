@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life moves on and so should we."  
-> — **Spencer Johnson**
+> "Everybody by your side ain't on your side."  
+> — **Steve Harvey**
 
 ---
 

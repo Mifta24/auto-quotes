@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You'll never find rainbows if you're looking down.  "  
-> — **Charlie Chaplin**
+> "Everybody by your side ain't on your side."  
+> — **Steve Harvey**
 
 ---
 
