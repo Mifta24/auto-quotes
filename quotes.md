@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life moves on and so should we."  
-> — **Spencer Johnson**
+> "You'll never find rainbows if you're looking down.  "  
+> — **Charlie Chaplin**
 
 ---
 
