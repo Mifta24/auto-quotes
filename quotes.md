@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn the pain into power."  
-> — **Unknown**
+> "Life moves on and so should we."  
+> — **Spencer Johnson**
 
 ---
 
