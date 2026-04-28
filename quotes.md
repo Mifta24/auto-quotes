@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Luck is a matter of preparation meeting opportunity."  
-> — **Oprah Winfrey**
+> "Turn the pain into power."  
+> — **Unknown**
 
 ---
 
