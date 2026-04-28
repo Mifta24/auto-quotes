@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everybody by your side ain't on your side."  
-> — **Steve Harvey**
+> "There are no mistakes in life, only lessons."  
+> — **Robin Sharma**
 
 ---
 
