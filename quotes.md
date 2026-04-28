@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no mistakes in life, only lessons."  
-> — **Robin Sharma**
+> "Things may come to those who wait, but only the things left by those who hustle."  
+> — **Abraham Lincoln**
 
 ---
 

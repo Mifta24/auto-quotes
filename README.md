@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everybody by your side ain't on your side."  
-> — **Steve Harvey**
+> "Things may come to those who wait, but only the things left by those who hustle."  
+> — **Abraham Lincoln**
 
 ---
 
