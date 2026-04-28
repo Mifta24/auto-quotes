@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned the value of hard work by working hard. "  
-> — **Margaret Mead**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
