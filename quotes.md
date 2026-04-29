@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek is to suffer. To seek nothing is bliss."  
-> — **Bodhidharma**
+> "Get mad, then get over it."  
+> — **Colin Powell**
 
 ---
 
