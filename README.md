@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever satisfies the soul is truth."  
-> — **Walt Whitman**
+> "To seek is to suffer. To seek nothing is bliss."  
+> — **Bodhidharma**
 
 ---
 
