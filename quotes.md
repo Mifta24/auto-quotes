@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."  
-> — **Steve Harvey**
+> "You are not only responsible for what you say, but also for what you do not say. "  
+> — **Martin Luther**
 
 ---
 

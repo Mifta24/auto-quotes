@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Coming together is a beginning, staying together is progress, and working together is success. "  
-> — **Henry Ford**
+> "You are not only responsible for what you say, but also for what you do not say. "  
+> — **Martin Luther**
 
 ---
 
