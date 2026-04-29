@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Coming together is a beginning, staying together is progress, and working together is success. "  
-> — **Henry Ford**
+> "Optimism is the one quality more associated with success and happiness than any other."  
+> — **Brian Tracy**
 
 ---
 
