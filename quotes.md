@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Get mad, then get over it."  
-> — **Colin Powell**
+> "Coming together is a beginning, staying together is progress, and working together is success. "  
+> — **Henry Ford**
 
 ---
 

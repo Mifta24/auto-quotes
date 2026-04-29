@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek is to suffer. To seek nothing is bliss."  
-> — **Bodhidharma**
+> "Coming together is a beginning, staying together is progress, and working together is success. "  
+> — **Henry Ford**
 
 ---
 
