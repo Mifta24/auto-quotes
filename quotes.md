@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Throughout this life, you can never be certain of living long enough to take another breath."  
-> — **Zen Proverb**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 28 April 2026 ⏳_
+_Last updated: 29 April 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I learned the value of hard work by working hard. "  
-> — **Margaret Mead**
+> "Whatever satisfies the soul is truth."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 28 April 2026 ⏳_
+_Last updated: 29 April 2026 ⏳_
