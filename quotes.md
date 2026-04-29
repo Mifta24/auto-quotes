@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Optimism is the one quality more associated with success and happiness than any other."  
-> — **Brian Tracy**
+> "Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given."  
+> — **Steve Harvey**
 
 ---
 
