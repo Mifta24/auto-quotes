@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 

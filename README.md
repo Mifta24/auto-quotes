@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever is begun in anger, ends in shame."  
-> — **Benjamin Franklin**
+> "You are free, and that is why you are lost."  
+> — **Franz Kafka**
 
 ---
 
