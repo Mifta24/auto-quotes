@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are free, and that is why you are lost."  
-> — **Franz Kafka**
+> "I believe that one of life's greatest risks is never daring to risk."  
+> — **Oprah Winfrey**
 
 ---
 
