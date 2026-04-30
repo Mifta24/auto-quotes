@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise men speak because they have something to say; Fools because they have to say something."  
-> — **Plato**
+> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
+> — **Laurence J. Peter**
 
 ---
 
