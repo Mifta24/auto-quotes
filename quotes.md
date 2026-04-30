@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're on earth. There's no cure for that."  
-> — **Samuel Beckett**
+> "All I can do is be me, whoever that is."  
+> — **Bob Dylan**
 
 ---
 
