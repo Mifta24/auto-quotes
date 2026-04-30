@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever is begun in anger, ends in shame."  
-> — **Benjamin Franklin**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 
