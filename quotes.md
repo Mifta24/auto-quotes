@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can't help everyone, but everyone can help someone."  
-> — **Ronald Reagan**
+> "Whatever is begun in anger, ends in shame."  
+> — **Benjamin Franklin**
 
 ---
 
