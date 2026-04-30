@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are not only responsible for what you say, but also for what you do not say. "  
-> — **Martin Luther**
+> "Wise men speak because they have something to say; Fools because they have to say something."  
+> — **Plato**
 
 ---
 
-_Last updated: 29 April 2026 ⏳_
+_Last updated: 30 April 2026 ⏳_

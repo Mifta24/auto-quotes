@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Passion is born deaf and dumb."  
-> — **Honore de Balzac**
+> "Wise men speak because they have something to say; Fools because they have to say something."  
+> — **Plato**
 
 ---
 
-_Last updated: 29 April 2026 ⏳_
+_Last updated: 30 April 2026 ⏳_
