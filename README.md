@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're on earth. There's no cure for that."  
-> — **Samuel Beckett**
+> "I know not all that may be coming, but be it what it will, I'll go to it laughing."  
+> — **Herman Melville**
 
 ---
 

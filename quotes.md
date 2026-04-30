@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All I can do is be me, whoever that is."  
-> — **Bob Dylan**
+> "I know not all that may be coming, but be it what it will, I'll go to it laughing."  
+> — **Herman Melville**
 
 ---
 
