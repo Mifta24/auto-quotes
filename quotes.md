@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 
