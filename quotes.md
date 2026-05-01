@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."  
-> — **Richard Bach**
+> "The pursuit of mastery bears gifts. "  
+> — **Gary Keller**
 
 ---
 
