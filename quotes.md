@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I believe that one of life's greatest risks is never daring to risk."  
-> — **Oprah Winfrey**
+> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next."  
+> — **Herbert Hoover**
 
 ---
 
-_Last updated: 30 April 2026 ⏳_
+_Last updated: 01 May 2026 ⏳_
