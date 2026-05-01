@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fools read fast. Geniuses reread."  
-> — **Maxime Lagace**
+> "All power is from within and therefore under our control."  
+> — **Robert Collier**
 
 ---
 
