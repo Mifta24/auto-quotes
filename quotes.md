@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All power is from within and therefore under our control."  
-> — **Robert Collier**
+> "If you want to know what God thinks about money just look at the people He gives it to."  
+> — **Alexander Pope**
 
 ---
 
