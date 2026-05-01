@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next."  
-> — **Herbert Hoover**
+> "The quality of your life is determined by the quality of your thoughts."  
+> — **Unknown**
 
 ---
 

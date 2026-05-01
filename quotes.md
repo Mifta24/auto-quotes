@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is only real when shared."  
-> — **Christopher McCandless**
+> "The quality of your life is determined by the quality of your thoughts."  
+> — **Unknown**
 
 ---
 
