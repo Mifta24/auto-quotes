@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."  
+> — **Richard Bach**
 
 ---
 

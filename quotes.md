@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."  
+> — **Richard Bach**
 
 ---
 
