@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "Care about what other people think and you will always be their prisoner."  
+> — **Lao Tzu**
 
 ---
 
