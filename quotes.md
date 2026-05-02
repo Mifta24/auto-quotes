@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
-> — **Alexander Pope**
+> "Don't let someone elses. opinion become your reality."  
+> — **Les Brown**
 
 ---
 
