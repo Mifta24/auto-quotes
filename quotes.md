@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
-> — **Billie Jean King**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 

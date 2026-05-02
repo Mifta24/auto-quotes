@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The important thing is not what one is born with but what use one makes of that equipment."  
-> — **Alfred Adler**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 
