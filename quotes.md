@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The pursuit of mastery bears gifts. "  
-> — **Gary Keller**
+> "The truth is rarely pure and never simple. "  
+> — **Oscar Wilde**
 
 ---
 
-_Last updated: 01 May 2026 ⏳_
+_Last updated: 02 May 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us."  
-> — **Richard Bach**
+> "The truth is rarely pure and never simple. "  
+> — **Oscar Wilde**
 
 ---
 
-_Last updated: 01 May 2026 ⏳_
+_Last updated: 02 May 2026 ⏳_
