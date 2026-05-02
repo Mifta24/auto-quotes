@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If fear is too strong, the genius is suppressed."  
-> — **Robert Kiyosaki**
+> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
+> — **Robin Sharma**
 
 ---
 

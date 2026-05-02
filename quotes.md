@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."  
-> — **Richard Bach**
+> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
+> — **Robin Sharma**
 
 ---
 
