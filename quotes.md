@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "Work is always an antidote to depression."  
+> — **Eleanor Roosevelt**
 
 ---
 
