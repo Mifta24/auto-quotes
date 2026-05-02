@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Work is always an antidote to depression."  
-> — **Eleanor Roosevelt**
+> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
+> — **Alexander Pope**
 
 ---
 

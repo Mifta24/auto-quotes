@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is rarely pure and never simple. "  
-> — **Oscar Wilde**
+> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
+> — **Alexander Pope**
 
 ---
 
