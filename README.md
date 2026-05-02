@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found."  
-> — **Alexander Pope**
+> "The important thing is not what one is born with but what use one makes of that equipment."  
+> — **Alfred Adler**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let someone elses. opinion become your reality."  
-> — **Les Brown**
+> "The important thing is not what one is born with but what use one makes of that equipment."  
+> — **Alfred Adler**
 
 ---
 
