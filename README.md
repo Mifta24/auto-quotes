@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?"  
-> — **Robin Sharma**
+> "A golden cage is still just a cage."  
+> — **Anita Krizzan**
 
 ---
 
-_Last updated: 02 May 2026 ⏳_
+_Last updated: 03 May 2026 ⏳_
