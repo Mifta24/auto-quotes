@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
-> — **Morihei Ueshiba**
+> "Don't just sit there. Do something. The answers will follow."  
+> — **Mark Manson**
 
 ---
 
