@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "I don't pretend to know everything; I just only speak on matters I know I'll win."  
+> — **Criss Jami**
 
 ---
 
