@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life is to fall seven times and to get up eight times."  
-> — **Paulo Coelho**
+> "We can see through others only when we can see through ourselves."  
+> — **Bruce Lee**
 
 ---
 

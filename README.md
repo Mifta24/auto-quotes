@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A golden cage is still just a cage."  
-> — **Anita Krizzan**
+> "We can see through others only when we can see through ourselves."  
+> — **Bruce Lee**
 
 ---
 
