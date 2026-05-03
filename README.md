@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can see through others only when we can see through ourselves."  
-> — **Bruce Lee**
+> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
+> — **Morihei Ueshiba**
 
 ---
 

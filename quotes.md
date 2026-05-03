@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is little success where there is little laughter."  
-> — **Andrew Carnegie**
+> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
+> — **Morihei Ueshiba**
 
 ---
 
