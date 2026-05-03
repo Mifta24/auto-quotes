@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot always do great things in life, but we can do small things with great love."  
-> — **Dan Millman**
+> "Nothing is really work unless you would rather be doing something else. "  
+> — **James Matthew Barrie**
 
 ---
 

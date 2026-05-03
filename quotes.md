@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sun is new each day."  
-> — **Heraclitus**
+> "Nothing is really work unless you would rather be doing something else. "  
+> — **James Matthew Barrie**
 
 ---
 
