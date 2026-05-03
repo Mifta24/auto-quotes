@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is growth. If we stop growing, technically and spiritually, we are as good as dead."  
-> — **Morihei Ueshiba**
+> "We cannot always do great things in life, but we can do small things with great love."  
+> — **Dan Millman**
 
 ---
 

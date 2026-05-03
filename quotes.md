@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't just sit there. Do something. The answers will follow."  
-> — **Mark Manson**
+> "We cannot always do great things in life, but we can do small things with great love."  
+> — **Dan Millman**
 
 ---
 
