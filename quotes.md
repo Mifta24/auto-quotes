@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A golden cage is still just a cage."  
-> — **Anita Krizzan**
+> "The secret of life is to fall seven times and to get up eight times."  
+> — **Paulo Coelho**
 
 ---
 
