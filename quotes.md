@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."  
-> — **Bob Marley**
+> "In order to attain the impossible, one must attempt the absurd."  
+> — **Miguel de Cervantes**
 
 ---
 
