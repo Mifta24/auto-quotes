@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the men in your life that matters, it's the life in your men."  
-> — **Mae West**
+> "The law of harvest is to reap more than you sow. Sow an act, and you reap a habit. Sow a habit and you reap a character. Sow a character and you reap a destiny."  
+> — **James Allen**
 
 ---
 
