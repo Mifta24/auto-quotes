@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The law of harvest is to reap more than you sow. Sow an act, and you reap a habit. Sow a habit and you reap a character. Sow a character and you reap a destiny."  
-> — **James Allen**
+> "The deeper the truth in a creative work, the longer it will live.  "  
+> — **Charlie Chaplin**
 
 ---
 

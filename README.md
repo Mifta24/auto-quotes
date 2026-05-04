@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's not the men in your life that matters, it's the life in your men."  
-> — **Mae West**
+> "The deeper the truth in a creative work, the longer it will live.  "  
+> — **Charlie Chaplin**
 
 ---
 
