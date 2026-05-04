@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
-> — **Steve Jobs**
+> "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for."  
+> — **Bob Marley**
 
 ---
 
