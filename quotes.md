@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live.  "  
-> — **Charlie Chaplin**
+> "Great things are not done by impulse, but by a series of small things brought together."  
+> — **Vincent van Gogh**
 
 ---
 
