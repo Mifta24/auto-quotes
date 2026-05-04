@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great things are not done by impulse, but by a series of small things brought together."  
-> — **Vincent van Gogh**
+> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
+> — **Steve Jobs**
 
 ---
 

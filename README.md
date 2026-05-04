@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live.  "  
-> — **Charlie Chaplin**
+> "My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time."  
+> — **Steve Jobs**
 
 ---
 
