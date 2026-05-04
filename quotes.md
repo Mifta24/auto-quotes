@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not the absence of problems, it's the ability to deal with them."  
-> — **Steve Maraboli**
+> "Greatness lies not in being strong, but in the right use of strength."  
+> — **Henry Ward Beecher**
 
 ---
 
