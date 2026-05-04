@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Greatness lies not in being strong, but in the right use of strength."  
-> — **Henry Ward Beecher**
+> "It's not the men in your life that matters, it's the life in your men."  
+> — **Mae West**
 
 ---
 

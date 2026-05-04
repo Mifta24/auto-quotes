@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is not the absence of problems, it's the ability to deal with them."  
-> — **Steve Maraboli**
+> "It's not the men in your life that matters, it's the life in your men."  
+> — **Mae West**
 
 ---
 
