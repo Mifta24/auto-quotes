@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win."  
-> — **Sun Tzu**
+> "It's the unknown we fear when we look upon death and darkness, nothing more."  
+> — **Albus Dumbledore**
 
 ---
 

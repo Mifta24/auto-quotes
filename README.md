@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
-> — **Socrates**
+> "It's the unknown we fear when we look upon death and darkness, nothing more."  
+> — **Albus Dumbledore**
 
 ---
 
