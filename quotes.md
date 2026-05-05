@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
-> — **Socrates**
+> "Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win."  
+> — **Sun Tzu**
 
 ---
 
