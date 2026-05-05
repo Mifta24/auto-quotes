@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
-> — **Herbert Hoover**
+> "Little by little, one travels far."  
+> — **J.R.R. Tolkien**
 
 ---
 
