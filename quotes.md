@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the unknown we fear when we look upon death and darkness, nothing more."  
-> — **Albus Dumbledore**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
