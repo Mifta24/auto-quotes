@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freedom is the open window through which pours the sunlight of the human spirit and human dignity."  
-> — **Herbert Hoover**
+> "The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings."  
+> — **Henry Ward Beecher**
 
 ---
 
