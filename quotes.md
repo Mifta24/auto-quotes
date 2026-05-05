@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold."  
-> — **Chinese Proverb**
+> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
+> — **Socrates**
 
 ---
 

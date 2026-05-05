@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wake up and smile! Wake up and be grateful!"  
-> — **Steve Harvey**
+> "Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for."  
+> — **Socrates**
 
 ---
 
