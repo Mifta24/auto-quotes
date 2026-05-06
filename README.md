@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts."  
-> — **George Bernard Shaw**
+> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
+> — **Robert Collier**
 
 ---
 

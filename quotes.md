@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
+> — **Robert Collier**
 
 ---
 
