@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
-> — **Robert Collier**
+> "If no one ever broke the rules, then we'd never advance."  
+> — **Simon Sinek**
 
 ---
 

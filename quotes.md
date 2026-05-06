@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "If no one ever broke the rules, then we'd never advance."  
+> — **Simon Sinek**
 
 ---
 
