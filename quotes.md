@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may be one person in this world, but to one person you may mean the world."  
-> — **Unknown**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 

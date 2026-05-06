@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If no one ever broke the rules, then we'd never advance."  
-> — **Simon Sinek**
+> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
+> — **Naval Ravikant**
 
 ---
 
