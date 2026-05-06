@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A fall into a ditch makes you wiser."  
-> — **Chinese Proverb**
+> "The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts."  
+> — **George Bernard Shaw**
 
 ---
 
