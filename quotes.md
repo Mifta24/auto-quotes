@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
-> — **Naval Ravikant**
+> "Success is not how high you have climbed, but how you make a positive difference to the world."  
+> — **Roy T. Bennett**
 
 ---
 
