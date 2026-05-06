@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "A fall into a ditch makes you wiser."  
+> — **Chinese Proverb**
 
 ---
 
