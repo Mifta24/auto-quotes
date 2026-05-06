@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
-> — **Robert Collier**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
