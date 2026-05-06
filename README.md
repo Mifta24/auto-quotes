@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's the unknown we fear when we look upon death and darkness, nothing more."  
-> — **Albus Dumbledore**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 05 May 2026 ⏳_
+_Last updated: 06 May 2026 ⏳_

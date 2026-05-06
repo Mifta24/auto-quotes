@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We live only now. Everything else is either passed or is unknown."  
-> — **Marcus Aurelius**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 05 May 2026 ⏳_
+_Last updated: 06 May 2026 ⏳_
