@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise people, even though all laws were abolished, would still lead the same life."  
-> — **Aristophanes**
+> "If you let your head get too big, it'll break your neck."  
+> — **Elvis Presley**
 
 ---
 

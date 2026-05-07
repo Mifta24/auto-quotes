@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only lose something that you have, but you cannot lose something that you are."  
-> — **Eckhart Tolle**
+> "If you let your head get too big, it'll break your neck."  
+> — **Elvis Presley**
 
 ---
 
