@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The first rule of handling conflict is don't hang around people who are constantly engaging in conflict."  
-> — **Naval Ravikant**
+> "You miss 100% of the shots you don't take."  
+> — **Wayne Gretzky**
 
 ---
 
-_Last updated: 06 May 2026 ⏳_
+_Last updated: 07 May 2026 ⏳_

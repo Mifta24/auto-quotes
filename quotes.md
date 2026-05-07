@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is not how high you have climbed, but how you make a positive difference to the world."  
-> — **Roy T. Bennett**
+> "You miss 100% of the shots you don't take."  
+> — **Wayne Gretzky**
 
 ---
 
-_Last updated: 06 May 2026 ⏳_
+_Last updated: 07 May 2026 ⏳_
