@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best mind-altering drug is the truth."  
-> — **Lily Tomlin**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 

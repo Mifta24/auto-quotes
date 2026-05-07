@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can do nothing to change the past, and the future will never come exactly as you plan or hope for."  
-> — **Dan Millman**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 
