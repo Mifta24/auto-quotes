@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "You miss 100% of the shots you don't take."  
+> "When you win, say nothing, when you lose say less."  
 > — **Wayne Gretzky**
 
 ---
