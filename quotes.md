@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise people, even though all laws were abolished, would still lead the same life."  
-> — **Aristophanes**
+> "You can only lose something that you have, but you cannot lose something that you are."  
+> — **Eckhart Tolle**
 
 ---
 
