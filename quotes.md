@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you let your head get too big, it'll break your neck."  
-> — **Elvis Presley**
+> "Admire as much as you can. Most people do not admire enough."  
+> — **Vincent van Gogh**
 
 ---
 
