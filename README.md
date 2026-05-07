@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You miss 100% of the shots you don't take."  
-> — **Wayne Gretzky**
+> "Wise people, even though all laws were abolished, would still lead the same life."  
+> — **Aristophanes**
 
 ---
 

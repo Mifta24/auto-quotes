@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you win, say nothing, when you lose say less."  
-> — **Wayne Gretzky**
+> "Wise people, even though all laws were abolished, would still lead the same life."  
+> — **Aristophanes**
 
 ---
 
