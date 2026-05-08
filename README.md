@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
-> — **Les Brown**
+> "Imagination is everything. It is the preview of life's coming attractions."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 07 May 2026 ⏳_
+_Last updated: 08 May 2026 ⏳_

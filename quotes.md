@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
-> — **Kahlil Gibran**
+> "Imagination is everything. It is the preview of life's coming attractions."  
+> — **Albert Einstein**
 
 ---
 
-_Last updated: 07 May 2026 ⏳_
+_Last updated: 08 May 2026 ⏳_
