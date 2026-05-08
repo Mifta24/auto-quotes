@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is everything. It is the preview of life's coming attractions."  
-> — **Albert Einstein**
+> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
+> — **Deepak Chopra**
 
 ---
 
