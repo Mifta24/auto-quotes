@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only be afraid of what you think you know."  
-> — **Jiddu Krishnamurti**
+> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
+> — **Wayne Gretzky**
 
 ---
 

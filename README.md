@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
+> — **Wayne Gretzky**
 
 ---
 
