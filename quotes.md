@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Leaders think and talk about solutions. Followers think and talk about the problems."  
-> — **Brian Tracy**
+> "All that we see or seem is but a dream within a dream."  
+> — **Edgar Allan Poe**
 
 ---
 
