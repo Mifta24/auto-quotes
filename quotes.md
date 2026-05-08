@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "You can only be afraid of what you think you know."  
+> — **Jiddu Krishnamurti**
 
 ---
 
