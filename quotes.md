@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Behind every cloud is another cloud."  
-> — **Judy Garland**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 
