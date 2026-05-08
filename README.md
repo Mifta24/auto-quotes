@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Imagination is everything. It is the preview of life's coming attractions."  
-> — **Albert Einstein**
+> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
+> — **Oprah Winfrey**
 
 ---
 

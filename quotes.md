@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined."  
-> — **Deepak Chopra**
+> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
+> — **Oprah Winfrey**
 
 ---
 
