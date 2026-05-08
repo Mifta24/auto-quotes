@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only he who has no use for the empire is fit to be entrusted with it."  
-> — **Zhuangzi**
+> "Leaders think and talk about solutions. Followers think and talk about the problems."  
+> — **Brian Tracy**
 
 ---
 

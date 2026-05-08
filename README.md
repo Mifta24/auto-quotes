@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
-> — **Wayne Gretzky**
+> "Leaders think and talk about solutions. Followers think and talk about the problems."  
+> — **Brian Tracy**
 
 ---
 
