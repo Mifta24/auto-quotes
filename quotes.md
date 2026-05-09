@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly."  
-> — **Marcus Aurelius**
+> "You change the world by being yourself."  
+> — **Yoko Ono**
 
 ---
 

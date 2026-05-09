@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Motivation is what gets you started. Habit is what keeps you going."  
-> — **Jim Rohn**
+> "You change the world by being yourself."  
+> — **Yoko Ono**
 
 ---
 
