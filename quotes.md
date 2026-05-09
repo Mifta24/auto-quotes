@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."  
-> — **Maxime Lagace**
+> "The desire for more positive experience is itself a negative experience."  
+> — **Mark Manson**
 
 ---
 
