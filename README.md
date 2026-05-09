@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absence makes the heart grow fonder."  
-> — **Eleanor Roosevelt**
+> "Learning never exhausts the mind. "  
+> — **Leonardo da Vinci**
 
 ---
 
