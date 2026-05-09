@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning never exhausts the mind. "  
-> — **Leonardo da Vinci**
+> "Motivation is what gets you started. Habit is what keeps you going."  
+> — **Jim Rohn**
 
 ---
 
