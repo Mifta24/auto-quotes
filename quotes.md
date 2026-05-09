@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Motivation is what gets you started. Habit is what keeps you going."  
-> — **Jim Rohn**
+> "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly."  
+> — **Marcus Aurelius**
 
 ---
 
