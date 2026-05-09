@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The highest level of wisdom is when you not only accept but love adversity."  
-> — **Maxime Lagace**
+> "Absence makes the heart grow fonder."  
+> — **Eleanor Roosevelt**
 
 ---
 

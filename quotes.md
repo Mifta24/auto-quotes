@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The desire for more positive experience is itself a negative experience."  
-> — **Mark Manson**
+> "Absence makes the heart grow fonder."  
+> — **Eleanor Roosevelt**
 
 ---
 
