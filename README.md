@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Leaders think and talk about solutions. Followers think and talk about the problems."  
-> — **Brian Tracy**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 
-_Last updated: 08 May 2026 ⏳_
+_Last updated: 09 May 2026 ⏳_
