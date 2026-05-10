@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kind words can be short and easy to speak, but their echoes are truly endless."  
-> — **Mother Teresa**
+> "There is an essence of when you are fearless, you become more creative."  
+> — **Gurbaksh Chahal**
 
 ---
 
