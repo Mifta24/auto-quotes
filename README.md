@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable."  
-> — **Earl Nightingale**
+> "The great use of life is to spend it for something that will outlast it."  
+> — **William James**
 
 ---
 

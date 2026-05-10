@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever you believe with feeling becomes your reality. "  
-> — **Brian Tracy**
+> "The great use of life is to spend it for something that will outlast it."  
+> — **William James**
 
 ---
 
