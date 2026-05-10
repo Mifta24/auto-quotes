@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
-> — **Helen Keller**
+> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
+> — **Rumi**
 
 ---
 
