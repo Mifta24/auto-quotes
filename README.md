@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Kind words can be short and easy to speak, but their echoes are truly endless."  
-> — **Mother Teresa**
+> "Choose a job you love, and you will never have to work a day in your life. "  
+> — **Confucius**
 
 ---
 

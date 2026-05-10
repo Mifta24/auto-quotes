@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is an essence of when you are fearless, you become more creative."  
-> — **Gurbaksh Chahal**
+> "Choose a job you love, and you will never have to work a day in your life. "  
+> — **Confucius**
 
 ---
 
