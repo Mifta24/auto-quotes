@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You change the world by being yourself."  
-> — **Yoko Ono**
+> "Kind words can be short and easy to speak, but their echoes are truly endless."  
+> — **Mother Teresa**
 
 ---
 
-_Last updated: 09 May 2026 ⏳_
+_Last updated: 10 May 2026 ⏳_

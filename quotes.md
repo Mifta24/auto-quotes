@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway."  
-> — **Earl Nightingale**
+> "Kind words can be short and easy to speak, but their echoes are truly endless."  
+> — **Mother Teresa**
 
 ---
 
-_Last updated: 09 May 2026 ⏳_
+_Last updated: 10 May 2026 ⏳_
