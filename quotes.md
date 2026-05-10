@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man is more cheated than the selfish man."  
-> — **Henry Ward Beecher**
+> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
+> — **Helen Keller**
 
 ---
 
