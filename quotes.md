@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Choose a job you love, and you will never have to work a day in your life. "  
-> — **Confucius**
+> "Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable."  
+> — **Earl Nightingale**
 
 ---
 
