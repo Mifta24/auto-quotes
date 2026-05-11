@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."  
-> — **Helen Keller**
+> "If you tell the truth, you don't have to remember anything."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 10 May 2026 ⏳_
+_Last updated: 11 May 2026 ⏳_

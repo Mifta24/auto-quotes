@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it."  
-> — **Rumi**
+> "If you tell the truth, you don't have to remember anything."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 10 May 2026 ⏳_
+_Last updated: 11 May 2026 ⏳_
