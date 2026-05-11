@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
-> — **Amelia Earhart**
+> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
+> — **Zig Ziglar**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cleverness is not wisdom."  
-> — **Euripides**
+> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
+> — **Zig Ziglar**
 
 ---
 
