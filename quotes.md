@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
-> — **Zig Ziglar**
+> "In order to control myself I must first accept myself by going with and not against my nature."  
+> — **Bruce Lee**
 
 ---
 
