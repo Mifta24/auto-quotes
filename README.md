@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you tell the truth, you don't have to remember anything."  
-> — **Mark Twain**
+> "Better a diamond with a flaw than a pebble without one."  
+> — **Chinese Proverb**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Silence is the great teacher and to learn its lessons you must pay attention to it."  
-> — **Deepak Chopra**
+> "Better a diamond with a flaw than a pebble without one."  
+> — **Chinese Proverb**
 
 ---
 
