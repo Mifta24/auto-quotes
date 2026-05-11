@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better a diamond with a flaw than a pebble without one."  
-> — **Chinese Proverb**
+> "Have the courage to follow your heart and intuition. They somehow know what you truly want to become."  
+> — **Steve Jobs**
 
 ---
 
