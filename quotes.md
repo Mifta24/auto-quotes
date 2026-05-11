@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best teacher is experience and not through someone's distorted point of view."  
-> — **Jack Kerouac**
+> "There is no greater agony than bearing an untold story inside you."  
+> — **Maya Angelou**
 
 ---
 
