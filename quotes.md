@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to control myself I must first accept myself by going with and not against my nature."  
-> — **Bruce Lee**
+> "The best teacher is experience and not through someone's distorted point of view."  
+> — **Jack Kerouac**
 
 ---
 

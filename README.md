@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours."  
-> — **Zig Ziglar**
+> "The best teacher is experience and not through someone's distorted point of view."  
+> — **Jack Kerouac**
 
 ---
 
