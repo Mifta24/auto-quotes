@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the courage to follow your heart and intuition. They somehow know what you truly want to become."  
-> — **Steve Jobs**
+> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
+> — **Amelia Earhart**
 
 ---
 
