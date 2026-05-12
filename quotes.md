@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is no greater agony than bearing an untold story inside you."  
-> — **Maya Angelou**
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
+> — **George Eliot**
 
 ---
 
-_Last updated: 11 May 2026 ⏳_
+_Last updated: 12 May 2026 ⏳_
