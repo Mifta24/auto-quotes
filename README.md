@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."  
-> — **George Eliot**
+> "Life is a long lesson in humility. "  
+> — **James Matthew Barrie**
 
 ---
 

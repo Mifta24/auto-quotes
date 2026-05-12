@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Go confidently in the direction of your dreams! Live the life you've imagined."  
-> — **Henry David Thoreau**
+> "Life is a long lesson in humility. "  
+> — **James Matthew Barrie**
 
 ---
 
