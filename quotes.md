@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
-_Last updated: 12 May 2026 ⏳_
+_Last updated: 13 May 2026 ⏳_
