@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens, always be yourself."  
-> — **Dale Carnegie**
+> "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."  
+> — **Andrew Carnegie**
 
 ---
 

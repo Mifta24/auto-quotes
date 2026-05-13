@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One loyal friend is worth ten thousand relatives."  
-> — **Euripides**
+> "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."  
+> — **Andrew Carnegie**
 
 ---
 
