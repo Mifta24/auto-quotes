@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "Learn from the rejection and turn it into an opportunity!"  
+> — **Mary Engelbreit**
 
 ---
 
