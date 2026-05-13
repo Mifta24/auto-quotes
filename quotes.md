@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents."  
-> — **Andrew Carnegie**
+> "We are all self-made, but only the successful will admit it."  
+> — **Earl Nightingale**
 
 ---
 
