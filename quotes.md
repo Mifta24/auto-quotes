@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 
