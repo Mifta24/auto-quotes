@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One loyal friend is worth ten thousand relatives."  
-> — **Euripides**
+> "No matter what happens, always be yourself."  
+> — **Dale Carnegie**
 
 ---
 
