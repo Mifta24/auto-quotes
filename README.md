@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn from the rejection and turn it into an opportunity!"  
-> — **Mary Engelbreit**
+> "One loyal friend is worth ten thousand relatives."  
+> — **Euripides**
 
 ---
 
