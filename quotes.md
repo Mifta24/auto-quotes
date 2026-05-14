@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."  
-> — **Dan Millman**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
