@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
-> — **Paramahansa Yogananda**
+> "If you want to see things just as they are, then you yourself must practice just as you are."  
+> — **Dogen**
 
 ---
 
