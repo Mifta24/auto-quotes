@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It all depends on what you choose to believe."  
-> — **Spencer Johnson**
+> "Life is a long lesson in humility. "  
+> — **James Matthew Barrie**
 
 ---
 
