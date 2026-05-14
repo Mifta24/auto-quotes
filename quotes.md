@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are all self-made, but only the successful will admit it."  
-> — **Earl Nightingale**
+> "It all depends on what you choose to believe."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 13 May 2026 ⏳_
+_Last updated: 14 May 2026 ⏳_
