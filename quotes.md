@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress comes to those who train and train; reliance on secret techniques will get you nowhere."  
-> — **Morihei Ueshiba**
+> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
+> — **Paramahansa Yogananda**
 
 ---
 

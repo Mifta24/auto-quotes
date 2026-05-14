@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
+> — **Paramahansa Yogananda**
 
 ---
 
