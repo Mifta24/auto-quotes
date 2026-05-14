@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to see things just as they are, then you yourself must practice just as you are."  
-> — **Dogen**
+> "Life comes at us in waves. We can't predict or control those waves, but we can learn to surf."  
+> — **Dan Millman**
 
 ---
 
