@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
-> — **Paramahansa Yogananda**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 

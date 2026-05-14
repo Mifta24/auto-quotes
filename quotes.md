@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to see things just as they are, then you yourself must practice just as you are."  
-> — **Dogen**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
