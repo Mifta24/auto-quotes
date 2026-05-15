@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are never too old to set another goal or to dream a new dream."  
-> — **Les Brown**
+> "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."  
+> — **Elbert Hubbard**
 
 ---
 
