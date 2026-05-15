@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want to see things just as they are, then you yourself must practice just as you are."  
-> — **Dogen**
+> "You are never too old to set another goal or to dream a new dream."  
+> — **Les Brown**
 
 ---
 
-_Last updated: 14 May 2026 ⏳_
+_Last updated: 15 May 2026 ⏳_
