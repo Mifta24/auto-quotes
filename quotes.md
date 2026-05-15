@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I cannot do great things. I can do small things in a great way."  
-> — **Martin Luther King, Jr.**
+> "We are willing to believe anything other than the truth."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
