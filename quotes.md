@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Animals don't hate, and we're supposed to be better than them."  
-> — **Elvis Presley**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
