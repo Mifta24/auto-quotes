@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are willing to believe anything other than the truth."  
-> — **Carlos Ruiz Zafon**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
