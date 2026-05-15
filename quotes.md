@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "Go confidently in the direction of your dreams! Live the life you've imagined."  
+> — **Henry David Thoreau**
 
 ---
 
