@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are never too old to set another goal or to dream a new dream."  
-> — **Les Brown**
+> "We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."  
+> — **Emily Dickinson**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose."  
-> — **Elbert Hubbard**
+> "We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."  
+> — **Emily Dickinson**
 
 ---
 
