@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are never too old to set another goal or to dream a new dream."  
-> — **Les Brown**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 

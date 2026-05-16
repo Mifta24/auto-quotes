@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "The search for happiness is one of the chief sources of unhappiness."  
+> — **Eric Hoffer**
 
 ---
 
