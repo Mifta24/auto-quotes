@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I cannot do great things. I can do small things in a great way."  
-> — **Martin Luther King, Jr.**
+> "Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."  
+> — **Margaret Mead**
 
 ---
 
