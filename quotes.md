@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The search for happiness is one of the chief sources of unhappiness."  
-> — **Eric Hoffer**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
