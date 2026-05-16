@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
-> — **Lolly Daskal**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 

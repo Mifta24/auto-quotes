@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It all depends on what you choose to believe."  
-> — **Spencer Johnson**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 
