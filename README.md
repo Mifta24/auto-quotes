@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are willing to believe anything other than the truth."  
-> — **Carlos Ruiz Zafon**
+> "It all depends on what you choose to believe."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 15 May 2026 ⏳_
+_Last updated: 16 May 2026 ⏳_

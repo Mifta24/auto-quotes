@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "It all depends on what you choose to believe."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 15 May 2026 ⏳_
+_Last updated: 16 May 2026 ⏳_
