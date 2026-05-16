@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It all depends on what you choose to believe."  
-> — **Spencer Johnson**
+> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
+> — **Lolly Daskal**
 
 ---
 
