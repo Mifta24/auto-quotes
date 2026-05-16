@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "You are never too old to set another goal or to dream a new dream."  
+> — **Les Brown**
 
 ---
 
