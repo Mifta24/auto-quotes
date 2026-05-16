@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The busy man is never wise and the wise man is never busy."  
-> — **Lin Yutang**
+> "If I cannot do great things. I can do small things in a great way."  
+> — **Martin Luther King, Jr.**
 
 ---
 
