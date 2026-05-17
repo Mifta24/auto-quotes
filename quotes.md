@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A zen master's life is one continuous mistake."  
-> — **Dogen**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 
