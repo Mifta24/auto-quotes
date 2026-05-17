@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A zen master's life is one continuous mistake."  
-> — **Dogen**
+> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
+> — **Paramahansa Yogananda**
 
 ---
 
