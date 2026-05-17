@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "Life is a long lesson in humility. "  
+> — **James Matthew Barrie**
 
 ---
 
