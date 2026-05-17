@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
-> — **Nicolas Chamfort**
+> "Do not bite at the bait of pleasure, till you know there is no hook beneath it."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 16 May 2026 ⏳_
+_Last updated: 17 May 2026 ⏳_
