@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 

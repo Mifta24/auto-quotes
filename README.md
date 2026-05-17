@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
-> — **Paramahansa Yogananda**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
