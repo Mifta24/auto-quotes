@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why live an ordinary life, when you can live an extraordinary one."  
-> — **Tony Robbins**
+> "Progress comes to those who train and train; reliance on secret techniques will get you nowhere."  
+> — **Morihei Ueshiba**
 
 ---
 
