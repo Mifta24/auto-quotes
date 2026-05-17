@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not bite at the bait of pleasure, till you know there is no hook beneath it."  
-> — **Thomas Jefferson**
+> "Engage in those actions and thoughts that nurture the good qualities you want to have."  
+> — **Paramahansa Yogananda**
 
 ---
 
