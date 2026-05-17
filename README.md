@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not bite at the bait of pleasure, till you know there is no hook beneath it."  
-> — **Thomas Jefferson**
+> "A zen master's life is one continuous mistake."  
+> — **Dogen**
 
 ---
 
