@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "Why live an ordinary life, when you can live an extraordinary one."  
+> — **Tony Robbins**
 
 ---
 

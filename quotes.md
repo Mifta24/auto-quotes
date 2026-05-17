@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a long lesson in humility. "  
-> — **James Matthew Barrie**
+> "Why live an ordinary life, when you can live an extraordinary one."  
+> — **Tony Robbins**
 
 ---
 
