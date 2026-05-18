@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Why live an ordinary life, when you can live an extraordinary one."  
-> — **Tony Robbins**
+> "To be totally at leisure for one day is to be immortal for one day. "  
+> — **Chinese Proverb**
 
 ---
 
-_Last updated: 17 May 2026 ⏳_
+_Last updated: 18 May 2026 ⏳_
