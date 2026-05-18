@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
-> — **Nelson Mandela**
+> "All you need is passion. If you have a passion for something, you'll create the talent."  
+> — **Yanni**
 
 ---
 
