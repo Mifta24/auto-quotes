@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is a puzzle; no need to make sense out of it."  
-> — **Socrates**
+> "The quality of your life is determined by the quality of your thoughts."  
+> — **Unknown**
 
 ---
 
