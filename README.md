@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be totally at leisure for one day is to be immortal for one day. "  
-> — **Chinese Proverb**
+> "The world is a puzzle; no need to make sense out of it."  
+> — **Socrates**
 
 ---
 
