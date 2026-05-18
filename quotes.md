@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be totally at leisure for one day is to be immortal for one day. "  
-> — **Chinese Proverb**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
