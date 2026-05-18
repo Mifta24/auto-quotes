@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of your thoughts."  
-> — **Unknown**
+> "Learning never exhausts the mind. "  
+> — **Leonardo da Vinci**
 
 ---
 
