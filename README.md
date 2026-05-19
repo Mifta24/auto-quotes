@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
-> — **Nelson Mandela**
+> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
+> — **Henry Ford**
 
 ---
 
-_Last updated: 18 May 2026 ⏳_
+_Last updated: 19 May 2026 ⏳_
