@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to give up the good to go for the great."  
-> — **John D. Rockefeller**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love."  
-> — **John Lennon**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 
