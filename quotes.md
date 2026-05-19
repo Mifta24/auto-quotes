@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
-> — **Henry Ford**
+> "Life is like underwear, should be changed twice a day.  "  
+> — **Ray Bradbury**
 
 ---
 
