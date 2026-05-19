@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
-> — **Henry Ford**
+> "It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love."  
+> — **John Lennon**
 
 ---
 
