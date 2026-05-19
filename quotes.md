@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be approximately right rather than exactly wrong."  
-> — **John Tukey**
+> "Life has the name of life, but in reality it is death."  
+> — **Heraclitus**
 
 ---
 
