@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing can dim the light which shines from within."  
-> — **Maya Angelou**
+> "Be approximately right rather than exactly wrong."  
+> — **John Tukey**
 
 ---
 
