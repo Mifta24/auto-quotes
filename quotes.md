@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life has the name of life, but in reality it is death."  
-> — **Heraclitus**
+> "A friend to all is a friend to none."  
+> — **Aristotle**
 
 ---
 

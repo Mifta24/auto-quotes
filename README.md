@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be approximately right rather than exactly wrong."  
-> — **John Tukey**
+> "A friend to all is a friend to none."  
+> — **Aristotle**
 
 ---
 
