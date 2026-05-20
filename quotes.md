@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You don't have to be great to start, but you have to start to be great.  "  
-> — **Zig Ziglar**
+> "Nothing is really work unless you would rather be doing something else. "  
+> — **James Matthew Barrie**
 
 ---
 
-_Last updated: 19 May 2026 ⏳_
+_Last updated: 20 May 2026 ⏳_
