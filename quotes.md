@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "The difference between winning and losing is most often not quitting."  
+> — **Walt Disney**
 
 ---
 
