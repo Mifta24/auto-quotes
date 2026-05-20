@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise men speak because they have something to say; Fools because they have to say something."  
-> — **Plato**
+> "Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is."  
+> — **Nicolas Chamfort**
 
 ---
 
