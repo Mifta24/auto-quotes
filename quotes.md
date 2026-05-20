@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen."  
-> — **Winston Churchill**
+> "Never regret your past. Rather, embrace it as the teacher that it is."  
+> — **Robin Sharma**
 
 ---
 
