@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wise men speak because they have something to say; Fools because they have to say something."  
-> — **Plato**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 
