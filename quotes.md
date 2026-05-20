@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every strike brings me closer to the next home run. "  
-> — **Babe Ruth**
+> "Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen."  
+> — **Winston Churchill**
 
 ---
 
