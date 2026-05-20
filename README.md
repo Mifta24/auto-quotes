@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "Wise men speak because they have something to say; Fools because they have to say something."  
+> — **Plato**
 
 ---
 
