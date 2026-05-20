@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "Failure is the key to success; each mistake teaches us something."  
+> — **Morihei Ueshiba**
 
 ---
 
