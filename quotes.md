@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between winning and losing is most often not quitting."  
-> — **Walt Disney**
+> "Be curious, not judgmental."  
+> — **Walt Whitman**
 
 ---
 

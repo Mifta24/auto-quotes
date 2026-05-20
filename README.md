@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is really work unless you would rather be doing something else. "  
-> — **James Matthew Barrie**
+> "Be curious, not judgmental."  
+> — **Walt Whitman**
 
 ---
 
