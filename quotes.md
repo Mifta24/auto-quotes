@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
-> — **Bhagavad Gita**
+> "You can only lose something that you have, but you cannot lose something that you are."  
+> — **Eckhart Tolle**
 
 ---
 
