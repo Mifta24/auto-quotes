@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is the progressive realization of a worthy goal or ideal."  
-> — **Earl Nightingale**
+> "Thinking will not overcome fear but action will. "  
+> — **W. Clement Stone**
 
 ---
 

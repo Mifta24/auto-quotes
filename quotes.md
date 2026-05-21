@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If no one ever broke the rules, then we'd never advance."  
-> — **Simon Sinek**
+> "Thinking will not overcome fear but action will. "  
+> — **W. Clement Stone**
 
 ---
 
