@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The busy man is never wise and the wise man is never busy."  
-> — **Lin Yutang**
+> "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has."  
+> — **Epictetus**
 
 ---
 
