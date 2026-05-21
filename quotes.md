@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "All our knowledge has its origins in our perceptions."  
+> — **Leonardo da Vinci**
 
 ---
 
