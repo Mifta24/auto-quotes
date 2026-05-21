@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 

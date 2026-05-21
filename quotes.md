@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All our knowledge has its origins in our perceptions."  
-> — **Leonardo da Vinci**
+> "The busy man is never wise and the wise man is never busy."  
+> — **Lin Yutang**
 
 ---
 
