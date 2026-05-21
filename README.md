@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The busy man is never wise and the wise man is never busy."  
-> — **Lin Yutang**
+> "Success is the progressive realization of a worthy goal or ideal."  
+> — **Earl Nightingale**
 
 ---
 

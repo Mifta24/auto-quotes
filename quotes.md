@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has."  
-> — **Epictetus**
+> "Success is the progressive realization of a worthy goal or ideal."  
+> — **Earl Nightingale**
 
 ---
 
