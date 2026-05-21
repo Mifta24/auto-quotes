@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is the progressive realization of a worthy goal or ideal."  
-> — **Earl Nightingale**
+> "If no one ever broke the rules, then we'd never advance."  
+> — **Simon Sinek**
 
 ---
 
