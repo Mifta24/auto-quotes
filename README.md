@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We create the world and ourselves;"  
-> — **Ming-Dao Deng**
+> "There is no way to happiness - happiness is the way."  
+> — **Thich Nhat Hanh**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dead receive more flowers than the living because regret is stronger than gratitude."  
-> — **Anne Frank**
+> "There is no way to happiness - happiness is the way."  
+> — **Thich Nhat Hanh**
 
 ---
 
