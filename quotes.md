@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Teachers open the door. You enter by yourself. "  
-> — **Chinese Proverb**
+> "To perceive is to suffer."  
+> — **Aristotle**
 
 ---
 
