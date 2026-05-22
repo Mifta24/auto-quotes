@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To perceive is to suffer."  
-> — **Aristotle**
+> "A needle is not sharp at both ends. "  
+> — **Chinese Proverb**
 
 ---
 
