@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Through selfless service, you will always be fruitful and find the fulfillment of your desires."  
-> — **Bhagavad Gita**
+> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
+> — **Mahatma Gandhi**
 
 ---
 
-_Last updated: 21 May 2026 ⏳_
+_Last updated: 22 May 2026 ⏳_
