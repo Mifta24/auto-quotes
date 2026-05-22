@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold."  
-> — **Chinese Proverb**
+> "We create the world and ourselves;"  
+> — **Ming-Dao Deng**
 
 ---
 
