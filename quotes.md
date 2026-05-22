@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True it is, we only hate those whom we do not know."  
-> — **Andrew Carnegie**
+> "The dead receive more flowers than the living because regret is stronger than gratitude."  
+> — **Anne Frank**
 
 ---
 
