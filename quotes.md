@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We create the world and ourselves;"  
-> — **Ming-Dao Deng**
+> "True it is, we only hate those whom we do not know."  
+> — **Andrew Carnegie**
 
 ---
 
