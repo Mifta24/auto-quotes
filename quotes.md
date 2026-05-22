@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no way to happiness - happiness is the way."  
-> — **Thich Nhat Hanh**
+> "Teachers open the door. You enter by yourself. "  
+> — **Chinese Proverb**
 
 ---
 
