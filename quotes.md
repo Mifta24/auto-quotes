@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If what you're doing is not your passion, you have nothing to lose."  
-> — **Celestine Chua**
+> "It is in the darkness that one finds the light."  
+> — **Meister Eckhart**
 
 ---
 
