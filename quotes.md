@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
-> — **Brian Tracy**
+> "There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect."  
+> — **Ronald Reagan**
 
 ---
 
