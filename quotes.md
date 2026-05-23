@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is in the darkness that one finds the light."  
-> — **Meister Eckhart**
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
+> — **Brian Tracy**
 
 ---
 

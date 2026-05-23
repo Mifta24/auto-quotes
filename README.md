@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If what you're doing is not your passion, you have nothing to lose."  
-> — **Celestine Chua**
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'"  
+> — **Brian Tracy**
 
 ---
 
