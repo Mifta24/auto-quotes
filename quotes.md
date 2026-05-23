@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not look for a sanctuary in anyone except your self."  
-> — **Buddha**
+> "If what you're doing is not your passion, you have nothing to lose."  
+> — **Celestine Chua**
 
 ---
 

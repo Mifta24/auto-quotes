@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think adventure is dangerous, try routine; it is lethal."  
-> — **Paulo Coelho**
+> "If what you're doing is not your passion, you have nothing to lose."  
+> — **Celestine Chua**
 
 ---
 
