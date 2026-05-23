@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect."  
-> — **Ronald Reagan**
+> "Once you learn to quit, it becomes a habit."  
+> — **Vince Lombardi**
 
 ---
 
