@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The smallest of actions is always better than the noblest of intentions."  
-> — **Robin Sharma**
+> "Judge a man by his questions rather than his answers."  
+> — **Voltaire**
 
 ---
 
