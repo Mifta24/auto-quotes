@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge a man by his questions rather than his answers."  
-> — **Voltaire**
+> "Success and failure come and go, but don't let them define you. It's who you are that matters."  
+> — **Kamal Ravikant**
 
 ---
 
