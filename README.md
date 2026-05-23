@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To perceive is to suffer."  
-> — **Aristotle**
+> "If you think adventure is dangerous, try routine; it is lethal."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 22 May 2026 ⏳_
+_Last updated: 23 May 2026 ⏳_
