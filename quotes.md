@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Once you learn to quit, it becomes a habit."  
-> — **Vince Lombardi**
+> "The smallest of actions is always better than the noblest of intentions."  
+> — **Robin Sharma**
 
 ---
 
