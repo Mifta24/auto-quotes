@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think adventure is dangerous, try routine; it is lethal."  
-> — **Paulo Coelho**
+> "Do not look for a sanctuary in anyone except your self."  
+> — **Buddha**
 
 ---
 
