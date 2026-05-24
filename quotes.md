@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wherever you are is the entry point."  
-> — **Kabir**
+> "When you've got nothing, you've got nothing to lose."  
+> — **Bob Dylan**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul."  
-> — **Herodotus**
+> "When you've got nothing, you've got nothing to lose."  
+> — **Bob Dylan**
 
 ---
 
