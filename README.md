@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A flower falls, even though we love it; and a weed grows, even though we do not love it."  
-> — **Dogen**
+> "A man is literally what he thinks."  
+> — **James Allen**
 
 ---
 
