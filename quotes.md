@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul."  
-> — **Herodotus**
+> "Wherever you are is the entry point."  
+> — **Kabir**
 
 ---
 
