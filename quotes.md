@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A flower falls, even though we love it; and a weed grows, even though we do not love it."  
-> — **Dogen**
+> "Whatever you think the world is withholding from you, you are withholding from the world."  
+> — **Eckhart Tolle**
 
 ---
 
