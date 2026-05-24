@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is literally what he thinks."  
-> — **James Allen**
+> "Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough."  
+> — **Oprah Winfrey**
 
 ---
 
