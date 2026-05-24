@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you've got nothing, you've got nothing to lose."  
-> — **Bob Dylan**
+> "No one can confidently say that he will still be living tomorrow."  
+> — **Euripides**
 
 ---
 
