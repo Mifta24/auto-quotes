@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "The destiny of man is in his own soul."  
+> — **Herodotus**
 
 ---
 
