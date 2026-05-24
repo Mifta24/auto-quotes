@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one can confidently say that he will still be living tomorrow."  
-> — **Euripides**
+> "A flower falls, even though we love it; and a weed grows, even though we do not love it."  
+> — **Dogen**
 
 ---
 

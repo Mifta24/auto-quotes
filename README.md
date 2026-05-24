@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you've got nothing, you've got nothing to lose."  
-> — **Bob Dylan**
+> "A flower falls, even though we love it; and a weed grows, even though we do not love it."  
+> — **Dogen**
 
 ---
 
