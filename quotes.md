@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction.."  
-> — **Lily Tomlin**
+> "I admire those who do good and expect nothing in return."  
+> — **Roy T. Bennett**
 
 ---
 
