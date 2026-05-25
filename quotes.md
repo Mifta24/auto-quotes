@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see a get rich quick scheme, that's someone else trying to get rich off of you."  
-> — **Naval Ravikant**
+> "It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform."  
+> — **Roy T. Bennett**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you judge another, you do not define them, you define yourself"  
-> — **Wayne Dyer**
+> "It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform."  
+> — **Roy T. Bennett**
 
 ---
 
