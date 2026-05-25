@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invest in as much of yourself as you can, you are your own biggest asset by far."  
-> — **Warren Buffett**
+> "The road to success is always under construction.."  
+> — **Lily Tomlin**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freeing oneself from words is liberation."  
-> — **Bodhidharma**
+> "The road to success is always under construction.."  
+> — **Lily Tomlin**
 
 ---
 
