@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "Do anything, but let it produce joy."  
+> — **Walt Whitman**
 
 ---
 
