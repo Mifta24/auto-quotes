@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction.."  
-> — **Lily Tomlin**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 

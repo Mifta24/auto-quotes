@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I admire those who do good and expect nothing in return."  
-> — **Roy T. Bennett**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 
