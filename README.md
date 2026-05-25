@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A man is literally what he thinks."  
-> — **James Allen**
+> "When you judge another, you do not define them, you define yourself"  
+> — **Wayne Dyer**
 
 ---
 
-_Last updated: 24 May 2026 ⏳_
+_Last updated: 25 May 2026 ⏳_

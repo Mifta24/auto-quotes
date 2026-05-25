@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough."  
-> — **Oprah Winfrey**
+> "When you judge another, you do not define them, you define yourself"  
+> — **Wayne Dyer**
 
 ---
 
-_Last updated: 24 May 2026 ⏳_
+_Last updated: 25 May 2026 ⏳_
