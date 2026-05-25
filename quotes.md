@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A day without laughter is a day wasted."  
-> — **Charlie Chaplin**
+> "Invest in as much of yourself as you can, you are your own biggest asset by far."  
+> — **Warren Buffett**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform."  
-> — **Roy T. Bennett**
+> "Invest in as much of yourself as you can, you are your own biggest asset by far."  
+> — **Warren Buffett**
 
 ---
 
