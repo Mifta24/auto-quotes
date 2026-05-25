@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you judge another, you do not define them, you define yourself"  
-> — **Wayne Dyer**
+> "If you see a get rich quick scheme, that's someone else trying to get rich off of you."  
+> — **Naval Ravikant**
 
 ---
 
