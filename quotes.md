@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "New beginnings are disguised as painful endings."  
-> — **Lao Tzu**
+> "To live is the rarest thing in the world. Most people exist, that is all."  
+> — **Oscar Wilde**
 
 ---
 

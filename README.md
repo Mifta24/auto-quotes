@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
-> — **Theodore Roosevelt**
+> "To live is the rarest thing in the world. Most people exist, that is all."  
+> — **Oscar Wilde**
 
 ---
 
