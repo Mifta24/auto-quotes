@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is the rarest thing in the world. Most people exist, that is all."  
-> — **Oscar Wilde**
+> "Challenge yourself to find the good and beautiful thing inside of everyone."  
+> — **Mark Manson**
 
 ---
 
