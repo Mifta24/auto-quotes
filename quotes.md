@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
-> — **Leo Tolstoy**
+> "Life doesn't get easier or more forgiving, we get stronger and more resilient."  
+> — **Steve Maraboli**
 
 ---
 
