@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
-> — **Theodore Roosevelt**
+> "New beginnings are disguised as painful endings."  
+> — **Lao Tzu**
 
 ---
 
