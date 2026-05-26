@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
-> — **Leo Tolstoy**
+> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
+> — **Theodore Roosevelt**
 
 ---
 

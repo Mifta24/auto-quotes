@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life doesn't get easier or more forgiving, we get stronger and more resilient."  
-> — **Steve Maraboli**
+> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind."  
+> — **Theodore Roosevelt**
 
 ---
 
