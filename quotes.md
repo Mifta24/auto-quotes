@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Challenge yourself to find the good and beautiful thing inside of everyone."  
-> — **Mark Manson**
+> "Go for it now. The future is promised to no one."  
+> — **Wayne Dyer**
 
 ---
 

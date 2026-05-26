@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is the rarest thing in the world. Most people exist, that is all."  
-> — **Oscar Wilde**
+> "Go for it now. The future is promised to no one."  
+> — **Wayne Dyer**
 
 ---
 
