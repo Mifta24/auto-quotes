@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "We can know only that we know nothing. And that is the highest degree of human wisdom."  
+> — **Leo Tolstoy**
 
 ---
 
-_Last updated: 25 May 2026 ⏳_
+_Last updated: 26 May 2026 ⏳_
