@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 
