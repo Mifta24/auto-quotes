@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Go for it now. The future is promised to no one."  
-> — **Wayne Dyer**
+> "There's no next time. It's now or never."  
+> — **Celestine Chua**
 
 ---
 
-_Last updated: 26 May 2026 ⏳_
+_Last updated: 27 May 2026 ⏳_
