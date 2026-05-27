@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All things come into being by conflict of opposites."  
-> — **Heraclitus**
+> "Good entrepreneurs don't fail because they stay at it."  
+> — **Naval Ravikant**
 
 ---
 
