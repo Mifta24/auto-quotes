@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret to success is to know something nobody else knows."  
-> — **David Brinkley**
+> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
+> — **Lao Tzu**
 
 ---
 
