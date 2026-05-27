@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
-> — **Lao Tzu**
+> "Even the smallest person can change the course of the future."  
+> — **J.R.R. Tolkien**
 
 ---
 
