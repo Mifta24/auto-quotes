@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no next time. It's now or never."  
-> — **Celestine Chua**
+> "All things come into being by conflict of opposites."  
+> — **Heraclitus**
 
 ---
 

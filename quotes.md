@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "All things come into being by conflict of opposites."  
+> — **Heraclitus**
 
 ---
 
