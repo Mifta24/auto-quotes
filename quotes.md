@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
-> — **Lao Tzu**
+> "Whenever you find yourself on the side of the majority, it is time to reform."  
+> — **Mark Twain**
 
 ---
 
