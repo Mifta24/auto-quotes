@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even the smallest person can change the course of the future."  
-> — **J.R.R. Tolkien**
+> "The obstacle in the path becomes the path."  
+> — **Ryan Holiday**
 
 ---
 
