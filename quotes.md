@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Good entrepreneurs don't fail because they stay at it."  
-> — **Naval Ravikant**
+> "The secret to success is to know something nobody else knows."  
+> — **David Brinkley**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All things come into being by conflict of opposites."  
-> — **Heraclitus**
+> "The secret to success is to know something nobody else knows."  
+> — **David Brinkley**
 
 ---
 
