@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Deeds will not be less valiant because they are upraised."  
-> — **J.R.R. Tolkien**
+> "Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot."  
+> — **Wayne Gretzky**
 
 ---
 
