@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding."  
-> — **John D. Rockefeller**
+> "Aim for the moon. If you miss, you may hit a star."  
+> — **W. Clement Stone**
 
 ---
 
