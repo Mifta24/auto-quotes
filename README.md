@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "Deeds will not be less valiant because they are upraised."  
+> — **J.R.R. Tolkien**
 
 ---
 

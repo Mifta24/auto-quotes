@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny."  
-> — **Jeff Booth**
+> "Deeds will not be less valiant because they are upraised."  
+> — **J.R.R. Tolkien**
 
 ---
 
