@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny."  
+> — **Jeff Booth**
 
 ---
 
