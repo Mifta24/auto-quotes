@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The obstacle in the path becomes the path."  
-> — **Ryan Holiday**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 
-_Last updated: 27 May 2026 ⏳_
+_Last updated: 28 May 2026 ⏳_

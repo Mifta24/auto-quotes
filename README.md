@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Even the smallest person can change the course of the future."  
-> — **J.R.R. Tolkien**
+> "Ability is a poor man's wealth."  
+> — **John Wooden**
 
 ---
 
-_Last updated: 27 May 2026 ⏳_
+_Last updated: 28 May 2026 ⏳_
