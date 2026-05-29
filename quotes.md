@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Genius is patience."  
-> — **Isaac Newton**
+> "What is planted in each person's soul will sprout."  
+> — **Rumi**
 
 ---
 
