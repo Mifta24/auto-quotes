@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is possible. The impossible just takes longer."  
-> — **Dan Brown**
+> "Genius is patience."  
+> — **Isaac Newton**
 
 ---
 

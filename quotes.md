@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your business is not to 'get somewhere' - it is to be here."  
-> — **Dan Millman**
+> "Genius is patience."  
+> — **Isaac Newton**
 
 ---
 
