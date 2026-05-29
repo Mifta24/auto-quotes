@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "The decisions of our past are the architects of our present."  
+> "Everything is possible. The impossible just takes longer."  
 > — **Dan Brown**
 
 ---
