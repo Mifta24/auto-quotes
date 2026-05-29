@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one has ever become poor by giving."  
-> — **Anne Frank**
+> "If you want to see things just as they are, then you yourself must practice just as you are."  
+> — **Dogen**
 
 ---
 
