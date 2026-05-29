@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity comes when you continually push forward."  
-> — **Sonia Ricotti**
+> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
+> — **Thomas Jefferson**
 
 ---
 
