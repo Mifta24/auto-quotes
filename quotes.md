@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Aim for the moon. If you miss, you may hit a star."  
-> — **W. Clement Stone**
+> "Opportunity comes when you continually push forward."  
+> — **Sonia Ricotti**
 
 ---
 
-_Last updated: 28 May 2026 ⏳_
+_Last updated: 29 May 2026 ⏳_
