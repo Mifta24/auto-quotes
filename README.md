@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity comes when you continually push forward."  
-> — **Sonia Ricotti**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 

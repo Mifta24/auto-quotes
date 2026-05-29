@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never buy a thing you do not want, because it is cheap, it will be dear to you."  
-> — **Thomas Jefferson**
+> "No one has ever become poor by giving."  
+> — **Anne Frank**
 
 ---
 
