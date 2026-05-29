@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is possible. The impossible just takes longer."  
-> — **Dan Brown**
+> "Your business is not to 'get somewhere' - it is to be here."  
+> — **Dan Millman**
 
 ---
 
