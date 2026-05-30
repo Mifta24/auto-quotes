@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Given the choice between the experience of pain and nothing, I would choose pain."  
-> — **William Faulkner**
+> "The more you feed your mind with positive thoughts, the more you can attract great things into your life."  
+> — **Roy T. Bennett**
 
 ---
 
