@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In a world of distraction, focusing is a superpower."  
-> — **Ryan Holiday**
+> "Don't set your own goals by what other people make important."  
+> — **Lolly Daskal**
 
 ---
 
