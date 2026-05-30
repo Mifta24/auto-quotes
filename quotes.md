@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What is planted in each person's soul will sprout."  
-> — **Rumi**
+> "Falling down is not failure. Failure comes when you stay where you have fallen."  
+> — **Socrates**
 
 ---
 
-_Last updated: 29 May 2026 ⏳_
+_Last updated: 30 May 2026 ⏳_
