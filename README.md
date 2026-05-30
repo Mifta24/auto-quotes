@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't set your own goals by what other people make important."  
-> — **Lolly Daskal**
+> "Given the choice between the experience of pain and nothing, I would choose pain."  
+> — **William Faulkner**
 
 ---
 
