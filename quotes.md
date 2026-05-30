@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Falling down is not failure. Failure comes when you stay where you have fallen."  
-> — **Socrates**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 
