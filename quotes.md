@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "In a world of distraction, focusing is a superpower."  
+> — **Ryan Holiday**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Falling down is not failure. Failure comes when you stay where you have fallen."  
-> — **Socrates**
+> "In a world of distraction, focusing is a superpower."  
+> — **Ryan Holiday**
 
 ---
 
