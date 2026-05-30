@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you feed your mind with positive thoughts, the more you can attract great things into your life."  
-> — **Roy T. Bennett**
+> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
+> — **Mark Twain**
 
 ---
 
