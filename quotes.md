@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is not a four letter word...but often your reaction to it is!"  
-> — **Jeffrey Gitomer**
+> "The best way to not feel hopeless is to get up and do something."  
+> — **Barack Obama**
 
 ---
 
