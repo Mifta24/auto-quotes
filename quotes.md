@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who seek the easy way do not seek the true way."  
-> — **Dogen**
+> "Nature does not hurry, yet everything is accomplished."  
+> — **Lao Tzu**
 
 ---
 

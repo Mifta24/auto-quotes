@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be yourself; everyone else is already taken."  
-> — **Oscar Wilde**
+> "Nature does not hurry, yet everything is accomplished."  
+> — **Lao Tzu**
 
 ---
 
