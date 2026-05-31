@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nature does not hurry, yet everything is accomplished."  
-> — **Lao Tzu**
+> "Work out your own salvation. Do not depend on others."  
+> — **Buddha**
 
 ---
 
