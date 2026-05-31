@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't listen to the person who has the answers; listen to the person who has the questions."  
-> — **Albert Einstein**
+> "If ever you feel like an animal among men, be a lion."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 30 May 2026 ⏳_
+_Last updated: 31 May 2026 ⏳_
