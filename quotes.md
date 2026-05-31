@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be yourself; everyone else is already taken."  
-> — **Oscar Wilde**
+> "Those who seek the easy way do not seek the true way."  
+> — **Dogen**
 
 ---
 
