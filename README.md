@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If ever you feel like an animal among men, be a lion."  
-> — **Criss Jami**
+> "Be yourself; everyone else is already taken."  
+> — **Oscar Wilde**
 
 ---
 

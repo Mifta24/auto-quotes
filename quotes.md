@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer more often in imagination than in reality."  
-> — **Seneca**
+> "Be yourself; everyone else is already taken."  
+> — **Oscar Wilde**
 
 ---
 
