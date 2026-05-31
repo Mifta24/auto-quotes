@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're never too old for anything."  
-> — **Betty White**
+> "Change is not a four letter word...but often your reaction to it is!"  
+> — **Jeffrey Gitomer**
 
 ---
 
