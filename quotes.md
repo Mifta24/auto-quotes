@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Peace. Peace is the path."  
-> — **Dan Millman**
+> "We suffer more often in imagination than in reality."  
+> — **Seneca**
 
 ---
 
