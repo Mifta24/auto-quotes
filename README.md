@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
-> — **Chinese Proverb**
+> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
+> — **Oprah Winfrey**
 
 ---
 

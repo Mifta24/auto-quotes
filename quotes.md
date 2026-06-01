@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."  
-> — **Epictetus**
+> "Don't worry about being successful, but work toward being significant and the success will naturally follow."  
+> — **Oprah Winfrey**
 
 ---
 
