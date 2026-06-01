@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
-> — **Chinese Proverb**
+> "Without the confidence, nothing can be accomplished."  
+> — **Sathya Sai Baba**
 
 ---
 
