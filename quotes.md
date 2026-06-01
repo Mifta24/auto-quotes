@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Avoiding danger is no safer in the long run than exposure."  
-> — **Helen Keller**
+> "There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."  
+> — **Epictetus**
 
 ---
 
