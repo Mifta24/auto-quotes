@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Without the confidence, nothing can be accomplished."  
-> — **Sathya Sai Baba**
+> "Avoiding danger is no safer in the long run than exposure."  
+> — **Helen Keller**
 
 ---
 
