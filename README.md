@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no path to Peace. Peace is the path."  
-> — **Dan Millman**
+> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
+> — **Chinese Proverb**
 
 ---
 

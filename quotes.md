@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer more often in imagination than in reality."  
-> — **Seneca**
+> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
+> — **Chinese Proverb**
 
 ---
 
