@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Change is not a four letter word...but often your reaction to it is!"  
-> — **Jeffrey Gitomer**
+> "There is no path to Peace. Peace is the path."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 31 May 2026 ⏳_
+_Last updated: 01 June 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The best way to not feel hopeless is to get up and do something."  
-> — **Barack Obama**
+> "There is no path to Peace. Peace is the path."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 31 May 2026 ⏳_
+_Last updated: 01 June 2026 ⏳_
