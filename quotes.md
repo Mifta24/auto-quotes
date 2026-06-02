@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you're halfway there."  
-> — **Colin R. Davis**
+> "A leader leads by example, not by force."  
+> — **Sun Tzu**
 
 ---
 
