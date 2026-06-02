@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you're halfway there."  
-> — **Colin R. Davis**
+> "Trust is built and maintained by many small actions over time."  
+> — **Lolly Daskal**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader leads by example, not by force."  
-> — **Sun Tzu**
+> "Trust is built and maintained by many small actions over time."  
+> — **Lolly Daskal**
 
 ---
 
