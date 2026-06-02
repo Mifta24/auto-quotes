@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who can make you believe absurdities can make you commit atrocities."  
-> — **Voltaire**
+> "Faith is taking the first step even when you don't see the whole staircase."  
+> — **Martin Luther King, Jr.**
 
 ---
 
