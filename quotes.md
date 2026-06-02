@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyday is a second chance."  
-> — **Unknown**
+> "There is nothing like looking if you want to find something."  
+> — **J.R.R. Tolkien**
 
 ---
 

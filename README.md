@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
-> — **Colin Powell**
+> "There is nothing like looking if you want to find something."  
+> — **J.R.R. Tolkien**
 
 ---
 
