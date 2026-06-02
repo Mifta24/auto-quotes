@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Trust is built and maintained by many small actions over time."  
-> — **Lolly Daskal**
+> "Those who can make you believe absurdities can make you commit atrocities."  
+> — **Voltaire**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When we allow negative messages to fester in our head, they take on a life of their own."  
-> — **Lolly Daskal**
+> "Those who can make you believe absurdities can make you commit atrocities."  
+> — **Voltaire**
 
 ---
 
