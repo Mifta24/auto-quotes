@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who can make you believe absurdities can make you commit atrocities."  
-> — **Voltaire**
+> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
+> — **Colin Powell**
 
 ---
 
