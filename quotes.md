@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is getting what you want. Happiness is wanting what you get."  
-> — **Andrew Carnegie**
+> "If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present."  
+> — **Lao Tzu**
 
 ---
 
