@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is getting what you want. Happiness is wanting what you get."  
-> — **Andrew Carnegie**
+> "A man with outward courage dares to die: a man with inner courage dares to live."  
+> — **Lao Tzu**
 
 ---
 
