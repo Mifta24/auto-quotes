@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right."  
-> — **Albus Dumbledore**
+> "Each path to knowledge involves different rules and these rules are not interchangeable."  
+> — **Barack Obama**
 
 ---
 

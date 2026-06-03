@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure comes from ego, greed, envy, fear, and imitation."  
-> — **Warren Buffett**
+> "Each path to knowledge involves different rules and these rules are not interchangeable."  
+> — **Barack Obama**
 
 ---
 
