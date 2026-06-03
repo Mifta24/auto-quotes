@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forgive yourself for your faults and your mistakes and move on."  
-> — **Les Brown**
+> "Don't let the noise of others' opinions drown out your own inner voice."  
+> — **Steve Jobs**
 
 ---
 
