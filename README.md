@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man with outward courage dares to die: a man with inner courage dares to live."  
-> — **Lao Tzu**
+> "Forgive yourself for your faults and your mistakes and move on."  
+> — **Les Brown**
 
 ---
 

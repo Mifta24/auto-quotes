@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power of human thought grows exponentially with the number of minds that share that thought."  
-> — **Dan Brown**
+> "Forgive yourself for your faults and your mistakes and move on."  
+> — **Les Brown**
 
 ---
 
