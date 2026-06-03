@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man with outward courage dares to die: a man with inner courage dares to live."  
-> — **Lao Tzu**
+> "The power of human thought grows exponentially with the number of minds that share that thought."  
+> — **Dan Brown**
 
 ---
 
