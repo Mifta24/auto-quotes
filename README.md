@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forgive yourself for your faults and your mistakes and move on."  
-> — **Les Brown**
+> "Failure comes from ego, greed, envy, fear, and imitation."  
+> — **Warren Buffett**
 
 ---
 
