@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a quality of the soul...not a function of one's material circumstances."  
-> — **Aristotle**
+> "The future is the worst thing about the present."  
+> — **Gustave Flaubert**
 
 ---
 
