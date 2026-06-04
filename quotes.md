@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words used to attract the dull of wit are not to be relied on."  
-> — **Huang Po**
+> "You can't wait for inspiration. You have to go after it with a club."  
+> — **Jack London**
 
 ---
 
