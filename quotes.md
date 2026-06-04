@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can live without money, but I cannot live without love."  
-> — **Judy Garland**
+> "You will not do incredible things without an incredible dream."  
+> — **John Eliot**
 
 ---
 
