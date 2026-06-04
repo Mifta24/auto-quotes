@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you know what you want, and you want it bad enough, you will find a way to get it."  
-> — **Jim Rohn**
+> "Happiness is when what you think, what you say, and what you do are in harmony."  
+> — **Mahatma Gandhi**
 
 ---
 
-_Last updated: 03 June 2026 ⏳_
+_Last updated: 04 June 2026 ⏳_
