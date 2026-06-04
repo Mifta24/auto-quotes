@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will not do incredible things without an incredible dream."  
-> — **John Eliot**
+> "Words used to attract the dull of wit are not to be relied on."  
+> — **Huang Po**
 
 ---
 

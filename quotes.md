@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future is the worst thing about the present."  
-> — **Gustave Flaubert**
+> "Words used to attract the dull of wit are not to be relied on."  
+> — **Huang Po**
 
 ---
 
