@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will not do incredible things without an incredible dream."  
-> — **John Eliot**
+> "Happiness is a quality of the soul...not a function of one's material circumstances."  
+> — **Aristotle**
 
 ---
 
