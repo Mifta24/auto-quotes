@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the change that you want to see in the world."  
-> — **Mahatma Gandhi**
+> "Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time."  
+> — **Og Mandino**
 
 ---
 
