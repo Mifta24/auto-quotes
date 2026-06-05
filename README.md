@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can't wait for inspiration. You have to go after it with a club."  
-> — **Jack London**
+> "Do Something. If it works, do more of it. If it doesn't, do something else."  
+> — **Franklin D. Roosevelt**
 
 ---
 
-_Last updated: 04 June 2026 ⏳_
+_Last updated: 05 June 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep others in suspense, cultivate an air of unpredictability."  
-> — **Robert Greene**
+> "Do Something. If it works, do more of it. If it doesn't, do something else."  
+> — **Franklin D. Roosevelt**
 
 ---
 
-_Last updated: 04 June 2026 ⏳_
+_Last updated: 05 June 2026 ⏳_
