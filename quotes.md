@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growing up is losing some illusions, in order to acquire others."  
-> — **Virginia Woolf**
+> "Be the change that you want to see in the world."  
+> — **Mahatma Gandhi**
 
 ---
 

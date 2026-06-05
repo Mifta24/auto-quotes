@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance."  
-> — **W. Clement Stone**
+> "Be the change that you want to see in the world."  
+> — **Mahatma Gandhi**
 
 ---
 
