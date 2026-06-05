@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do Something. If it works, do more of it. If it doesn't, do something else."  
-> — **Franklin D. Roosevelt**
+> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance."  
+> — **W. Clement Stone**
 
 ---
 

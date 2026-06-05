@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, you won't get it with violence."  
-> — **John Lennon**
+> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance."  
+> — **W. Clement Stone**
 
 ---
 
