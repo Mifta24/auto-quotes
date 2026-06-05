@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do Something. If it works, do more of it. If it doesn't, do something else."  
-> — **Franklin D. Roosevelt**
+> "If you want peace, you won't get it with violence."  
+> — **John Lennon**
 
 ---
 
