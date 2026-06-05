@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "Truth is the offspring of silence and meditation."  
+> — **Isaac Newton**
 
 ---
 

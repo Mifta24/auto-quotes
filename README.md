@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is well known that those who do not trust themselves never trust others."  
-> — **Alfred Adler**
+> "Truth is the offspring of silence and meditation."  
+> — **Isaac Newton**
 
 ---
 
