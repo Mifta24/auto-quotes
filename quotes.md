@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth is the offspring of silence and meditation."  
-> — **Isaac Newton**
+> "A Quitter never wins - and - a Winner never quits."  
+> — **Napoleon Hill**
 
 ---
 
