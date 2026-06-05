@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Truth will always be truth, regardless of lack of understanding, disbelief or ignorance."  
-> — **W. Clement Stone**
+> "Growing up is losing some illusions, in order to acquire others."  
+> — **Virginia Woolf**
 
 ---
 
