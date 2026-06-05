@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time."  
-> — **Og Mandino**
+> "It is well known that those who do not trust themselves never trust others."  
+> — **Alfred Adler**
 
 ---
 

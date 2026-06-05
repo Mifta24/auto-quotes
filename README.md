@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be the change that you want to see in the world."  
-> — **Mahatma Gandhi**
+> "It is well known that those who do not trust themselves never trust others."  
+> — **Alfred Adler**
 
 ---
 
