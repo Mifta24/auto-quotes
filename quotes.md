@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cease striving. Then there will be transformation."  
-> — **Zhuangzi**
+> "Associate with people who are likely to improve you."  
+> — **Seneca**
 
 ---
 
