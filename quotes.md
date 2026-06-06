@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Constantly think about how you could be doing things better."  
-> — **Elon Musk**
+> "A strong team can take any crazy vision and turn it into reality."  
+> — **John Carmack**
 
 ---
 
