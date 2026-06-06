@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The desire for more positive experience is itself a negative experience."  
-> — **Mark Manson**
+> "Cease striving. Then there will be transformation."  
+> — **Zhuangzi**
 
 ---
 

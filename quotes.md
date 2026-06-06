@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is but one dream flowing into another."  
-> — **Ming-Dao Deng**
+> "Cease striving. Then there will be transformation."  
+> — **Zhuangzi**
 
 ---
 
