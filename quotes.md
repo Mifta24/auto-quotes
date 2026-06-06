@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is richest who is content with the least, for content is the wealth of nature."  
-> — **Socrates**
+> "The world doesn't always give you want, but it often gives you what you need."  
+> — **Naval Ravikant**
 
 ---
 
