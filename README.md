@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Truth is the offspring of silence and meditation."  
-> — **Isaac Newton**
+> "The desire for more positive experience is itself a negative experience."  
+> — **Mark Manson**
 
 ---
 
-_Last updated: 05 June 2026 ⏳_
+_Last updated: 06 June 2026 ⏳_
