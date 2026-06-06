@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Associate with people who are likely to improve you."  
-> — **Seneca**
+> "Constantly think about how you could be doing things better."  
+> — **Elon Musk**
 
 ---
 

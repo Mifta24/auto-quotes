@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cease striving. Then there will be transformation."  
-> — **Zhuangzi**
+> "Constantly think about how you could be doing things better."  
+> — **Elon Musk**
 
 ---
 
