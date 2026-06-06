@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The desire for more positive experience is itself a negative experience."  
-> — **Mark Manson**
+> "Life is but one dream flowing into another."  
+> — **Ming-Dao Deng**
 
 ---
 
