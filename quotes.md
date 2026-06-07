@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully."  
-> — **Richard Bach**
+> "For every minute you are angry you lose sixty seconds of happiness."  
+> — **Ralph Waldo Emerson**
 
 ---
 
-_Last updated: 06 June 2026 ⏳_
+_Last updated: 07 June 2026 ⏳_
