@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Be - don't try to become"  
+> — **Osho**
 
 ---
 
