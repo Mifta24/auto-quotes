@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For every minute you are angry you lose sixty seconds of happiness."  
-> — **Ralph Waldo Emerson**
+> "All cruelty springs from weakness."  
+> — **Seneca**
 
 ---
 
