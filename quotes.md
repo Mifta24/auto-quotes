@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never allow a person to tell you no who doesn't have the power to say yes."  
-> — **Eleanor Roosevelt**
+> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
+> — **Bob Proctor**
 
 ---
 

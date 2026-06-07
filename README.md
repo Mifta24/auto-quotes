@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter if the glass is half empty or half full. Be grateful you have a glass - you're the only person that can decide what's in it."  
-> — **Gurbaksh Chahal**
+> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
+> — **Bob Proctor**
 
 ---
 
