@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For every minute you are angry you lose sixty seconds of happiness."  
-> — **Ralph Waldo Emerson**
+> "It doesn't matter if the glass is half empty or half full. Be grateful you have a glass - you're the only person that can decide what's in it."  
+> — **Gurbaksh Chahal**
 
 ---
 
