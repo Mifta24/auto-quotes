@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always focus on the front windshield and not the rear view mirror."  
-> — **Colin Powell**
+> "You must learn to let go. Release the stress. You were never in control anyway."  
+> — **Steve Maraboli**
 
 ---
 

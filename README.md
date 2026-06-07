@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
-> — **Bob Proctor**
+> "You must learn to let go. Release the stress. You were never in control anyway."  
+> — **Steve Maraboli**
 
 ---
 
