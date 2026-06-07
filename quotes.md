@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thoughts become things. If you see it in your mind, you will hold it in your hand."  
-> — **Bob Proctor**
+> "Always focus on the front windshield and not the rear view mirror."  
+> — **Colin Powell**
 
 ---
 
