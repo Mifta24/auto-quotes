@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life without love is like a tree without blossoms or fruit."  
-> — **Kahlil Gibran**
+> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
+> — **Benjamin Franklin**
 
 ---
 
