@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Make peace with your inner turmoil."  
+> — **Unknown**
 
 ---
 
-_Last updated: 07 June 2026 ⏳_
+_Last updated: 08 June 2026 ⏳_

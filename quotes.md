@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be - don't try to become"  
-> — **Osho**
+> "Make peace with your inner turmoil."  
+> — **Unknown**
 
 ---
 
-_Last updated: 07 June 2026 ⏳_
+_Last updated: 08 June 2026 ⏳_
