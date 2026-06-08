@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you talk about your shame, the more of it you have."  
-> — **Mark Manson**
+> "Abundance of knowledge does not teach men to be wise."  
+> — **Heraclitus**
 
 ---
 
