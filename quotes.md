@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Abundance of knowledge does not teach men to be wise."  
-> — **Heraclitus**
+> "If you want to make God laugh, tell him about your plans."  
+> — **Woody Allen**
 
 ---
 
