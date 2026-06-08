@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make peace with your inner turmoil."  
-> — **Unknown**
+> "Life without love is like a tree without blossoms or fruit."  
+> — **Kahlil Gibran**
 
 ---
 

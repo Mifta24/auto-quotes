@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To get angry is like to revenge yourself for the guilt of others."  
-> — **Jonathan Swift**
+> "Life without love is like a tree without blossoms or fruit."  
+> — **Kahlil Gibran**
 
 ---
 
