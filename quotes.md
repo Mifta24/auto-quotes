@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to make God laugh, tell him about your plans."  
-> — **Woody Allen**
+> "The ones who are crazy enough to think they can change the world, are the ones that do."  
+> — **Steve Jobs**
 
 ---
 
