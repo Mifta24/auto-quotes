@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to make God laugh, tell him about your plans."  
-> — **Woody Allen**
+> "The greatest weariness comes from work not done."  
+> — **Eric Hoffer**
 
 ---
 

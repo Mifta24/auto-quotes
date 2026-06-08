@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ones who are crazy enough to think they can change the world, are the ones that do."  
-> — **Steve Jobs**
+> "The greatest weariness comes from work not done."  
+> — **Eric Hoffer**
 
 ---
 
