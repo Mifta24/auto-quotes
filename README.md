@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life without love is like a tree without blossoms or fruit."  
-> — **Kahlil Gibran**
+> "The less you talk about your shame, the more of it you have."  
+> — **Mark Manson**
 
 ---
 

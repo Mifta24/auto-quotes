@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight."  
-> — **Benjamin Franklin**
+> "The less you talk about your shame, the more of it you have."  
+> — **Mark Manson**
 
 ---
 
