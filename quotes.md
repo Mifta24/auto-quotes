@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Relax. Nothing is under control."  
-> — **Adi Da Samraj**
+> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
+> — **Brian Tracy**
 
 ---
 

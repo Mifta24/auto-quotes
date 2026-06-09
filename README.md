@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
+> — **Brian Tracy**
 
 ---
 
