@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perplexity is the beginning of knowledge."  
-> — **Kahlil Gibran**
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
+> — **Steve Harvey**
 
 ---
 

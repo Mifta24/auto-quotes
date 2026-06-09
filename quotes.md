@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many people will walk in and out of your life, but only true friends will leave footprints in your heart."  
-> — **Eleanor Roosevelt**
+> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
+> — **Steve Harvey**
 
 ---
 
