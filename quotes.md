@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
-> — **Steve Harvey**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
+> — **Wayne Dyer**
 
 ---
 
