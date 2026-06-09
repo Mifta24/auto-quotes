@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Relax. Nothing is under control."  
+> — **Adi Da Samraj**
 
 ---
 
