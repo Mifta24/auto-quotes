@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The greatest weariness comes from work not done."  
-> — **Eric Hoffer**
+> "Give more than you think you can, trusting that you are richer than you think."  
+> — **Jon Kabat-Zinn**
 
 ---
 
-_Last updated: 08 June 2026 ⏳_
+_Last updated: 09 June 2026 ⏳_
