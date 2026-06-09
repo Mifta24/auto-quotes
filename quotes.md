@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
-> — **Wayne Dyer**
+> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
+> — **Chinese Proverb**
 
 ---
 

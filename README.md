@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time looking at someone else's reality while doing nothing about yours."  
-> — **Steve Harvey**
+> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
+> — **Chinese Proverb**
 
 ---
 
