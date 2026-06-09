@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
-> — **Brian Tracy**
+> "Perplexity is the beginning of knowledge."  
+> — **Kahlil Gibran**
 
 ---
 

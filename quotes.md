@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you practiced for the day, then you have won. If you were lazy for the day, then you have lost."  
-> — **Ming-Dao Deng**
+> "Perplexity is the beginning of knowledge."  
+> — **Kahlil Gibran**
 
 ---
 
