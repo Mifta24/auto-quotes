@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
-> — **Brian Tracy**
+> "If you practiced for the day, then you have won. If you were lazy for the day, then you have lost."  
+> — **Ming-Dao Deng**
 
 ---
 
