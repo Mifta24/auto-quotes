@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better a diamond with a flaw than a pebble without one."  
-> — **Chinese Proverb**
+> "Peace begins with a smile."  
+> — **Mother Teresa**
 
 ---
 
