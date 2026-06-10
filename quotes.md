@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The score never interested me, only the game."  
-> — **Mae West**
+> "Better a diamond with a flaw than a pebble without one."  
+> — **Chinese Proverb**
 
 ---
 

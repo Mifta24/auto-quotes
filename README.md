@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People seldom do what they believe in. They do what is convenient, then repent."  
-> — **Bob Dylan**
+> "Better a diamond with a flaw than a pebble without one."  
+> — **Chinese Proverb**
 
 ---
 
