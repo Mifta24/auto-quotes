@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Listening well is as powerful as talking well, and is also as essential to true conversation."  
-> — **Chinese Proverb**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
-_Last updated: 09 June 2026 ⏳_
+_Last updated: 10 June 2026 ⏳_
