@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace begins with a smile."  
-> — **Mother Teresa**
+> "Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories."  
+> — **Ray Bradbury**
 
 ---
 
