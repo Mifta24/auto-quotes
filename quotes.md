@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 
