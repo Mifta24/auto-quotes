@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong turns are as important as right turns. More important, sometimes."  
-> — **Richard Bach**
+> "Success is a consequence and must not be a goal."  
+> — **Gustave Flaubert**
 
 ---
 
