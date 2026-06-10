@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better a diamond with a flaw than a pebble without one."  
-> — **Chinese Proverb**
+> "Be the silent watcher of your thoughts and behavior. You are beneath the thinker."  
+> — **Eckhart Tolle**
 
 ---
 
