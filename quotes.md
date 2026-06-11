@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's better to stand by someone's side than by yourself."  
-> — **Jack London**
+> "In all chaos there is a cosmos, in all disorder a secret order."  
+> — **Carl Jung**
 
 ---
 
-_Last updated: 10 June 2026 ⏳_
+_Last updated: 11 June 2026 ⏳_
