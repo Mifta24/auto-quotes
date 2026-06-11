@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't explain your philosophy. Embody it."  
-> — **Epictetus**
+> "We love the things we love for what they are."  
+> — **Robert Frost**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between ordinary and extraordinary is that little extra."  
-> — **Colin R. Davis**
+> "We love the things we love for what they are."  
+> — **Robert Frost**
 
 ---
 
