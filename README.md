@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We love the things we love for what they are."  
-> — **Robert Frost**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 

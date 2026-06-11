@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only man who never makes mistakes is the man who never does anything."  
-> — **Theodore Roosevelt**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 
