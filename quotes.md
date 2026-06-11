@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In all chaos there is a cosmos, in all disorder a secret order."  
-> — **Carl Jung**
+> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
+> — **Charles Dickens**
 
 ---
 
