@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are dark shadows on the earth, but its lights are stronger in the contrast."  
-> — **Charles Dickens**
+> "Don't explain your philosophy. Embody it."  
+> — **Epictetus**
 
 ---
 
