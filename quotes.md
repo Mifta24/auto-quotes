@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't explain your philosophy. Embody it."  
-> — **Epictetus**
+> "The difference between ordinary and extraordinary is that little extra."  
+> — **Colin R. Davis**
 
 ---
 
