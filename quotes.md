@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We love the things we love for what they are."  
-> — **Robert Frost**
+> "The only man who never makes mistakes is the man who never does anything."  
+> — **Theodore Roosevelt**
 
 ---
 
