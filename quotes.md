@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage Is a Love Affair with the Unknown"  
-> — **Osho**
+> "In life you need either inspiration or desperation."  
+> — **Tony Robbins**
 
 ---
 

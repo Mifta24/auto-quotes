@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better late than never."  
-> — **Spencer Johnson**
+> "In life you need either inspiration or desperation."  
+> — **Tony Robbins**
 
 ---
 
