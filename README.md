@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
-> — **Winston Churchill**
+> "The key to success is failure."  
+> — **Michael Jordan**
 
 ---
 

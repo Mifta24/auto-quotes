@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech."  
-> — **Albert Einstein**
+> "The key to success is failure."  
+> — **Michael Jordan**
 
 ---
 
