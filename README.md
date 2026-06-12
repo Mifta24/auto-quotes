@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The secret of getting ahead is getting started."  
-> — **Mark Twain**
+> "Better late than never."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 11 June 2026 ⏳_
+_Last updated: 12 June 2026 ⏳_
