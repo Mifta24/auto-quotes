@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people don't like change, but you need to embrace change if the alternative is disaster."  
-> — **Elon Musk**
+> "I want the fishing rod, not the fish."  
+> — **Yanni**
 
 ---
 
