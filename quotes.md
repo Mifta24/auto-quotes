@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better late than never."  
-> — **Spencer Johnson**
+> "Courage Is a Love Affair with the Unknown"  
+> — **Osho**
 
 ---
 
