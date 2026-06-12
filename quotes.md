@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I want the fishing rod, not the fish."  
-> — **Yanni**
+> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
+> — **Winston Churchill**
 
 ---
 
