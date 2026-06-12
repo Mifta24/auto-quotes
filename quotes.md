@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is failure."  
-> — **Michael Jordan**
+> "Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound."  
+> — **James Allen**
 
 ---
 
