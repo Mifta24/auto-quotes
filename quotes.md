@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You know the more one does the more one can do."  
-> — **Amelia Earhart**
+> "Not all those who wander are lost."  
+> — **J.R.R. Tolkien**
 
 ---
 
