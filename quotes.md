@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all those who wander are lost."  
-> — **J.R.R. Tolkien**
+> "To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."  
+> — **Pema Chodron**
 
 ---
 

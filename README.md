@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You know the more one does the more one can do."  
-> — **Amelia Earhart**
+> "To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."  
+> — **Pema Chodron**
 
 ---
 
