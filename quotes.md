@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A tiny change today brings a dramatically different tomorrow."  
-> — **Richard Bach**
+> "Life can only be understood backwards; but it must be lived forwards."  
+> — **Soren Kierkegaard**
 
 ---
 
