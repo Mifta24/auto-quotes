@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dream is free, but the hustle is sold separately."  
-> — **Steve Harvey**
+> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
+> — **Sathya Sai Baba**
 
 ---
 

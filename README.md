@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."  
-> — **Pema Chodron**
+> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
+> — **Sathya Sai Baba**
 
 ---
 
