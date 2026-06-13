@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
-> — **Sathya Sai Baba**
+> "A tiny change today brings a dramatically different tomorrow."  
+> — **Richard Bach**
 
 ---
 
