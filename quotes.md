@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The consequences of today are determined by the actions of the past. To change your future, alter your decisions today."  
-> — **Unknown**
+> "If there were no God, there would be no atheists."  
+> — **Gilbert Chesterton**
 
 ---
 
