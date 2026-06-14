@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never put off to tomorrow what you can do to-day."  
-> — **Thomas Jefferson**
+> "Peace if possible, truth at all costs."  
+> — **Martin Luther**
 
 ---
 

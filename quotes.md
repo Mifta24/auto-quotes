@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of emotion causes lack of progress and lack of motivation."  
-> — **Tony Robbins**
+> "Peace if possible, truth at all costs."  
+> — **Martin Luther**
 
 ---
 
