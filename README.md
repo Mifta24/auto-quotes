@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace if possible, truth at all costs."  
-> — **Martin Luther**
+> "To raise your consciousness, surround yourself with people of higher consciousness."  
+> — **Celestine Chua**
 
 ---
 

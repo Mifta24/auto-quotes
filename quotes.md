@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest doer must also be a great dreamer."  
-> — **Theodore Roosevelt**
+> "To raise your consciousness, surround yourself with people of higher consciousness."  
+> — **Celestine Chua**
 
 ---
 
