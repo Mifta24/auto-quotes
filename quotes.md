@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To raise your consciousness, surround yourself with people of higher consciousness."  
-> — **Celestine Chua**
+> "Follow the man who seeks the truth; run from the man who has found it."  
+> — **Vaclav Havel**
 
 ---
 
