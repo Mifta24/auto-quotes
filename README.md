@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life can only be understood backwards; but it must be lived forwards."  
-> — **Soren Kierkegaard**
+> "The consequences of today are determined by the actions of the past. To change your future, alter your decisions today."  
+> — **Unknown**
 
 ---
 
-_Last updated: 13 June 2026 ⏳_
+_Last updated: 14 June 2026 ⏳_
