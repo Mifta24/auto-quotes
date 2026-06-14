@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "Never put off to tomorrow what you can do to-day."  
+> — **Thomas Jefferson**
 
 ---
 

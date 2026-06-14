@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life begins at the end of our comfort zone."  
-> — **Neale Donald Walsch**
+> "Never put off to tomorrow what you can do to-day."  
+> — **Thomas Jefferson**
 
 ---
 
