@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace if possible, truth at all costs."  
-> — **Martin Luther**
+> "The greatest doer must also be a great dreamer."  
+> — **Theodore Roosevelt**
 
 ---
 
