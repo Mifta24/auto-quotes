@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never put off to tomorrow what you can do to-day."  
-> — **Thomas Jefferson**
+> "Lack of emotion causes lack of progress and lack of motivation."  
+> — **Tony Robbins**
 
 ---
 
