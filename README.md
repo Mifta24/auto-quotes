@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The consequences of today are determined by the actions of the past. To change your future, alter your decisions today."  
-> — **Unknown**
+> "Admire as much as you can. Most people do not admire enough."  
+> — **Vincent van Gogh**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If there were no God, there would be no atheists."  
-> — **Gilbert Chesterton**
+> "Admire as much as you can. Most people do not admire enough."  
+> — **Vincent van Gogh**
 
 ---
 
