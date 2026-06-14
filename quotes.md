@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "Life begins at the end of our comfort zone."  
+> — **Neale Donald Walsch**
 
 ---
 
