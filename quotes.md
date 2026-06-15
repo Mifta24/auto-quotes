@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A rational person can find peace by cultivating indifference to things outside of their control."  
-> — **Naval Ravikant**
+> "I am always doing that which I can not do, in order that I may learn how to do it."  
+> — **Pablo Picasso**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you can see the Light, you have to deal with the darkness."  
-> — **Dan Millman**
+> "I am always doing that which I can not do, in order that I may learn how to do it."  
+> — **Pablo Picasso**
 
 ---
 
