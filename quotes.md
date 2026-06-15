@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Follow the man who seeks the truth; run from the man who has found it."  
-> — **Vaclav Havel**
+> "Before you can see the Light, you have to deal with the darkness."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 14 June 2026 ⏳_
+_Last updated: 15 June 2026 ⏳_

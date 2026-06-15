@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To raise your consciousness, surround yourself with people of higher consciousness."  
-> — **Celestine Chua**
+> "Before you can see the Light, you have to deal with the darkness."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 14 June 2026 ⏳_
+_Last updated: 15 June 2026 ⏳_
