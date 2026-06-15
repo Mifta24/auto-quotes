@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you can see the Light, you have to deal with the darkness."  
-> — **Dan Millman**
+> "A rational person can find peace by cultivating indifference to things outside of their control."  
+> — **Naval Ravikant**
 
 ---
 
