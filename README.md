@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am always doing that which I can not do, in order that I may learn how to do it."  
-> — **Pablo Picasso**
+> "You can calculate the worth of a man by the number of his enemies."  
+> — **Gustave Flaubert**
 
 ---
 

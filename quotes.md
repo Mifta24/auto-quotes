@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success is always under construction.."  
-> — **Lily Tomlin**
+> "You can calculate the worth of a man by the number of his enemies."  
+> — **Gustave Flaubert**
 
 ---
 
