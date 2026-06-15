@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest of empires, is the empire over one's self."  
-> — **Publilius Syrus**
+> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
+> — **Robert Greene**
 
 ---
 

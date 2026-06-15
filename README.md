@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can calculate the worth of a man by the number of his enemies."  
-> — **Gustave Flaubert**
+> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
+> — **Robert Greene**
 
 ---
 
