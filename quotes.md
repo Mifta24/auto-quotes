@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can calculate the worth of a man by the number of his enemies."  
-> — **Gustave Flaubert**
+> "The greatest of empires, is the empire over one's self."  
+> — **Publilius Syrus**
 
 ---
 
