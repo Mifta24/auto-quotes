@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "You cannot change your destination overnight but you can change your direction overnight."  
+> — **Jim Rohn**
 
 ---
 
