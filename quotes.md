@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot change your destination overnight but you can change your direction overnight."  
-> — **Jim Rohn**
+> "Insanity is relative. It depends on who has who locked in what cage."  
+> — **Ray Bradbury**
 
 ---
 

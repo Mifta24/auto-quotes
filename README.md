@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "Insanity is relative. It depends on who has who locked in what cage."  
+> — **Ray Bradbury**
 
 ---
 
