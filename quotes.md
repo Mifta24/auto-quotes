@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity is relative. It depends on who has who locked in what cage."  
-> — **Ray Bradbury**
+> "Whoever is happy will make others happy too."  
+> — **Anne Frank**
 
 ---
 
