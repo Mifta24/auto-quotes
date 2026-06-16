@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing more frightful than ignorance in action."  
-> — **Johann Wolfgang von Goethe**
+> "We think too much and feel too little."  
+> — **Charlie Chaplin**
 
 ---
 
