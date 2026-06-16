@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whoever is happy will make others happy too."  
-> — **Anne Frank**
+> "Whenever you find yourself on the side of the majority, it is time to reform."  
+> — **Mark Twain**
 
 ---
 

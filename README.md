@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity is relative. It depends on who has who locked in what cage."  
-> — **Ray Bradbury**
+> "Whenever you find yourself on the side of the majority, it is time to reform."  
+> — **Mark Twain**
 
 ---
 
