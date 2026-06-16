@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever you find yourself on the side of the majority, it is time to reform."  
-> — **Mark Twain**
+> "Unless you change how you are, you will always have what you got."  
+> — **Jim Rohn**
 
 ---
 
