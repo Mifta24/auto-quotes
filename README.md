@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
-> — **Robert Greene**
+> "A lot of people have gone further than they thought they could because someone else thought they could."  
+> — **Zig Ziglar**
 
 ---
 
-_Last updated: 15 June 2026 ⏳_
+_Last updated: 16 June 2026 ⏳_
