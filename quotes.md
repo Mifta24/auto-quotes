@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is the signature of civilizations."  
-> — **Beverly Sills**
+> "Friends ask you questions; enemies question you."  
+> — **Criss Jami**
 
 ---
 
