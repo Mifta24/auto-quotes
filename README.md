@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "Don't let your mind stop you."  
+> — **Steve Harvey**
 
 ---
 

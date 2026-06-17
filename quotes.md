@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old."  
-> — **Franz Kafka**
+> "Don't let your mind stop you."  
+> — **Steve Harvey**
 
 ---
 
