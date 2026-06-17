@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "The whole is greater than the sum of its parts."  
+> — **Aristotle**
 
 ---
 
