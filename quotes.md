@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let your mind stop you."  
-> — **Steve Harvey**
+> "I am who I am today because of the choices I made yesterday."  
+> — **Eleanor Roosevelt**
 
 ---
 
