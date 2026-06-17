@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old."  
+> — **Franz Kafka**
 
 ---
 
