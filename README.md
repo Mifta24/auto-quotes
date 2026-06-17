@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is the signature of civilizations."  
-> — **Beverly Sills**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "It's the job that's never started that takes the longest to finish."  
+> — **J.R.R. Tolkien**
 
 ---
 
