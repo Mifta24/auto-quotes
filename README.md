@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat."  
-> — **Sun Tzu**
+> "Art is the signature of civilizations."  
+> — **Beverly Sills**
 
 ---
 

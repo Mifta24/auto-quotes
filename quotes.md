@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to dance than to march through life."  
-> — **Yoko Ono**
+> "Art is the signature of civilizations."  
+> — **Beverly Sills**
 
 ---
 
