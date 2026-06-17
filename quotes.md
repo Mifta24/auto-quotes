@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Unless you change how you are, you will always have what you got."  
-> — **Jim Rohn**
+> "Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat."  
+> — **Sun Tzu**
 
 ---
 
-_Last updated: 16 June 2026 ⏳_
+_Last updated: 17 June 2026 ⏳_
