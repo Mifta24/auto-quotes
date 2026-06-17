@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The whole is greater than the sum of its parts."  
-> — **Aristotle**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 

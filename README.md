@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the job that's never started that takes the longest to finish."  
-> — **J.R.R. Tolkien**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 
