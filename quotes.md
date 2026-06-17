@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat."  
-> — **Sun Tzu**
+> "It's better to dance than to march through life."  
+> — **Yoko Ono**
 
 ---
 
