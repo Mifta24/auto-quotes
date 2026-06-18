@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "In order to be walked over, you have to be lying down."  
+> — **Celestine Chua**
 
 ---
 
