@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are the touchstones of our characters."  
-> — **Henry David Thoreau**
+> "It always started with a dream."  
+> — **Conrad Hilton**
 
 ---
 
