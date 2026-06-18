@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I am who I am today because of the choices I made yesterday."  
-> — **Eleanor Roosevelt**
+> "Dreams are the touchstones of our characters."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 17 June 2026 ⏳_
+_Last updated: 18 June 2026 ⏳_
