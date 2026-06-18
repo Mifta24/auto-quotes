@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It always started with a dream."  
-> — **Conrad Hilton**
+> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."  
+> — **Voltaire**
 
 ---
 
