@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul is neither born, and nor does it die."  
-> — **Bhagavad Gita**
+> "Throw your heart over the fence and the rest will follow"  
+> — **Norman Vincent Peale**
 
 ---
 
