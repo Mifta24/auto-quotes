@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be walked over, you have to be lying down."  
-> — **Celestine Chua**
+> "Loving thoughts and actions are clearly beneficial for our physical and mental health."  
+> — **Dalai Lama**
 
 ---
 
