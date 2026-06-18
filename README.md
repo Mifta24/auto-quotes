@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be walked over, you have to be lying down."  
-> — **Celestine Chua**
+> "The soul is neither born, and nor does it die."  
+> — **Bhagavad Gita**
 
 ---
 

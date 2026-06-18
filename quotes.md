@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loving thoughts and actions are clearly beneficial for our physical and mental health."  
-> — **Dalai Lama**
+> "The soul is neither born, and nor does it die."  
+> — **Bhagavad Gita**
 
 ---
 
