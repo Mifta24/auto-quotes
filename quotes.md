@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."  
-> — **Voltaire**
+> "The way out is in."  
+> — **Thich Nhat Hanh**
 
 ---
 

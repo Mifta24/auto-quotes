@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It always started with a dream."  
-> — **Conrad Hilton**
+> "The way out is in."  
+> — **Thich Nhat Hanh**
 
 ---
 
