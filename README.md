@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we have no peace, it is because we have forgotten that we belong to each other."  
-> — **Mother Teresa**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."  
-> — **Elvis Presley**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 
