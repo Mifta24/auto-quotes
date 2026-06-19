@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have never in my life learned anything from any man who agreed with me."  
-> — **Dudley Field Malone**
+> "The first principle of success is desire."  
+> — **Robert Collier**
 
 ---
 
