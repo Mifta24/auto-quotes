@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "Happiness is not a goal...it's a by-product of a life well lived."  
+> — **Eleanor Roosevelt**
 
 ---
 
