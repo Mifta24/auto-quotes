@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have never in my life learned anything from any man who agreed with me."  
-> — **Dudley Field Malone**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 

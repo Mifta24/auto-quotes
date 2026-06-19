@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first principle of success is desire."  
-> — **Robert Collier**
+> "If we have no peace, it is because we have forgotten that we belong to each other."  
+> — **Mother Teresa**
 
 ---
 
