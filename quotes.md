@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we have no peace, it is because we have forgotten that we belong to each other."  
-> — **Mother Teresa**
+> "To judge a man by his weakest link or deed is like judging the power of the ocean by one wave."  
+> — **Elvis Presley**
 
 ---
 
