@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To lead the people, walk behind them."  
-> — **Lao Tzu**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 

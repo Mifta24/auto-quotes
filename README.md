@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The opportunity of defeating the enemy is provided by the enemy himself."  
-> — **Sun Tzu**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 
