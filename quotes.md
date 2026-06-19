@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear of death is fear of the Unknown."  
-> — **Adi Da Samraj**
+> "Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted."  
+> — **Robert Collier**
 
 ---
 
