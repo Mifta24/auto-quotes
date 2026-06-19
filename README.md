@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "Fear of death is fear of the Unknown."  
+> — **Adi Da Samraj**
 
 ---
 
