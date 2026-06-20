@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the potential for greatness."  
-> — **Steve Harvey**
+> "Be polite to all, but intimate with few."  
+> — **Thomas Jefferson**
 
 ---
 
