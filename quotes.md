@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The river that flows in you also flows in me."  
-> — **Kabir**
+> "The future belongs to those who learn more skills and combine them in creative ways."  
+> — **Robert Greene**
 
 ---
 
