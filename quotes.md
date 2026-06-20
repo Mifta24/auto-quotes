@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future belongs to those who learn more skills and combine them in creative ways."  
-> — **Robert Greene**
+> "Fear, uncertainty, and discomfort are your compasses toward growth."  
+> — **Celestine Chua**
 
 ---
 
