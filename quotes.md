@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult times for many of us are the ones we give ourselves."  
-> — **Pema Chodron**
+> "As you think, you travel, and as you love, you attract."  
+> — **James Allen**
 
 ---
 
