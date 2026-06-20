@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future belongs to those who learn more skills and combine them in creative ways."  
-> — **Robert Greene**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 

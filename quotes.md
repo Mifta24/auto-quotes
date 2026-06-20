@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear, uncertainty, and discomfort are your compasses toward growth."  
-> — **Celestine Chua**
+> "The most difficult times for many of us are the ones we give ourselves."  
+> — **Pema Chodron**
 
 ---
 
