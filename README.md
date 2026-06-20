@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Fear of death is fear of the Unknown."  
-> — **Adi Da Samraj**
+> "Every limit is a beginning as well as an ending."  
+> — **George Eliot**
 
 ---
 
-_Last updated: 19 June 2026 ⏳_
+_Last updated: 20 June 2026 ⏳_
