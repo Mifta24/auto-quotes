@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Be polite to all, but intimate with few."  
+> "Determine never to be idle. No person will have occasion to complain of the want of time who never loses any."  
 > — **Thomas Jefferson**
 
 ---
