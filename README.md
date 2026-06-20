@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every limit is a beginning as well as an ending."  
-> — **George Eliot**
+> "You have the potential for greatness."  
+> — **Steve Harvey**
 
 ---
 

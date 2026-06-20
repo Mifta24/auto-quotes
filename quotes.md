@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Luck is a matter of preparation meeting opportunity."  
-> — **Oprah Winfrey**
+> "You have the potential for greatness."  
+> — **Steve Harvey**
 
 ---
 
