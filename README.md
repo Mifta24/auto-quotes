@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The measure of who we are is what we do with what we have."  
-> — **Vince Lombardi**
+> "You can't go forward and backwards at the same time."  
+> — **Steve Harvey**
 
 ---
 

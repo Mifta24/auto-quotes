@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do not conquer self, you will be conquered by self."  
-> — **Napoleon Hill**
+> "You can't go forward and backwards at the same time."  
+> — **Steve Harvey**
 
 ---
 
