@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We run to win, not just to be in the race."  
-> — **Vince Lombardi**
+> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
+> — **Orison Swett Marden**
 
 ---
 
