@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for extraordinary opportunities. Seize common occasions and make them great."  
-> — **Orison Swett Marden**
+> "The measure of who we are is what we do with what we have."  
+> — **Vince Lombardi**
 
 ---
 

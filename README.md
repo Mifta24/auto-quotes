@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "We run to win, not just to be in the race."  
+> "The measure of who we are is what we do with what we have."  
 > — **Vince Lombardi**
 
 ---
