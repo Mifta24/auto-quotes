@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
-> — **Audrey Hepburn**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 
