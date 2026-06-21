@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The measure of who we are is what we do with what we have."  
-> — **Vince Lombardi**
+> "If you do not conquer self, you will be conquered by self."  
+> — **Napoleon Hill**
 
 ---
 
