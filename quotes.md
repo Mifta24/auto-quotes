@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Well done is better than well said."  
-> — **Benjamin Franklin**
+> "We run to win, not just to be in the race."  
+> — **Vince Lombardi**
 
 ---
 

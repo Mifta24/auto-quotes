@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "We run to win, not just to be in the race."  
+> — **Vince Lombardi**
 
 ---
 
