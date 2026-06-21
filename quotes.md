@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "As you think, you travel, and as you love, you attract."  
-> — **James Allen**
+> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
+> — **Audrey Hepburn**
 
 ---
 
-_Last updated: 20 June 2026 ⏳_
+_Last updated: 21 June 2026 ⏳_
