@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Giving is living. If you stop wanting to give, there's nothing more to live for."  
-> — **Audrey Hepburn**
+> "Respect is earned by effort not age, all things age without effort."  
+> — **C. Sean McGee**
 
 ---
 
