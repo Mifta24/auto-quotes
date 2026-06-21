@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "Well done is better than well said."  
+> — **Benjamin Franklin**
 
 ---
 
