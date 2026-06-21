@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can't go forward and backwards at the same time."  
-> — **Steve Harvey**
+> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
+> — **Brian Tracy**
 
 ---
 
