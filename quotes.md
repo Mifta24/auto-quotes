@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't listen to the person who has the answers; listen to the person who has the questions."  
-> — **Albert Einstein**
+> "The greatest of all mistakes is to do nothing because you think you can only do a little."  
+> — **Zig Ziglar**
 
 ---
 
