@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a gift and the trick is not to expect it, but to delight in it when it comes."  
-> — **Charles Dickens**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be successful, you have to jump, there's no way around it."  
-> — **Steve Harvey**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 
