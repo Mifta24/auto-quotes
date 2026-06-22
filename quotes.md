@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have never in my life learned anything from any man who agreed with me."  
-> — **Dudley Field Malone**
+> "I've always tried to go a step past wherever people expected me to end up."  
+> — **Beverly Sills**
 
 ---
 
