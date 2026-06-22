@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest of all mistakes is to do nothing because you think you can only do a little."  
-> — **Zig Ziglar**
+> "If you want to be successful, you have to jump, there's no way around it."  
+> — **Steve Harvey**
 
 ---
 
