@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to be successful, you have to jump, there's no way around it."  
-> — **Steve Harvey**
+> "Happiness is a gift and the trick is not to expect it, but to delight in it when it comes."  
+> — **Charles Dickens**
 
 ---
 
