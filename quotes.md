@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
-> — **Brian Tracy**
+> "You can never cross the ocean unless you have the courage to lose sight of the shore."  
+> — **Christopher Columbus**
 
 ---
 
-_Last updated: 21 June 2026 ⏳_
+_Last updated: 22 June 2026 ⏳_
