@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can never cross the ocean unless you have the courage to lose sight of the shore."  
-> — **Christopher Columbus**
+> "Don't listen to the person who has the answers; listen to the person who has the questions."  
+> — **Albert Einstein**
 
 ---
 
