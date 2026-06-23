@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are content to be simply yourself and don't compare or compete, everybody will respect you."  
-> — **Lao Tzu**
+> "When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there."  
+> — **Zig Ziglar**
 
 ---
 
