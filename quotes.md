@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
-> — **Ralph Marston**
+> "If you don't find the time, if you don't do the work, you don't get the results."  
+> — **Arnold Schwarzenegger**
 
 ---
 
