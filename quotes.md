@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
-> — **Samuel Butler**
+> "Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work."  
+> — **Ralph Marston**
 
 ---
 
