@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth is not for all men, but for those who seek it."  
-> — **Ayn Rand**
+> "Any fool can paint a picture, but it takes a wise man to be able to sell it."  
+> — **Samuel Butler**
 
 ---
 
