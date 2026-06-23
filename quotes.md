@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
-> — **Mark Twain**
+> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
+> — **Norman Vincent Peale**
 
 ---
 
