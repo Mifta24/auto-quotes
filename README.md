@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
-> — **Mark Twain**
+> "The truth is not for all men, but for those who seek it."  
+> — **Ayn Rand**
 
 ---
 

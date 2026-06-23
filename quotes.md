@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
-> — **Norman Vincent Peale**
+> "The truth is not for all men, but for those who seek it."  
+> — **Ayn Rand**
 
 ---
 
