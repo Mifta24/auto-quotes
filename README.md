@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are content to be simply yourself and don't compare or compete, everybody will respect you."  
-> — **Lao Tzu**
+> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
+> — **Mark Twain**
 
 ---
 

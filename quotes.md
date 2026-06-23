@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there."  
-> — **Zig Ziglar**
+> "Never argue with stupid people, they will drag you down to their level and then beat you with experience."  
+> — **Mark Twain**
 
 ---
 
