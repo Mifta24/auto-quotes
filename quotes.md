@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "When you are content to be simply yourself and don't compare or compete, everybody will respect you."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 22 June 2026 ⏳_
+_Last updated: 23 June 2026 ⏳_

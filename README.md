@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I have never in my life learned anything from any man who agreed with me."  
-> — **Dudley Field Malone**
+> "When you are content to be simply yourself and don't compare or compete, everybody will respect you."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 22 June 2026 ⏳_
+_Last updated: 23 June 2026 ⏳_
