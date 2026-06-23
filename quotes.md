@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "Judgments prevent us from seeing the good that lies beyond appearances."  
+> — **Wayne Dyer**
 
 ---
 
