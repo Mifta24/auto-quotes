@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're afraid to die, you're afraid to live. You can't have one without the other."  
-> — **Rita Mae Brown**
+> "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."  
+> — **Abraham Lincoln**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words, once they are printed, have a life of their own."  
-> — **Carol Burnett**
+> "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."  
+> — **Abraham Lincoln**
 
 ---
 
