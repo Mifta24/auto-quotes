@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "Have the courage to follow your heart and intuition. They somehow know what you truly want to become."  
+> — **Steve Jobs**
 
 ---
 
