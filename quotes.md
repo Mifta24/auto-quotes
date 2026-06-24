@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own."  
-> — **James Cameron**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 

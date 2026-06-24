@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."  
-> — **Abraham Lincoln**
+> "If everyone is moving forward together, then success takes care of itself."  
+> — **Henry Ford**
 
 ---
 
