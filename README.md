@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "Words, once they are printed, have a life of their own."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 23 June 2026 ⏳_
+_Last updated: 24 June 2026 ⏳_

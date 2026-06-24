@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Judgments prevent us from seeing the good that lies beyond appearances."  
-> — **Wayne Dyer**
+> "Words, once they are printed, have a life of their own."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 23 June 2026 ⏳_
+_Last updated: 24 June 2026 ⏳_
