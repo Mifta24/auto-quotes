@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your life is determined by the quality of questions you ask."  
-> — **Tony Robbins**
+> "Do not be so open-minded that your brains fall out."  
+> — **Gilbert Chesterton**
 
 ---
 
