@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the courage to follow your heart and intuition. They somehow know what you truly want to become."  
-> — **Steve Jobs**
+> "The quality of your life is determined by the quality of questions you ask."  
+> — **Tony Robbins**
 
 ---
 

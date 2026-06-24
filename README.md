@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If everyone is moving forward together, then success takes care of itself."  
-> — **Henry Ford**
+> "The quality of your life is determined by the quality of questions you ask."  
+> — **Tony Robbins**
 
 ---
 
