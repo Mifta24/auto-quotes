@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
-> — **Mark Twain**
+> "If you want to make God laugh, tell him about your plans."  
+> — **Woody Allen**
 
 ---
 
