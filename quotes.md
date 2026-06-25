@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The pen is the tongue of the mind."  
-> — **Miguel de Cervantes**
+> "It is startling to realize how much unbelief is necessary to make belief possible."  
+> — **Eric Hoffer**
 
 ---
 

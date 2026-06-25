@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "It is startling to realize how much unbelief is necessary to make belief possible."  
+> — **Eric Hoffer**
 
 ---
 
