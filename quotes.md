@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may forget with whom you laughed, but you will never forget with whom you wept."  
-> — **Kahlil Gibran**
+> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
+> — **Mark Twain**
 
 ---
 

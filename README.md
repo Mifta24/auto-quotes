@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Show up even when you don't want to show up."  
-> — **Steve Harvey**
+> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
+> — **Mark Twain**
 
 ---
 
