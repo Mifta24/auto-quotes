@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is startling to realize how much unbelief is necessary to make belief possible."  
-> — **Eric Hoffer**
+> "The best way to find yourself is to lose yourself in the service of others."  
+> — **Mahatma Gandhi**
 
 ---
 
