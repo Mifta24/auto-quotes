@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Show up even when you don't want to show up."  
-> — **Steve Harvey**
+> "You may forget with whom you laughed, but you will never forget with whom you wept."  
+> — **Kahlil Gibran**
 
 ---
 
