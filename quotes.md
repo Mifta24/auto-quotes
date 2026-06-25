@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learn to value yourself, which means: fight for your happiness."  
-> — **Ayn Rand**
+> "20 percent of your activities will account for 80 percent of your results."  
+> — **Brian Tracy**
 
 ---
 
