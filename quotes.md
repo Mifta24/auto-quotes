@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "The pen is the tongue of the mind."  
+> — **Miguel de Cervantes**
 
 ---
 
