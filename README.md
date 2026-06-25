@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not be so open-minded that your brains fall out."  
-> — **Gilbert Chesterton**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
-_Last updated: 24 June 2026 ⏳_
+_Last updated: 25 June 2026 ⏳_

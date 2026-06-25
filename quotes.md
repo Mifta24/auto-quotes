@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I'd rather welcome change than cling to the past."  
-> — **Robert Kiyosaki**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
-_Last updated: 24 June 2026 ⏳_
+_Last updated: 25 June 2026 ⏳_
