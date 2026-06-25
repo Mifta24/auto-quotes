@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one."  
-> — **Mark Twain**
+> "Learn to value yourself, which means: fight for your happiness."  
+> — **Ayn Rand**
 
 ---
 

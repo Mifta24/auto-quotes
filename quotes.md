@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to make God laugh, tell him about your plans."  
-> — **Woody Allen**
+> "Learn to value yourself, which means: fight for your happiness."  
+> — **Ayn Rand**
 
 ---
 
