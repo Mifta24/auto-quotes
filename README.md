@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is startling to realize how much unbelief is necessary to make belief possible."  
-> — **Eric Hoffer**
+> "Show up even when you don't want to show up."  
+> — **Steve Harvey**
 
 ---
 
