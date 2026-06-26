@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "20 percent of your activities will account for 80 percent of your results."  
-> — **Brian Tracy**
+> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 25 June 2026 ⏳_
+_Last updated: 26 June 2026 ⏳_

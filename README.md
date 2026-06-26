@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Learn to value yourself, which means: fight for your happiness."  
-> — **Ayn Rand**
+> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 25 June 2026 ⏳_
+_Last updated: 26 June 2026 ⏳_
