@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "While some of us act without thinking, too many of us think without acting."  
-> — **Dan Millman**
+> "What is planted in each person's soul will sprout."  
+> — **Rumi**
 
 ---
 
