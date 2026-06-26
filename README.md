@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rudeness is the weak man's imitation of strength."  
-> — **Eric Hoffer**
+> "While some of us act without thinking, too many of us think without acting."  
+> — **Dan Millman**
 
 ---
 

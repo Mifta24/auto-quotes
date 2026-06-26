@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't want anything. Then you get everything."  
-> — **Seungsahn**
+> "While some of us act without thinking, too many of us think without acting."  
+> — **Dan Millman**
 
 ---
 
