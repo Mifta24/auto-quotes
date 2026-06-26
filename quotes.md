@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life isn't about finding yourself. Life is about creating yourself."  
-> — **George Bernard Shaw**
+> "Rudeness is the weak man's imitation of strength."  
+> — **Eric Hoffer**
 
 ---
 

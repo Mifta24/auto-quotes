@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ripe fruit falls by itself - but it doesn't fall in your mouth."  
-> — **Chinese Proverb**
+> "Rudeness is the weak man's imitation of strength."  
+> — **Eric Hoffer**
 
 ---
 
