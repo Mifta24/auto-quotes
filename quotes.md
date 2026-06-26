@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Common sense is not so common."  
-> — **Voltaire**
+> "Ripe fruit falls by itself - but it doesn't fall in your mouth."  
+> — **Chinese Proverb**
 
 ---
 

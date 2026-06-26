@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
-> — **Tony Robbins**
+> "Ripe fruit falls by itself - but it doesn't fall in your mouth."  
+> — **Chinese Proverb**
 
 ---
 
