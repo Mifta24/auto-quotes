@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ripe fruit falls by itself - but it doesn't fall in your mouth."  
-> — **Chinese Proverb**
+> "Life isn't about finding yourself. Life is about creating yourself."  
+> — **George Bernard Shaw**
 
 ---
 
