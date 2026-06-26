@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "While some of us act without thinking, too many of us think without acting."  
-> — **Dan Millman**
+> "You can often change your circumstances by changing your attitude."  
+> — **Eleanor Roosevelt**
 
 ---
 
