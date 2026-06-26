@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rudeness is the weak man's imitation of strength."  
-> — **Eric Hoffer**
+> "Don't want anything. Then you get everything."  
+> — **Seungsahn**
 
 ---
 
