@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."  
-> — **Roy T. Bennett**
+> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
+> — **Thich Nhat Hanh**
 
 ---
 
