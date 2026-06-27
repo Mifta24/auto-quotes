@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the fearless attitude of a hero and the loving heart of a child."  
-> — **Soyen Shaku**
+> "If you aim at nothing, you will hit it every time."  
+> — **Zig Ziglar**
 
 ---
 
