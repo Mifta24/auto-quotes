@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When something is important enough, you do it even if the odds are not in your favor."  
-> — **Elon Musk**
+> "Do the hard jobs first. The easy jobs will take care of themselves."  
+> — **Dale Carnegie**
 
 ---
 

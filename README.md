@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To seek greatness is the only righteous vengeance."  
-> — **Criss Jami**
+> "Do the hard jobs first. The easy jobs will take care of themselves."  
+> — **Dale Carnegie**
 
 ---
 
