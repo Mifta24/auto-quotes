@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do the hard jobs first. The easy jobs will take care of themselves."  
-> — **Dale Carnegie**
+> "There is nothing quite so tragic as a young cynic."  
+> — **Maya Angelou**
 
 ---
 
