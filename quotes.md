@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "Much learning does not teach understanding."  
+> — **Heraclitus**
 
 ---
 
