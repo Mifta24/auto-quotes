@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you aim at nothing, you will hit it every time."  
-> — **Zig Ziglar**
+> "No duty is more urgent than that of returning thanks."  
+> — **James Allen**
 
 ---
 

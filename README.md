@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Have the fearless attitude of a hero and the loving heart of a child."  
-> — **Soyen Shaku**
+> "No duty is more urgent than that of returning thanks."  
+> — **James Allen**
 
 ---
 
