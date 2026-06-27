@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing quite so tragic as a young cynic."  
-> — **Maya Angelou**
+> "Have the fearless attitude of a hero and the loving heart of a child."  
+> — **Soyen Shaku**
 
 ---
 
