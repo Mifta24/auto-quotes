@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best of us sometimes eat our words."  
-> — **Albus Dumbledore**
+> "If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher."  
+> — **Pema Chodron**
 
 ---
 
