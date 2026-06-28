@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He will win who knows when to fight and when not to fight."  
-> — **Sun Tzu**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 

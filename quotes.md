@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Best be yourself, imperial, plain, and true."  
-> — **Robert Browning**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 
