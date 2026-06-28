@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Storms don't last forever."  
-> — **Unknown**
+> "The best of us sometimes eat our words."  
+> — **Albus Dumbledore**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "The best of us sometimes eat our words."  
+> — **Albus Dumbledore**
 
 ---
 
