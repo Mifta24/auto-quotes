@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results."  
-> — **Peter Drucker**
+> "True masters are those who've chosen to make a life rather than a living."  
+> — **Neale Donald Walsch**
 
 ---
 
