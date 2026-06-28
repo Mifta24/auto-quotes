@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "Storms don't last forever."  
+> — **Unknown**
 
 ---
 
