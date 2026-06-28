@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reality is nothing but a collective hunch."  
-> — **Lily Tomlin**
+> "He will win who knows when to fight and when not to fight."  
+> — **Sun Tzu**
 
 ---
 
