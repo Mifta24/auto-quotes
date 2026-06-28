@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."  
-> — **Roy T. Bennett**
+> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
+> — **J.R.R. Tolkien**
 
 ---
 
-_Last updated: 27 June 2026 ⏳_
+_Last updated: 28 June 2026 ⏳_

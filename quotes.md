@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
-> — **Thich Nhat Hanh**
+> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
+> — **J.R.R. Tolkien**
 
 ---
 
-_Last updated: 27 June 2026 ⏳_
+_Last updated: 28 June 2026 ⏳_
