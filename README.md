@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best of us sometimes eat our words."  
-> — **Albus Dumbledore**
+> "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results."  
+> — **Peter Drucker**
 
 ---
 

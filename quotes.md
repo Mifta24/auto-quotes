@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher."  
-> — **Pema Chodron**
+> "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results."  
+> — **Peter Drucker**
 
 ---
 
