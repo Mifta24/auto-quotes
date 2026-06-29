@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is not outside man; it is within."  
-> — **George Eliot**
+> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
+> — **C. Sean McGee**
 
 ---
 
