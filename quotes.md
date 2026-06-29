@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man who cannot tolerate small misfortunes can never accomplish great things."  
-> — **Chinese Proverb**
+> "Looking after my health today gives me a better hope for tomorrow."  
+> — **Anne Wilson Schaef**
 
 ---
 

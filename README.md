@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams."  
-> — **D. H. Lawrence**
+> "Looking after my health today gives me a better hope for tomorrow."  
+> — **Anne Wilson Schaef**
 
 ---
 
