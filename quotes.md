@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Before you can see the Light, you have to deal with the darkness."  
+> — **Dan Millman**
 
 ---
 
