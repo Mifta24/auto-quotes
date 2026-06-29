@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is not outside man; it is within."  
-> — **George Eliot**
+> "Your only limitations are those you set up in your mind or permit others to set up for you."  
+> — **Og Mandino**
 
 ---
 

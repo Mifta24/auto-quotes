@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
-> — **C. Sean McGee**
+> "Your only limitations are those you set up in your mind or permit others to set up for you."  
+> — **Og Mandino**
 
 ---
 
