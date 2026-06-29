@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Still your waters."  
-> — **Josh Waitzkin**
+> "Give more than you think you can, trusting that you are richer than you think."  
+> — **Jon Kabat-Zinn**
 
 ---
 
