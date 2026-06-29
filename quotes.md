@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams."  
-> — **D. H. Lawrence**
+> "A man who cannot tolerate small misfortunes can never accomplish great things."  
+> — **Chinese Proverb**
 
 ---
 
