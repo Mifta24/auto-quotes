@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Looking after my health today gives me a better hope for tomorrow."  
-> — **Anne Wilson Schaef**
+> "Adventure is not outside man; it is within."  
+> — **George Eliot**
 
 ---
 

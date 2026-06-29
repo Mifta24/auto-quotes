@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The question is not what you look at, but what you see."  
-> — **Henry David Thoreau**
+> "Adventure is not outside man; it is within."  
+> — **George Eliot**
 
 ---
 
