@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your only limitations are those you set up in your mind or permit others to set up for you."  
-> — **Og Mandino**
+> "Still your waters."  
+> — **Josh Waitzkin**
 
 ---
 
