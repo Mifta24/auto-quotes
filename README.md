@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Give more than you think you can, trusting that you are richer than you think."  
-> — **Jon Kabat-Zinn**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 29 June 2026 ⏳_
+_Last updated: 30 June 2026 ⏳_

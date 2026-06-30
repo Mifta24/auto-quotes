@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Before you can see the Light, you have to deal with the darkness."  
-> — **Dan Millman**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 
-_Last updated: 29 June 2026 ⏳_
+_Last updated: 30 June 2026 ⏳_
