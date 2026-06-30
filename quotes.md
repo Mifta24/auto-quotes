@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
+> — **Gilbert Chesterton**
 
 ---
 
