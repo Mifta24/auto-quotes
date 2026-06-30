@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."  
+> — **Warren Buffett**
 
 ---
 

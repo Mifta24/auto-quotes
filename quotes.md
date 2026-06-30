@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him."  
-> — **Gilbert Chesterton**
+> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."  
+> — **Warren Buffett**
 
 ---
 
