@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is just information and an opportunity to change your course."  
-> — **Oprah Winfrey**
+> "You have to keep breaking your heart until it opens."  
+> — **Rumi**
 
 ---
 
