@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."  
-> — **Warren Buffett**
+> "He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all."  
+> — **Miguel de Cervantes**
 
 ---
 
