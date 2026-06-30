@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to keep breaking your heart until it opens."  
-> — **Rumi**
+> "The greatest work that kindness does to others is that it makes them kind themselves."  
+> — **Amelia Earhart**
 
 ---
 
