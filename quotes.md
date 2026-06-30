@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Awakening is possible only for those who seek it and want it."  
-> — **G.I. Gurdjieff**
+> "Failure is just information and an opportunity to change your course."  
+> — **Oprah Winfrey**
 
 ---
 
