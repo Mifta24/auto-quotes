@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You have to keep breaking your heart until it opens."  
-> — **Rumi**
+> "The only thing worse than being blind is having sight but no vision."  
+> — **Helen Keller**
 
 ---
 
-_Last updated: 30 June 2026 ⏳_
+_Last updated: 01 July 2026 ⏳_
