@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution."  
-> — **Albus Dumbledore**
+> "If you're waiting until you feel talented enough to make it, you'll never make it."  
+> — **Criss Jami**
 
 ---
 
