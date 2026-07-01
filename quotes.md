@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We build too many walls and not enough bridges."  
-> — **Isaac Newton**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 

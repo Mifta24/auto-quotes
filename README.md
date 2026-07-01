@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
-> — **Albert Einstein**
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
+> — **Zig Ziglar**
 
 ---
 
