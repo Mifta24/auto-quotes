@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter where you are, you are nowhere compared to where you can go."  
-> — **Bob Proctor**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 

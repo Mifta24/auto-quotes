@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only thing worse than being blind is having sight but no vision."  
-> — **Helen Keller**
+> "We know nothing of tomorrow, our business is to be good and happy today."  
+> — **Sydney Smith**
 
 ---
 
