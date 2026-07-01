@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
-> — **Zig Ziglar**
+> "Instead of being intimidated by the limitations, be inspired to find new ways around them."  
+> — **Ralph Marston**
 
 ---
 
