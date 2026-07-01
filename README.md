@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days."  
-> — **Zig Ziglar**
+> "The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution."  
+> — **Albus Dumbledore**
 
 ---
 
