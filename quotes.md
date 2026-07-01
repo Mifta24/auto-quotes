@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
-> — **Albert Einstein**
+> "We build too many walls and not enough bridges."  
+> — **Isaac Newton**
 
 ---
 
