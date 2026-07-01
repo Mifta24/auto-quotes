@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only thing worse than being blind is having sight but no vision."  
-> — **Helen Keller**
+> "It doesn't matter where you are, you are nowhere compared to where you can go."  
+> — **Bob Proctor**
 
 ---
 
