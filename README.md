@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We know nothing of tomorrow, our business is to be good and happy today."  
-> — **Sydney Smith**
+> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
+> — **Albert Einstein**
 
 ---
 

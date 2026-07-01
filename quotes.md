@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People will forget what you said, people will forget what you did, but people will never forget how you made them feel."  
-> — **Maya Angelou**
+> "I am thankful to all who said no to me. It is because of them that I'm doing it myself."  
+> — **Albert Einstein**
 
 ---
 
