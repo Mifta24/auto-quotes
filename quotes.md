@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well."  
-> — **Jack London**
+> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
+> — **Mark Manson**
 
 ---
 
