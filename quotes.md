@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is little success where there is little laughter."  
-> — **Andrew Carnegie**
+> "If you have only one smile in you give it to the people you love."  
+> — **Maya Angelou**
 
 ---
 
