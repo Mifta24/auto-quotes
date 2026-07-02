@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "It does not matter how slowly you go so long as you do not stop."  
+> — **Confucius**
 
 ---
 
