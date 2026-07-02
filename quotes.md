@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams have only one owner at a time. That's why dreamers are lonely."  
-> — **William Faulkner**
+> "Invest in as much of yourself as you can, you are your own biggest asset by far."  
+> — **Warren Buffett**
 
 ---
 
