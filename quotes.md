@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well."  
+> — **Jack London**
 
 ---
 
