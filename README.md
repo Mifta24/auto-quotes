@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution."  
-> — **Albus Dumbledore**
+> "Dreams have only one owner at a time. That's why dreamers are lonely."  
+> — **William Faulkner**
 
 ---
 
-_Last updated: 01 July 2026 ⏳_
+_Last updated: 02 July 2026 ⏳_

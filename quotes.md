@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you're waiting until you feel talented enough to make it, you'll never make it."  
-> — **Criss Jami**
+> "Dreams have only one owner at a time. That's why dreamers are lonely."  
+> — **William Faulkner**
 
 ---
 
-_Last updated: 01 July 2026 ⏳_
+_Last updated: 02 July 2026 ⏳_
