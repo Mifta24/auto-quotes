@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It does not matter how slowly you go so long as you do not stop."  
-> — **Confucius**
+> "There is little success where there is little laughter."  
+> — **Andrew Carnegie**
 
 ---
 

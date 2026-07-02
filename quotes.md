@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."  
-> — **Josh Waitzkin**
+> "There is little success where there is little laughter."  
+> — **Andrew Carnegie**
 
 ---
 
