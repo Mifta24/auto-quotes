@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It does not matter how slowly you go so long as you do not stop."  
-> — **Confucius**
+> "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."  
+> — **Josh Waitzkin**
 
 ---
 
