@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams have only one owner at a time. That's why dreamers are lonely."  
-> — **William Faulkner**
+> "Everything begins with an idea."  
+> — **Earl Nightingale**
 
 ---
 
