@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
-> — **Henry Ward Beecher**
+> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
+> — **Zen Proverb**
 
 ---
 
