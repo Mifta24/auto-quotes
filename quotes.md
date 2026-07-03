@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The constant assertion of belief is an indication of fear."  
-> — **Jiddu Krishnamurti**
+> "I like the dreams of the future better than the history of the past."  
+> — **Thomas Jefferson**
 
 ---
 
