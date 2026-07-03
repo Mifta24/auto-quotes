@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Give a girl the right shoes, and she can conquer the world."  
-> — **Bette Midler**
+> "The constant assertion of belief is an indication of fear."  
+> — **Jiddu Krishnamurti**
 
 ---
 
