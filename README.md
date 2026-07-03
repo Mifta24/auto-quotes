@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
-> — **Jim Rohn**
+> "Give a girl the right shoes, and she can conquer the world."  
+> — **Bette Midler**
 
 ---
 

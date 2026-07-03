@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We need a backbone, not a wishbone."  
-> — **Joyce Meyer**
+> "Give a girl the right shoes, and she can conquer the world."  
+> — **Bette Midler**
 
 ---
 
