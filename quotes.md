@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
-> — **Henry Ward Beecher**
+> "Life reflects your own thoughts back to you."  
+> — **Napoleon Hill**
 
 ---
 
