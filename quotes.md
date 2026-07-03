@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nature loves to hide."  
-> — **Heraclitus**
+> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
+> — **Jim Rohn**
 
 ---
 

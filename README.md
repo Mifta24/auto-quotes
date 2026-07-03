@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you stumble and fall down, it doesn't mean you've chosen the wrong path."  
-> — **Zen Proverb**
+> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
+> — **Jim Rohn**
 
 ---
 
