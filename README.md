@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To belittle, you have to be little."  
-> — **Kahlil Gibran**
+> "Judge your success by what you had to give up in order to get it."  
+> — **Dalai Lama**
 
 ---
 
