@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge your success by what you had to give up in order to get it."  
-> — **Dalai Lama**
+> "A goal is a dream with a deadline."  
+> — **Napoleon Hill**
 
 ---
 

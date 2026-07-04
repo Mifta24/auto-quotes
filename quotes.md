@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the keys to happiness is a bad memory."  
-> — **Rita Mae Brown**
+> "A goal is a dream with a deadline."  
+> — **Napoleon Hill**
 
 ---
 
