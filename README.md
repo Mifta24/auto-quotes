@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A goal is a dream with a deadline."  
-> — **Napoleon Hill**
+> "Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners."  
+> — **Nicolas Chamfort**
 
 ---
 
