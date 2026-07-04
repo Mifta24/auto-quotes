@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Judge your success by what you had to give up in order to get it."  
-> — **Dalai Lama**
+> "One of the keys to happiness is a bad memory."  
+> — **Rita Mae Brown**
 
 ---
 
