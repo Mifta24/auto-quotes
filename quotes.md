@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Passion is born deaf and dumb."  
-> — **Honore de Balzac**
+> "To belittle, you have to be little."  
+> — **Kahlil Gibran**
 
 ---
 
