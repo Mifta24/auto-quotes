@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To accomplish big things, I am convinced you must first dream big dreams."  
-> — **Conrad Hilton**
+> "Passion is born deaf and dumb."  
+> — **Honore de Balzac**
 
 ---
 
