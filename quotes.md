@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I like the dreams of the future better than the history of the past."  
-> — **Thomas Jefferson**
+> "To accomplish big things, I am convinced you must first dream big dreams."  
+> — **Conrad Hilton**
 
 ---
 
-_Last updated: 03 July 2026 ⏳_
+_Last updated: 04 July 2026 ⏳_
