@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners."  
-> — **Nicolas Chamfort**
+> "Take away love and our earth is a tomb."  
+> — **Robert Browning**
 
 ---
 
