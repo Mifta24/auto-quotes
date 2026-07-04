@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A goal is a dream with a deadline."  
-> — **Napoleon Hill**
+> "Give a girl the right shoes, and she can conquer the world."  
+> — **Bette Midler**
 
 ---
 
