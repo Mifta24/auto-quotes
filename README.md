@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can live without money, but I cannot live without love."  
-> — **Judy Garland**
+> "Each day your life grows a day shorter. Make every move count."  
+> — **Ming-Dao Deng**
 
 ---
 

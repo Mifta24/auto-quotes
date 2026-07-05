@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "Each day your life grows a day shorter. Make every move count."  
+> — **Ming-Dao Deng**
 
 ---
 
