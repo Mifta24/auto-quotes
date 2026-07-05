@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Each day your life grows a day shorter. Make every move count."  
+> "Who you are is always right."  
 > — **Ming-Dao Deng**
 
 ---
