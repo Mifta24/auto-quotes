@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is always right."  
-> — **Ming-Dao Deng**
+> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
+> — **Brian Tracy**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We ordinary people must forge our own beauty."  
-> — **Kenji Miyazawa**
+> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
+> — **Brian Tracy**
 
 ---
 
