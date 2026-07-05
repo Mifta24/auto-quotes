@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
-> — **Brian Tracy**
+> "Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy."  
+> — **Celestine Chua**
 
 ---
 
