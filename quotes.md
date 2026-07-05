@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Each day your life grows a day shorter. Make every move count."  
-> — **Ming-Dao Deng**
+> "The most effective way to do it, is to do it."  
+> — **Amelia Earhart**
 
 ---
 
