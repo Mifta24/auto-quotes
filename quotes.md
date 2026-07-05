@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Take away love and our earth is a tomb."  
-> — **Robert Browning**
+> "I can live without money, but I cannot live without love."  
+> — **Judy Garland**
 
 ---
 
-_Last updated: 04 July 2026 ⏳_
+_Last updated: 05 July 2026 ⏳_
