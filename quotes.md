@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is always right."  
-> — **Ming-Dao Deng**
+> "We ordinary people must forge our own beauty."  
+> — **Kenji Miyazawa**
 
 ---
 
