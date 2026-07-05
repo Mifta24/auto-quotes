@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I can live without money, but I cannot live without love."  
-> — **Judy Garland**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
