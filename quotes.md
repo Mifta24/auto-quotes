@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It isn't what you do, but how you do it."  
-> — **John Wooden**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 05 July 2026 ⏳_
+_Last updated: 06 July 2026 ⏳_

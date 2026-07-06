@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
-> — **Brian Tracy**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 05 July 2026 ⏳_
+_Last updated: 06 July 2026 ⏳_
