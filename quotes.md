@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be alive - is Power."  
-> — **Emily Dickinson**
+> "Focused, hard work is the real key to success."  
+> — **John Carmack**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "Focused, hard work is the real key to success."  
+> — **John Carmack**
 
 ---
 
