@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "When the fish is caught we pay no more attention to the trap."  
+> — **Huang Po**
 
 ---
 
