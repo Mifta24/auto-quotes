@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you extend kindness to yourself, the more it will become your automatic response to others."  
-> — **Wayne Dyer**
+> "If you want to know what God thinks about money just look at the people He gives it to."  
+> — **Alexander Pope**
 
 ---
 
