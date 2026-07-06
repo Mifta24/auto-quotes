@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focused, hard work is the real key to success."  
-> — **John Carmack**
+> "When you can't make them see the light, make them feel the heat."  
+> — **Ronald Reagan**
 
 ---
 
