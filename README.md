@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "The more you extend kindness to yourself, the more it will become your automatic response to others."  
+> — **Wayne Dyer**
 
 ---
 

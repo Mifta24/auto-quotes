@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When the fish is caught we pay no more attention to the trap."  
-> — **Huang Po**
+> "The more you extend kindness to yourself, the more it will become your automatic response to others."  
+> — **Wayne Dyer**
 
 ---
 
