@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
-> — **Shunryu Suzuki**
+> "By the practice of meditation, you will find that you are carrying within your heart a portable paradise."  
+> — **Paramahansa Yogananda**
 
 ---
 
