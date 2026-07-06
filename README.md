@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focused, hard work is the real key to success."  
-> — **John Carmack**
+> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
+> — **Shunryu Suzuki**
 
 ---
 

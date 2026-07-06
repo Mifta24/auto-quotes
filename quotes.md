@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you can't make them see the light, make them feel the heat."  
-> — **Ronald Reagan**
+> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
+> — **Shunryu Suzuki**
 
 ---
 
