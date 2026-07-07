@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry."  
-> — **Celestine Chua**
+> "Failure is the highway to success."  
+> — **Og Mandino**
 
 ---
 
