@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry."  
+> — **Celestine Chua**
 
 ---
 

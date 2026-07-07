@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker."  
-> — **Zig Ziglar**
+> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry."  
+> — **Celestine Chua**
 
 ---
 
