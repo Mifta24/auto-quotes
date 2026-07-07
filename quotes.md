@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the hand that erases can write the true thing."  
-> — **Meister Eckhart**
+> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity."  
-> — **Charles Spurgeon**
+> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
