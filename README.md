@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
-> — **Shunryu Suzuki**
+> "Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity."  
+> — **Charles Spurgeon**
 
 ---
 
-_Last updated: 06 July 2026 ⏳_
+_Last updated: 07 July 2026 ⏳_
