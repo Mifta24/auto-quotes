@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember to look up at the stars and not down at your feet."  
-> — **Stephen Hawking**
+> "Make failure your teacher, not your undertaker."  
+> — **Zig Ziglar**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wake up and smile! Wake up and be grateful!"  
-> — **Steve Harvey**
+> "Make failure your teacher, not your undertaker."  
+> — **Zig Ziglar**
 
 ---
 
