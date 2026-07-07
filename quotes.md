@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make failure your teacher, not your undertaker."  
-> — **Zig Ziglar**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 
