@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity."  
-> — **Charles Spurgeon**
+> "Only the hand that erases can write the true thing."  
+> — **Meister Eckhart**
 
 ---
 
