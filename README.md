@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind is the limit."  
-> — **Arnold Schwarzenegger**
+> "The dreamers are the saviors of the worlds."  
+> — **James Allen**
 
 ---
 
