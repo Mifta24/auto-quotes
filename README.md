@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never give way to laziness."  
-> — **Bhagavad Gita**
+> "The mind is the limit."  
+> — **Arnold Schwarzenegger**
 
 ---
 

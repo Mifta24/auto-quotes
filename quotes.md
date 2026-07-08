@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Penny Saved is a Penny Earned"  
-> — **Benjamin Franklin**
+> "The mind is the limit."  
+> — **Arnold Schwarzenegger**
 
 ---
 
