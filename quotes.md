@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure is the highway to success."  
-> — **Og Mandino**
+> "Never give way to laziness."  
+> — **Bhagavad Gita**
 
 ---
 
-_Last updated: 07 July 2026 ⏳_
+_Last updated: 08 July 2026 ⏳_

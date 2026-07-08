@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry."  
-> — **Celestine Chua**
+> "Never give way to laziness."  
+> — **Bhagavad Gita**
 
 ---
 
-_Last updated: 07 July 2026 ⏳_
+_Last updated: 08 July 2026 ⏳_
