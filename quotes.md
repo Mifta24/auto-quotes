@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The dreamers are the saviors of the worlds."  
-> — **James Allen**
+> "A clear conscience is the sure sign of a bad memory."  
+> — **Mark Twain**
 
 ---
 
