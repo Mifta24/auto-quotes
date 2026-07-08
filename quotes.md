@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never give way to laziness."  
-> — **Bhagavad Gita**
+> "A Penny Saved is a Penny Earned"  
+> — **Benjamin Franklin**
 
 ---
 
