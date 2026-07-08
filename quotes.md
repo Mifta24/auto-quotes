@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mind is the limit."  
-> — **Arnold Schwarzenegger**
+> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
+> — **Napoleon Hill**
 
 ---
 
