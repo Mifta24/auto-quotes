@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
-> — **Naval Ravikant**
+> "Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions."  
+> — **Criss Jami**
 
 ---
 
