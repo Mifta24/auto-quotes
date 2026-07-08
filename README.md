@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Admire as much as you can. Most people do not admire enough."  
-> — **Vincent van Gogh**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 

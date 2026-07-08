@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who wishes to be obeyed must know how to command."  
-> — **Niccolo Machiavelli**
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
+> — **Naval Ravikant**
 
 ---
 
