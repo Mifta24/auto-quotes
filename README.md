@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every second you have on this planet is very precious and it's your responsibility that you're happy."  
-> — **Naval Ravikant**
+> "We don't stop going to school when we graduate."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 08 July 2026 ⏳_
+_Last updated: 09 July 2026 ⏳_
