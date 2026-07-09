@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity comes when you continually push forward."  
-> — **Sonia Ricotti**
+> "I begin with an idea and then it becomes something else."  
+> — **Pablo Picasso**
 
 ---
 
