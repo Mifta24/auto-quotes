@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is the signature of civilizations."  
-> — **Beverly Sills**
+> "By words the mind is winged."  
+> — **Aristophanes**
 
 ---
 
