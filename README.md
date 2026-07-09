@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stop going to school when we graduate."  
-> — **Carol Burnett**
+> "Opportunity comes when you continually push forward."  
+> — **Sonia Ricotti**
 
 ---
 
