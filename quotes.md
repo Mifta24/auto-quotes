@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I begin with an idea and then it becomes something else."  
-> — **Pablo Picasso**
+> "Art is the signature of civilizations."  
+> — **Beverly Sills**
 
 ---
 
