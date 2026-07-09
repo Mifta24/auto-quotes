@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "A clear conscience never fears midnight knocking."  
+> — **Chinese Proverb**
 
 ---
 

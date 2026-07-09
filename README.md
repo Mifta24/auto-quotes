@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Art is the signature of civilizations."  
-> — **Beverly Sills**
+> "A clear conscience never fears midnight knocking."  
+> — **Chinese Proverb**
 
 ---
 
