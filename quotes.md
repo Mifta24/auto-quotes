@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head."  
-> — **Eric Hoffer**
+> "At every moment where language can't go, that's your mind."  
+> — **Bodhidharma**
 
 ---
 
