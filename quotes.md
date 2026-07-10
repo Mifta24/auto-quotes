@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "At every moment where language can't go, that's your mind."  
-> — **Bodhidharma**
+> "You will succeed because most people are lazy."  
+> — **Shahir Zag**
 
 ---
 
