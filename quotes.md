@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
-> — **Ayn Rand**
+> "Whatever your heart clings to and confides in, that is really your God."  
+> — **Martin Luther**
 
 ---
 
