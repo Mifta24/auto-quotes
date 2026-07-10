@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head."  
+> — **Eric Hoffer**
 
 ---
 
