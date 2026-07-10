@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You will succeed because most people are lazy."  
-> — **Shahir Zag**
+> "Don't wait for the right opportunity: create it."  
+> — **George Bernard Shaw**
 
 ---
 
