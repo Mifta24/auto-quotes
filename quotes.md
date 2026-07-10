@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Experience is simply the name we give our mistakes."  
-> — **Oscar Wilde**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
