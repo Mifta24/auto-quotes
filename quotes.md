@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for the right opportunity: create it."  
-> — **George Bernard Shaw**
+> "It's okay to be discouraged. It's not okay to quit."  
+> — **Ryan Holiday**
 
 ---
 
