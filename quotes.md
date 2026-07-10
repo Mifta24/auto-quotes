@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A clear conscience never fears midnight knocking."  
-> — **Chinese Proverb**
+> "Experience is simply the name we give our mistakes."  
+> — **Oscar Wilde**
 
 ---
 
-_Last updated: 09 July 2026 ⏳_
+_Last updated: 10 July 2026 ⏳_
