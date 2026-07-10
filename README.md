@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for the right opportunity: create it."  
-> — **George Bernard Shaw**
+> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
+> — **Ayn Rand**
 
 ---
 
