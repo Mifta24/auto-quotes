@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Show me a hero, and I'll write you a tragedy."  
-> — **F. Scott Fitzgerald**
+> "A hut full of laughter is richer than a palace full of sadness."  
+> — **Zen Proverb**
 
 ---
 
