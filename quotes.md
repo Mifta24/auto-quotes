@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hut full of laughter is richer than a palace full of sadness."  
-> — **Zen Proverb**
+> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."  
+> — **Samuel Butler**
 
 ---
 
