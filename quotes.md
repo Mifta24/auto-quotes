@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you're at the end of your rope, tie a knot and hold on."  
-> — **Theodore Roosevelt**
+> "FOCUS - Follow One Course Until Successful"  
+> — **Robert Kiyosaki**
 
 ---
 
