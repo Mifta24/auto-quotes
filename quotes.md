@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing endures but change."  
-> — **Heraclitus**
+> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
+> — **Maxime Lagace**
 
 ---
 

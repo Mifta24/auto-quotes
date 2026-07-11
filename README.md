@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."  
-> — **Samuel Butler**
+> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
+> — **Maxime Lagace**
 
 ---
 
