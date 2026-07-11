@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why live an ordinary life, when you can live an extraordinary one."  
-> — **Tony Robbins**
+> "When you're at the end of your rope, tie a knot and hold on."  
+> — **Theodore Roosevelt**
 
 ---
 
