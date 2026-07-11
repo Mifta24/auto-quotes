@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
-> — **Ayn Rand**
+> "Show me a hero, and I'll write you a tragedy."  
+> — **F. Scott Fitzgerald**
 
 ---
 
-_Last updated: 10 July 2026 ⏳_
+_Last updated: 11 July 2026 ⏳_

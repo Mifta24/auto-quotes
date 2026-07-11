@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Whatever your heart clings to and confides in, that is really your God."  
-> — **Martin Luther**
+> "Show me a hero, and I'll write you a tragedy."  
+> — **F. Scott Fitzgerald**
 
 ---
 
-_Last updated: 10 July 2026 ⏳_
+_Last updated: 11 July 2026 ⏳_
