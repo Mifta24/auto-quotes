@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future doesn't belong to the faint-hearted; it belongs to the brave."  
-> — **Ronald Reagan**
+> "Be a master of change rather than a victim of change."  
+> — **Brian Tracy**
 
 ---
 
