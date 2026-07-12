@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
-> — **Ming-Dao Deng**
+> "The future doesn't belong to the faint-hearted; it belongs to the brave."  
+> — **Ronald Reagan**
 
 ---
 
