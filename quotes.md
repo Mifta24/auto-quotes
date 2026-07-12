@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future doesn't belong to the faint-hearted; it belongs to the brave."  
-> — **Ronald Reagan**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 
