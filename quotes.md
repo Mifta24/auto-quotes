@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
-> — **Ming-Dao Deng**
+> "The more you like yourself, the less you are like anyone else, which makes you unique."  
+> — **Walt Disney**
 
 ---
 
