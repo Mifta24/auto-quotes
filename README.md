@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absorb what is useful, discard what is not, add what is uniquely your own."  
-> — **Bruce Lee**
+> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
+> — **Ming-Dao Deng**
 
 ---
 

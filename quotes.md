@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
-> — **Norman Vincent Peale**
+> "Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned."  
+> — **Ming-Dao Deng**
 
 ---
 
