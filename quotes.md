@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being ignorant is not so much a shame, as being unwilling to learn."  
-> — **Benjamin Franklin**
+> "It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society."  
+> — **Jiddu Krishnamurti**
 
 ---
 
