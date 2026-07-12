@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you're at the end of your rope, tie a knot and hold on."  
-> — **Theodore Roosevelt**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 
-_Last updated: 11 July 2026 ⏳_
+_Last updated: 12 July 2026 ⏳_
