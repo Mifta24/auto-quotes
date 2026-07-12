@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Absorb what is useful, discard what is not, add what is uniquely your own."  
-> — **Bruce Lee**
+> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
+> — **Norman Vincent Peale**
 
 ---
 
