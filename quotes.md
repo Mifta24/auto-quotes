@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
-> — **Jeffrey Gitomer**
+> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
+> — **Amelia Earhart**
 
 ---
 
