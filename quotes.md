@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith is taking the first step even when you don't see the whole staircase."  
-> — **Martin Luther King, Jr.**
+> "There is a wisdom of the head, and there is a wisdom of the heart."  
+> — **Charles Dickens**
 
 ---
 
