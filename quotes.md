@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do every act of your life as if it were your last."  
-> — **Marcus Aurelius**
+> "Quiet people have the loudest minds."  
+> — **Stephen King**
 
 ---
 
