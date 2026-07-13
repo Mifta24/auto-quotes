@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."  
-> — **Lily Tomlin**
+> "Do every act of your life as if it were your last."  
+> — **Marcus Aurelius**
 
 ---
 

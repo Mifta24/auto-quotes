@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to lose all you have to find out who you truly are."  
-> — **Roy T. Bennett**
+> "Do every act of your life as if it were your last."  
+> — **Marcus Aurelius**
 
 ---
 
