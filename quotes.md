@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers."  
-> — **Amelia Earhart**
+> "Faith is taking the first step even when you don't see the whole staircase."  
+> — **Martin Luther King, Jr.**
 
 ---
 

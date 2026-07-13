@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
-> — **Jeffrey Gitomer**
+> "Faith is taking the first step even when you don't see the whole staircase."  
+> — **Martin Luther King, Jr.**
 
 ---
 
