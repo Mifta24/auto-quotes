@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just try to be the best you can be; never cease trying to be the best you can be. That's in your power."  
-> — **John Wooden**
+> "Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you."  
+> — **Jeffrey Gitomer**
 
 ---
 
