@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you have to lose all you have to find out who you truly are."  
-> — **Roy T. Bennett**
+> "If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."  
+> — **Lily Tomlin**
 
 ---
 
