@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hold yourself responsible for a higher standard than anybody else expects of you."  
-> — **Henry Ward Beecher**
+> "Just try to be the best you can be; never cease trying to be the best you can be. That's in your power."  
+> — **John Wooden**
 
 ---
 
