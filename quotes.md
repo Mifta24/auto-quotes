@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a wisdom of the head, and there is a wisdom of the heart."  
-> — **Charles Dickens**
+> "Sometimes you have to lose all you have to find out who you truly are."  
+> — **Roy T. Bennett**
 
 ---
 

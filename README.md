@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith is taking the first step even when you don't see the whole staircase."  
-> — **Martin Luther King, Jr.**
+> "Sometimes you have to lose all you have to find out who you truly are."  
+> — **Roy T. Bennett**
 
 ---
 
