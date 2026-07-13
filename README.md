@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be a master of change rather than a victim of change."  
-> — **Brian Tracy**
+> "Hold yourself responsible for a higher standard than anybody else expects of you."  
+> — **Henry Ward Beecher**
 
 ---
 
-_Last updated: 12 July 2026 ⏳_
+_Last updated: 13 July 2026 ⏳_
