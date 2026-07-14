@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Quiet people have the loudest minds."  
-> — **Stephen King**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 
-_Last updated: 13 July 2026 ⏳_
+_Last updated: 14 July 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do every act of your life as if it were your last."  
-> — **Marcus Aurelius**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 
-_Last updated: 13 July 2026 ⏳_
+_Last updated: 14 July 2026 ⏳_
