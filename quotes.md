@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great deeds are usually wrought at great risks."  
-> — **Herodotus**
+> "Do your duty and a little more and the future will take care of itself."  
+> — **Andrew Carnegie**
 
 ---
 
