@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do your duty and a little more and the future will take care of itself."  
-> — **Andrew Carnegie**
+> "Don't allow your mind to tell your heart what to do. The mind gives up easily."  
+> — **Paulo Coelho**
 
 ---
 
