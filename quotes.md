@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hero is an ordinary person doing things in an extra ordinary way."  
-> — **Christopher Reeve**
+> "We're kept from our goal not by obstacles, but by a clear path to a lesser goal."  
+> — **Bhagavad Gita**
 
 ---
 
