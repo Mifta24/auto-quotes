@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is one long process of getting tired."  
-> — **Samuel Butler**
+> "Your dream has to be bigger than your fear."  
+> — **Steve Harvey**
 
 ---
 
