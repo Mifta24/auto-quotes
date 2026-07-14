@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We're kept from our goal not by obstacles, but by a clear path to a lesser goal."  
-> — **Bhagavad Gita**
+> "Even if you're sure you can win, be careful that you can live with what you lose."  
+> — **Gary Keller**
 
 ---
 
