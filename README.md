@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is one long process of getting tired."  
-> — **Samuel Butler**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 

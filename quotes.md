@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your dream has to be bigger than your fear."  
-> — **Steve Harvey**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 
