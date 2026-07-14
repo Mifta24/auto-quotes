@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "A hero is an ordinary person doing things in an extra ordinary way."  
+> — **Christopher Reeve**
 
 ---
 
