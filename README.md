@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
-> — **Norman Vincent Peale**
+> "Happiness is when what you think, what you say, and what you do are in harmony."  
+> — **Mahatma Gandhi**
 
 ---
 

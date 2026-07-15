@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing more frightful than ignorance in action."  
-> — **Johann Wolfgang von Goethe**
+> "Happiness is when what you think, what you say, and what you do are in harmony."  
+> — **Mahatma Gandhi**
 
 ---
 
