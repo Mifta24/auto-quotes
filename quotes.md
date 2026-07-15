@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is richest who is content with the least, for content is the wealth of nature."  
-> — **Socrates**
+> "The only way round is through."  
+> — **Robert Frost**
 
 ---
 
