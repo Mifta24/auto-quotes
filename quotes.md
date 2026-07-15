@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way round is through."  
-> — **Robert Frost**
+> "A single thread doesn't make a cloth, a single tree doesn't make a forest."  
+> — **Tibetan Proverb**
 
 ---
 

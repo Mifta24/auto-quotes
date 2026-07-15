@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is richest who is content with the least, for content is the wealth of nature."  
-> — **Socrates**
+> "A single thread doesn't make a cloth, a single tree doesn't make a forest."  
+> — **Tibetan Proverb**
 
 ---
 
