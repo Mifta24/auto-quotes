@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A single thread doesn't make a cloth, a single tree doesn't make a forest."  
-> — **Tibetan Proverb**
+> "The soul is neither born, and nor does it die."  
+> — **Bhagavad Gita**
 
 ---
 
