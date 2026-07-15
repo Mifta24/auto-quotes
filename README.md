@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We're kept from our goal not by obstacles, but by a clear path to a lesser goal."  
-> — **Bhagavad Gita**
+> "When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 14 July 2026 ⏳_
+_Last updated: 15 July 2026 ⏳_
