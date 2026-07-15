@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is when what you think, what you say, and what you do are in harmony."  
-> — **Mahatma Gandhi**
+> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
+> — **Ryan Holiday**
 
 ---
 
