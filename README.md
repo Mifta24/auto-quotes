@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is when what you think, what you say, and what you do are in harmony."  
-> — **Mahatma Gandhi**
+> "He is richest who is content with the least, for content is the wealth of nature."  
+> — **Socrates**
 
 ---
 

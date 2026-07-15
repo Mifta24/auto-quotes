@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
-> — **Ryan Holiday**
+> "He is richest who is content with the least, for content is the wealth of nature."  
+> — **Socrates**
 
 ---
 
