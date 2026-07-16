@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
-> — **James Matthew Barrie**
+> "I am always doing what I cannot do yet, in order to learn how to do it."  
+> — **Vincent van Gogh**
 
 ---
 
