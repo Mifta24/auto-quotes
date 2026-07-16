@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Music is like creating an emotional painting. The sounds are the colors."  
-> — **Yanni**
+> "Fears are nothing more than a state of mind."  
+> — **Napoleon Hill**
 
 ---
 
