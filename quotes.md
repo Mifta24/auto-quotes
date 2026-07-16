@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fears are nothing more than a state of mind."  
-> — **Napoleon Hill**
+> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
+> — **Sathya Sai Baba**
 
 ---
 

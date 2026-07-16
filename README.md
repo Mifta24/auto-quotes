@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Music is like creating an emotional painting. The sounds are the colors."  
-> — **Yanni**
+> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
+> — **Sathya Sai Baba**
 
 ---
 
