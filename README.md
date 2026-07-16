@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
-> — **James Matthew Barrie**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 

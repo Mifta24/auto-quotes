@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am always doing what I cannot do yet, in order to learn how to do it."  
-> — **Vincent van Gogh**
+> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
+> — **Elbert Hubbard**
 
 ---
 
