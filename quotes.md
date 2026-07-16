@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man."  
-> — **Elbert Hubbard**
+> "Information changes your mind. Action changes your circumstances."  
+> — **Jack Butcher**
 
 ---
 
