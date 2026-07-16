@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The soul is neither born, and nor does it die."  
-> — **Bhagavad Gita**
+> "Those who bring sunshine into the lives of others cannot keep it from themselves."  
+> — **James Matthew Barrie**
 
 ---
 
-_Last updated: 15 July 2026 ⏳_
+_Last updated: 16 July 2026 ⏳_
