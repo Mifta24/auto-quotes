@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Information changes your mind. Action changes your circumstances."  
-> — **Jack Butcher**
+> "Music is like creating an emotional painting. The sounds are the colors."  
+> — **Yanni**
 
 ---
 
