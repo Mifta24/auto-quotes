@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "Don't risk what is important to you, to get what is not important to you."  
+> — **Warren Buffett**
 
 ---
 
