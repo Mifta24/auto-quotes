@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wisdom is doing now what you are going to be happy with later on."  
-> — **Joyce Meyer**
+> "Failure comes from ego, greed, envy, fear, and imitation."  
+> — **Warren Buffett**
 
 ---
 
