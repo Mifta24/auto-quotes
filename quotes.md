@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True knowledge exists in knowing that you know nothing."  
-> — **Socrates**
+> "Only when the tide goes out do you discover who's been swimming naked."  
+> — **Warren Buffett**
 
 ---
 
