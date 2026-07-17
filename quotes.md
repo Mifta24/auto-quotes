@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure comes from ego, greed, envy, fear, and imitation."  
-> — **Warren Buffett**
+> "True knowledge exists in knowing that you know nothing."  
+> — **Socrates**
 
 ---
 
