@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't risk what is important to you, to get what is not important to you."  
-> — **Warren Buffett**
+> "It is better to light a single candle than to curse the darkness."  
+> — **Eleanor Roosevelt**
 
 ---
 

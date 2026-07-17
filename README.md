@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "It is better to light a single candle than to curse the darkness."  
+> — **Eleanor Roosevelt**
 
 ---
 
