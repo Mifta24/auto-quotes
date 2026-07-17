@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when the tide goes out do you discover who's been swimming naked."  
-> — **Warren Buffett**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 

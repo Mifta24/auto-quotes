@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True knowledge exists in knowing that you know nothing."  
-> — **Socrates**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 
