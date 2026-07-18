@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is better to light a single candle than to curse the darkness."  
-> — **Eleanor Roosevelt**
+> "Who you are is defined by what you're willing to struggle for."  
+> — **Mark Manson**
 
 ---
 
-_Last updated: 17 July 2026 ⏳_
+_Last updated: 18 July 2026 ⏳_
