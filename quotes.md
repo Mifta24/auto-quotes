@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faithless is he that says farewell when the road darkens."  
-> — **J.R.R. Tolkien**
+> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
+> — **Vincent van Gogh**
 
 ---
 
