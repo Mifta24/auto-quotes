@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "Faithless is he that says farewell when the road darkens."  
+> — **J.R.R. Tolkien**
 
 ---
 

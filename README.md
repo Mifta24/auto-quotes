@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "Faithless is he that says farewell when the road darkens."  
+> — **J.R.R. Tolkien**
 
 ---
 
