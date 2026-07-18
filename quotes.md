@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Integrity is telling myself the truth. And honesty is telling the truth to other people."  
-> — **Spencer Johnson**
+> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
+> — **Mahatma Gandhi**
 
 ---
 
