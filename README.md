@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality means doing it right when no one is looking."  
-> — **Henry Ford**
+> "Integrity is telling myself the truth. And honesty is telling the truth to other people."  
+> — **Spencer Johnson**
 
 ---
 
