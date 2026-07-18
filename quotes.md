@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who dream by day are cognizant of many things which escape those who dream only by night."  
-> — **Vincent van Gogh**
+> "Quality means doing it right when no one is looking."  
+> — **Henry Ford**
 
 ---
 

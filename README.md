@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faithless is he that says farewell when the road darkens."  
-> — **J.R.R. Tolkien**
+> "Quality means doing it right when no one is looking."  
+> — **Henry Ford**
 
 ---
 
