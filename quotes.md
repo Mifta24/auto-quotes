@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Others can stop you temporarily - you are the only one who can do it permanently."  
-> — **Zig Ziglar**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 
