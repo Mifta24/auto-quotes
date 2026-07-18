@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is defined by what you're willing to struggle for."  
-> — **Mark Manson**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."  
-> — **Steve Jobs**
+> "Others can stop you temporarily - you are the only one who can do it permanently."  
+> — **Zig Ziglar**
 
 ---
 
