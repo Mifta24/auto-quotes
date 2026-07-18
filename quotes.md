@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who you are is defined by what you're willing to struggle for."  
-> — **Mark Manson**
+> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose."  
+> — **Steve Jobs**
 
 ---
 
