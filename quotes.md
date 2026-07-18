@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality means doing it right when no one is looking."  
-> — **Henry Ford**
+> "The man who moved the mountain was the one who began carrying away the smallest stones."  
+> — **Zen Proverb**
 
 ---
 
