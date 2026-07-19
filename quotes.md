@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Live as if you were to die tomorrow. Learn as if you were to live forever."  
-> — **Mahatma Gandhi**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 18 July 2026 ⏳_
+_Last updated: 19 July 2026 ⏳_

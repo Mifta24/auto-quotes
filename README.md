@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Integrity is telling myself the truth. And honesty is telling the truth to other people."  
-> — **Spencer Johnson**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 18 July 2026 ⏳_
+_Last updated: 19 July 2026 ⏳_
