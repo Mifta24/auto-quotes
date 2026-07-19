@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief enemy of creativity is good sense."  
-> — **Pablo Picasso**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 

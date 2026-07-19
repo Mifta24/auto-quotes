@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words used to attract the dull of wit are not to be relied on."  
-> — **Huang Po**
+> "Life is a question and how we live it is our answer."  
+> — **Gary Keller**
 
 ---
 
