@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we will be quiet and ready enough, we shall find compensation in every disappointment."  
-> — **Henry David Thoreau**
+> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
+> — **Andrew Carnegie**
 
 ---
 

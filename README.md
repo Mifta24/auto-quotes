@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We're responsible for everything that happens to us."  
-> — **Yanni**
+> "No man will make a great leader who wants to do it all himself or to get all the credit for doing it."  
+> — **Andrew Carnegie**
 
 ---
 
