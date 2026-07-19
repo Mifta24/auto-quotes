@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a question and how we live it is our answer."  
-> — **Gary Keller**
+> "We're responsible for everything that happens to us."  
+> — **Yanni**
 
 ---
 
