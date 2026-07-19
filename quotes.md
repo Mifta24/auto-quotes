@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to dance than to march through life."  
-> — **Yoko Ono**
+> "Boldness makes even the smallest animal dangerous."  
+> — **Robert Greene**
 
 ---
 
