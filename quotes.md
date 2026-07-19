@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We're responsible for everything that happens to us."  
-> — **Yanni**
+> "If we will be quiet and ready enough, we shall find compensation in every disappointment."  
+> — **Henry David Thoreau**
 
 ---
 
