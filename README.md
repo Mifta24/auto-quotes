@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine."  
-> — **Zen Proverb**
+> "The act of taking the first step is what separates the winners from the losers."  
+> — **Brian Tracy**
 
 ---
 

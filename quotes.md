@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forgive yourself for your faults and your mistakes and move on."  
-> — **Les Brown**
+> "The act of taking the first step is what separates the winners from the losers."  
+> — **Brian Tracy**
 
 ---
 
