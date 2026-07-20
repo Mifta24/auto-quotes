@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is but a product of his thoughts. What he thinks he becomes."  
-> — **Mahatma Gandhi**
+> "We don't stop going to school when we graduate."  
+> — **Carol Burnett**
 
 ---
 
