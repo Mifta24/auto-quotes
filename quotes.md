@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop acting so small. You are the universe in ecstatic motion."  
-> — **Rumi**
+> "You may think I'm small, but I have a universe inside my mind."  
+> — **Yoko Ono**
 
 ---
 

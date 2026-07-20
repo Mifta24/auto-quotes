@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The act of taking the first step is what separates the winners from the losers."  
-> — **Brian Tracy**
+> "You may think I'm small, but I have a universe inside my mind."  
+> — **Yoko Ono**
 
 ---
 
