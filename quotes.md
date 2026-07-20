@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When one door closes another door opens."  
-> — **Alexander Graham Bell**
+> "A person hears only what they understand."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

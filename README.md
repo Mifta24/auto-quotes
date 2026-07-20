@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may think I'm small, but I have a universe inside my mind."  
-> — **Yoko Ono**
+> "A person hears only what they understand."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
