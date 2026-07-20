@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need to be better than anyone else, you just need to be better than you used to be."  
-> — **Wayne Dyer**
+> "A man is but a product of his thoughts. What he thinks he becomes."  
+> — **Mahatma Gandhi**
 
 ---
 

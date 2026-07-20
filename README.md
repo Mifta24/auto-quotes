@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A person hears only what they understand."  
-> — **Johann Wolfgang von Goethe**
+> "A man is but a product of his thoughts. What he thinks he becomes."  
+> — **Mahatma Gandhi**
 
 ---
 
