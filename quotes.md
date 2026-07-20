@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The act of taking the first step is what separates the winners from the losers."  
-> — **Brian Tracy**
+> "Stop acting so small. You are the universe in ecstatic motion."  
+> — **Rumi**
 
 ---
 
