@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You may think I'm small, but I have a universe inside my mind."  
-> — **Yoko Ono**
+> "When one door closes another door opens."  
+> — **Alexander Graham Bell**
 
 ---
 
