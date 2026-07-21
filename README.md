@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If fear is too strong, the genius is suppressed."  
-> — **Robert Kiyosaki**
+> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
+> — **Lolly Daskal**
 
 ---
 
