@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
-> — **Aristotle**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 

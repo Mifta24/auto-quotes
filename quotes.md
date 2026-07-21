@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never settle for the crumbs of life."  
-> — **Og Mandino**
+> "If fear is too strong, the genius is suppressed."  
+> — **Robert Kiyosaki**
 
 ---
 
