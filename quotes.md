@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
+> — **Voltaire**
 
 ---
 
