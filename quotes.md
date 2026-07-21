@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The longer we dwell on our misfortunes, the greater is their power to harm us."  
-> — **Voltaire**
+> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
+> — **Aristotle**
 
 ---
 

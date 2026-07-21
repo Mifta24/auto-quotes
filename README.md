@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence is very important. You should not give up unless you are forced to give up."  
-> — **Elon Musk**
+> "Wishing to be friends is quick work, but friendship is a slow ripening fruit."  
+> — **Aristotle**
 
 ---
 
