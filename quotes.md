@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We don't stop going to school when we graduate."  
-> — **Carol Burnett**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
-_Last updated: 20 July 2026 ⏳_
+_Last updated: 21 July 2026 ⏳_

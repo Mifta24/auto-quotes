@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A man is but a product of his thoughts. What he thinks he becomes."  
-> — **Mahatma Gandhi**
+> "Persistence is very important. You should not give up unless you are forced to give up."  
+> — **Elon Musk**
 
 ---
 
-_Last updated: 20 July 2026 ⏳_
+_Last updated: 21 July 2026 ⏳_
