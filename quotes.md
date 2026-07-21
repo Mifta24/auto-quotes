@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little."  
-> — **Criss Jami**
+> "The only limits in our life are those we impose on ourselves."  
+> — **Bob Proctor**
 
 ---
 
