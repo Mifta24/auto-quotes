@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Becoming a great leader doesn't mean being perfect. it means living with your imperfections."  
-> — **Lolly Daskal**
+> "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little."  
+> — **Criss Jami**
 
 ---
 
