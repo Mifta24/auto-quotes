@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whether you think you can or think you can't – you are right."  
-> — **Henry Ford**
+> "Take into account that great love and great achievements involve great risk."  
+> — **Dalai Lama**
 
 ---
 

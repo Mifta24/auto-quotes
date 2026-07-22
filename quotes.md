@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Conflict cannot survive without your participation."  
-> — **Wayne Dyer**
+> "Take into account that great love and great achievements involve great risk."  
+> — **Dalai Lama**
 
 ---
 
