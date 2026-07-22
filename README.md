@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take into account that great love and great achievements involve great risk."  
-> — **Dalai Lama**
+> "Sometimes it is more important to discover what one cannot do, than what one can do."  
+> — **Lin Yutang**
 
 ---
 

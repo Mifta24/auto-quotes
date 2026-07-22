@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Laziness may appear attractive, but work gives satisfaction."  
-> — **Anne Frank**
+> "Sometimes it is more important to discover what one cannot do, than what one can do."  
+> — **Lin Yutang**
 
 ---
 
