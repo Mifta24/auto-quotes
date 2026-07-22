@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Progress is limited by your ability to change your mind."  
-> — **Jack Butcher**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
