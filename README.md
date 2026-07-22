@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 

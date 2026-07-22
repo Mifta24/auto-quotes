@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
-> — **Eckhart Tolle**
+> "Progress is limited by your ability to change your mind."  
+> — **Jack Butcher**
 
 ---
 
