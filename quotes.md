@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whether you think you can or think you can't – you are right."  
-> — **Henry Ford**
+> "Conflict cannot survive without your participation."  
+> — **Wayne Dyer**
 
 ---
 
