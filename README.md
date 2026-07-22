@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is more important to discover what one cannot do, than what one can do."  
-> — **Lin Yutang**
+> "If you think you can do a thing or think you can't do a thing, you're right."  
+> — **Henry Ford**
 
 ---
 
