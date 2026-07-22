@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you think you can do a thing or think you can't do a thing, you're right."  
-> — **Henry Ford**
+> "You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level."  
+> — **Eckhart Tolle**
 
 ---
 
