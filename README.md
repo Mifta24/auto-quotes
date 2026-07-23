@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "Life is like playing the violin in public and learning the instrument as one goes on."  
+> — **Samuel Butler**
 
 ---
 

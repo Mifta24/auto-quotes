@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Understanding that rests in what it does not understand is the finest."  
-> — **Zhuangzi**
+> "Life is like playing the violin in public and learning the instrument as one goes on."  
+> — **Samuel Butler**
 
 ---
 
