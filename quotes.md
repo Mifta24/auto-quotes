@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Inspire yourself to be great. Being good isn't good enough."  
-> — **Gurbaksh Chahal**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 

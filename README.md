@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no sadder sight than a young pessimist."  
-> — **Mark Twain**
+> "There are no shortcuts to any place worth going."  
+> — **Beverly Sills**
 
 ---
 
