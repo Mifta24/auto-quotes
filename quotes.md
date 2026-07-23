@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like playing the violin in public and learning the instrument as one goes on."  
-> — **Samuel Butler**
+> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."  
+> — **Bhagavad Gita**
 
 ---
 
