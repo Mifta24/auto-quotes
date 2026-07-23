@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You came empty handed, and you will leave empty handed."  
-> — **Bhagavad Gita**
+> "If you want to make God laugh, tell him about your plans."  
+> — **Woody Allen**
 
 ---
 
