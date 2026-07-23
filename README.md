@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like playing the violin in public and learning the instrument as one goes on."  
-> — **Samuel Butler**
+> "You came empty handed, and you will leave empty handed."  
+> — **Bhagavad Gita**
 
 ---
 
