@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no sadder sight than a young pessimist."  
-> — **Mark Twain**
+> "Inspire yourself to be great. Being good isn't good enough."  
+> — **Gurbaksh Chahal**
 
 ---
 
