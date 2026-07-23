@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If we all did the things we are capable of doing, we would literally astound ourselves."  
-> — **Thomas Edison**
+> "First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work."  
+> — **Estee Lauder**
 
 ---
 
