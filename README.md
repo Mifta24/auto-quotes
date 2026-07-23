@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Progress is limited by your ability to change your mind."  
-> — **Jack Butcher**
+> "There is no sadder sight than a young pessimist."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 22 July 2026 ⏳_
+_Last updated: 23 July 2026 ⏳_
