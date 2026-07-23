@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You came empty handed, and you will leave empty handed."  
-> — **Bhagavad Gita**
+> "If we all did the things we are capable of doing, we would literally astound ourselves."  
+> — **Thomas Edison**
 
 ---
 

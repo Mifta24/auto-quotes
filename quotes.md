@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to make God laugh, tell him about your plans."  
-> — **Woody Allen**
+> "If we all did the things we are capable of doing, we would literally astound ourselves."  
+> — **Thomas Edison**
 
 ---
 
