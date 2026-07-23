@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no shortcuts to any place worth going."  
-> — **Beverly Sills**
+> "Understanding that rests in what it does not understand is the finest."  
+> — **Zhuangzi**
 
 ---
 
