@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest miracle is to be alive."  
-> — **Thich Nhat Hanh**
+> "Courage Is a Love Affair with the Unknown"  
+> — **Osho**
 
 ---
 

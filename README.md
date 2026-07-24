@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "Courage Is a Love Affair with the Unknown"  
+> — **Osho**
 
 ---
 
