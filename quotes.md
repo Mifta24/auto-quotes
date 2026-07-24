@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "Stop comparing yourself to others and focus on your own improvement."  
+> — **Lolly Daskal**
 
 ---
 
