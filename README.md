@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we all did the things we are capable of doing, we would literally astound ourselves."  
-> — **Thomas Edison**
+> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 23 July 2026 ⏳_
+_Last updated: 24 July 2026 ⏳_

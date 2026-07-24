@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work."  
-> — **Estee Lauder**
+> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 23 July 2026 ⏳_
+_Last updated: 24 July 2026 ⏳_
