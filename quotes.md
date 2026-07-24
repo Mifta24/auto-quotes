@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power."  
-> — **Tony Robbins**
+> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well."  
+> — **Jack London**
 
 ---
 
