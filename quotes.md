@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop comparing yourself to others and focus on your own improvement."  
-> — **Lolly Daskal**
+> "The greatest miracle is to be alive."  
+> — **Thich Nhat Hanh**
 
 ---
 
