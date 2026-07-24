@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The purpose of life is to contribute in some way to making things better."  
-> — **Robert F. Kennedy**
+> "Friends ask you questions; enemies question you."  
+> — **Criss Jami**
 
 ---
 
