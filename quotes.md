@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ask no questions, and you'll be told no lies."  
-> — **Charles Dickens**
+> "Try to be a rainbow in someone's cloud."  
+> — **Maya Angelou**
 
 ---
 
