@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Ask no questions, and you'll be told no lies."  
-> — **Charles Dickens**
+> "The purpose of life is to contribute in some way to making things better."  
+> — **Robert F. Kennedy**
 
 ---
 
