@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unlike the stomach, the brain doesn't alert you when it's empty."  
-> — **Arabic Proverb**
+> "There is no way to happiness - happiness is the way."  
+> — **Thich Nhat Hanh**
 
 ---
 
