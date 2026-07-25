@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience is the sure sign of a bad memory."  
-> — **Mark Twain**
+> "Let each man exercise the art he knows."  
+> — **Aristophanes**
 
 ---
 
