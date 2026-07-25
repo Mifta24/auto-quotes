@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way to 'find out if it will work out' is to do it."  
-> — **Simon Sinek**
+> "Before anything else, preparation is the key to success."  
+> — **Alexander Graham Bell**
 
 ---
 
