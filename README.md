@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let each man exercise the art he knows."  
-> — **Aristophanes**
+> "Learning never exhausts the mind."  
+> — **Leonardo da Vinci**
 
 ---
 

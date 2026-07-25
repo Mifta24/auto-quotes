@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simplicity is the glory of expression."  
-> — **Walt Whitman**
+> "Learning never exhausts the mind."  
+> — **Leonardo da Vinci**
 
 ---
 
