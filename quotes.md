@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be patient and calm; no one can catch fish in anger."  
-> — **Herbert Hoover**
+> "The only way to 'find out if it will work out' is to do it."  
+> — **Simon Sinek**
 
 ---
 

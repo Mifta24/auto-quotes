@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning never exhausts the mind."  
-> — **Leonardo da Vinci**
+> "The only way to 'find out if it will work out' is to do it."  
+> — **Simon Sinek**
 
 ---
 
