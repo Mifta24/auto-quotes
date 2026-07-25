@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience is the sure sign of a bad memory."  
-> — **Mark Twain**
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
+> — **James Cameron**
 
 ---
 
