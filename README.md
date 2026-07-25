@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only way to 'find out if it will work out' is to do it."  
-> — **Simon Sinek**
+> "Unlike the stomach, the brain doesn't alert you when it's empty."  
+> — **Arabic Proverb**
 
 ---
 

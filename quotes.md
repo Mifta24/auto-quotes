@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before anything else, preparation is the key to success."  
-> — **Alexander Graham Bell**
+> "Unlike the stomach, the brain doesn't alert you when it's empty."  
+> — **Arabic Proverb**
 
 ---
 
