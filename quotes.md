@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let each man exercise the art he knows."  
-> — **Aristophanes**
+> "Simplicity is the glory of expression."  
+> — **Walt Whitman**
 
 ---
 
