@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Learning never exhausts the mind."  
-> — **Leonardo da Vinci**
+> "Be patient and calm; no one can catch fish in anger."  
+> — **Herbert Hoover**
 
 ---
 
