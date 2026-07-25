@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There are three classes of people: those who see. Those who see when they are shown. Those who do not see."  
-> — **Leonardo da Vinci**
+> "A clear conscience is the sure sign of a bad memory."  
+> — **Mark Twain**
 
 ---
 
-_Last updated: 24 July 2026 ⏳_
+_Last updated: 25 July 2026 ⏳_
