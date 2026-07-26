@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't look back - you're not going that way."  
-> — **Mary Engelbreit**
+> "Failure is a prerequisite for great success. If you want success faster, double your rate of failure."  
+> — **Brian Tracy**
 
 ---
 
