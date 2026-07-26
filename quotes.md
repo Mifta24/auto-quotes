@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
+> — **Lao Tzu**
 
 ---
 
