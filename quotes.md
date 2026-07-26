@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you look for perfection, you'll never be content."  
-> — **Leo Tolstoy**
+> "Far more crucial than what we know or do not know is what we do not want to know."  
+> — **Eric Hoffer**
 
 ---
 
