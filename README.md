@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No kind action ever stops with itself. One kind action leads to another. Good example is followed."  
-> — **Amelia Earhart**
+> "If you look for perfection, you'll never be content."  
+> — **Leo Tolstoy**
 
 ---
 

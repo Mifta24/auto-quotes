@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is possible. The impossible just takes longer."  
-> — **Dan Brown**
+> "If you look for perfection, you'll never be content."  
+> — **Leo Tolstoy**
 
 ---
 
