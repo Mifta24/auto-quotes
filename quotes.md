@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "Courage is the price that life exacts for granting peace."  
+> — **Amelia Earhart**
 
 ---
 
