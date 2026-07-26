@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Manifest plainness, embrace simplicity, reduce selfishness, have few desires."  
-> — **Lao Tzu**
+> "Don't look back - you're not going that way."  
+> — **Mary Engelbreit**
 
 ---
 

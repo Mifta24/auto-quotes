@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world is changed by your example, not by your opinion."  
-> — **Paulo Coelho**
+> "Don't look back - you're not going that way."  
+> — **Mary Engelbreit**
 
 ---
 
