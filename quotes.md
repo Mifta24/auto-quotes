@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No kind action ever stops with itself. One kind action leads to another. Good example is followed."  
-> — **Amelia Earhart**
+> "Everything is possible. The impossible just takes longer."  
+> — **Dan Brown**
 
 ---
 
