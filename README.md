@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you look for perfection, you'll never be content."  
-> — **Leo Tolstoy**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 

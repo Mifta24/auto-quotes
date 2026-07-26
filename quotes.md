@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Far more crucial than what we know or do not know is what we do not want to know."  
-> — **Eric Hoffer**
+> "The world is changed by your example, not by your opinion."  
+> — **Paulo Coelho**
 
 ---
 
