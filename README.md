@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't look back - you're not going that way."  
-> — **Mary Engelbreit**
+> "Simple words, repeated daily, can change your life."  
+> — **Maxime Lagace**
 
 ---
 
