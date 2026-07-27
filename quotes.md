@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are for dreamers. Goals are for achievers."  
-> — **Arnold Schwarzenegger**
+> "Don't let anyone define you. You define yourself."  
+> — **Billie Jean King**
 
 ---
 
