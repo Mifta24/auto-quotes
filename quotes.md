@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Loyalty and friendship are the most precious possessions a man can have."  
-> — **Herbert Hoover**
+> "What would you do if you weren't afraid?"  
+> — **Spencer Johnson**
 
 ---
 
