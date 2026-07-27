@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness depends on your mindset and attitude."  
-> — **Roy T. Bennett**
+> "A hero is an ordinary person doing things in an extra ordinary way."  
+> — **Christopher Reeve**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "A hero is an ordinary person doing things in an extra ordinary way."  
+> — **Christopher Reeve**
 
 ---
 
