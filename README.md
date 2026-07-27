@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Simple words, repeated daily, can change your life."  
-> — **Maxime Lagace**
+> "Everything begins with an idea."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 26 July 2026 ⏳_
+_Last updated: 27 July 2026 ⏳_

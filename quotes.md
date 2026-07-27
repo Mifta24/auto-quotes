@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Courage is the price that life exacts for granting peace."  
-> — **Amelia Earhart**
+> "Everything begins with an idea."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 26 July 2026 ⏳_
+_Last updated: 27 July 2026 ⏳_
