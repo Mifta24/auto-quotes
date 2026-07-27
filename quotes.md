@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything begins with an idea."  
-> — **Earl Nightingale**
+> "Happiness depends on your mindset and attitude."  
+> — **Roy T. Bennett**
 
 ---
 
