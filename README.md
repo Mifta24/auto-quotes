@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Dreams are for dreamers. Goals are for achievers."  
-> — **Arnold Schwarzenegger**
+> "If you put water into a cup, it becomes the cup."  
+> — **Bruce Lee**
 
 ---
 

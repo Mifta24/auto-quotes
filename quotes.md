@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let anyone define you. You define yourself."  
-> — **Billie Jean King**
+> "If you put water into a cup, it becomes the cup."  
+> — **Bruce Lee**
 
 ---
 
