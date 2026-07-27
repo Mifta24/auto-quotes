@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you put water into a cup, it becomes the cup."  
-> — **Bruce Lee**
+> "Loyalty and friendship are the most precious possessions a man can have."  
+> — **Herbert Hoover**
 
 ---
 
