@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future will be shaped by those willing to commit their minds and their bodies to the task."  
-> — **Robert F. Kennedy**
+> "Dreams are for dreamers. Goals are for achievers."  
+> — **Arnold Schwarzenegger**
 
 ---
 

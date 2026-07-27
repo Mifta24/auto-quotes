@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hero is an ordinary person doing things in an extra ordinary way."  
-> — **Christopher Reeve**
+> "Dreams are for dreamers. Goals are for achievers."  
+> — **Arnold Schwarzenegger**
 
 ---
 
