@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A hero is an ordinary person doing things in an extra ordinary way."  
-> — **Christopher Reeve**
+> "The future will be shaped by those willing to commit their minds and their bodies to the task."  
+> — **Robert F. Kennedy**
 
 ---
 
