@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe you can and you're halfway there."  
-> — **Theodore Roosevelt**
+> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
+> — **Pema Chodron**
 
 ---
 
