@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Avoiding failure is to avoid progress."  
-> — **Unknown**
+> "Believe you can and you're halfway there."  
+> — **Theodore Roosevelt**
 
 ---
 
