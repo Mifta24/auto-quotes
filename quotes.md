@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Memory is the scribe of the soul."  
-> — **Aristotle**
+> "Better late than never."  
+> — **Spencer Johnson**
 
 ---
 
