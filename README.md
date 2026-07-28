@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What would you do if you weren't afraid?"  
-> — **Spencer Johnson**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 27 July 2026 ⏳_
+_Last updated: 28 July 2026 ⏳_

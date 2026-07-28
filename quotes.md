@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The problem happens when we have multiple desires. When we have fuzzy desires. When we want to do ten different things and we're not clear about which is the one we care about."  
-> — **Naval Ravikant**
+> "Memory is the scribe of the soul."  
+> — **Aristotle**
 
 ---
 
-_Last updated: 27 July 2026 ⏳_
+_Last updated: 28 July 2026 ⏳_
