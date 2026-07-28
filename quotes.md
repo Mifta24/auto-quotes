@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
-> — **Pema Chodron**
+> "The more you praise and celebrate your life, the more there is in life to celebrate."  
+> — **Oprah Winfrey**
 
 ---
 
