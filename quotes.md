@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One small positive thought can change your whole day."  
-> — **Zig Ziglar**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 
