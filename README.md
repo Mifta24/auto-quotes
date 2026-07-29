@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
-> — **Pema Chodron**
+> "Your heart is full of fertile seeds, waiting to sprout."  
+> — **Morihei Ueshiba**
 
 ---
 
-_Last updated: 28 July 2026 ⏳_
+_Last updated: 29 July 2026 ⏳_
