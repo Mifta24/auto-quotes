@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We shape clay into a pot, but it is the emptiness inside that holds whatever we want."  
-> — **Lao Tzu**
+> "The power of human thought grows exponentially with the number of minds that share that thought."  
+> — **Dan Brown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
-> — **Naval Ravikant**
+> "The power of human thought grows exponentially with the number of minds that share that thought."  
+> — **Dan Brown**
 
 ---
 
