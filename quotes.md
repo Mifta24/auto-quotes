@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your heart is full of fertile seeds, waiting to sprout."  
-> — **Morihei Ueshiba**
+> "Make your stand today. On this spot. On this day."  
+> — **Ming-Dao Deng**
 
 ---
 
