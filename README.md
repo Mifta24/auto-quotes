@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power of human thought grows exponentially with the number of minds that share that thought."  
-> — **Dan Brown**
+> "Management is doing things right; leadership is doing the right things."  
+> — **Peter Drucker**
 
 ---
 
