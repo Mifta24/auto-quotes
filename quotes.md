@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
-> — **Kabir**
+> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
+> — **Naval Ravikant**
 
 ---
 

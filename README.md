@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
-> — **Og Mandino**
+> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
+> — **Naval Ravikant**
 
 ---
 
