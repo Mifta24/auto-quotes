@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make your stand today. On this spot. On this day."  
-> — **Ming-Dao Deng**
+> "Nothing is easier than fault finding."  
+> — **Og Mandino**
 
 ---
 
