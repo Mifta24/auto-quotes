@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice."  
-> — **Naval Ravikant**
+> "We shape clay into a pot, but it is the emptiness inside that holds whatever we want."  
+> — **Lao Tzu**
 
 ---
 
