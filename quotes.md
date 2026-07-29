@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power of human thought grows exponentially with the number of minds that share that thought."  
-> — **Dan Brown**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
