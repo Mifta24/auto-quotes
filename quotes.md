@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
-> — **James Allen**
+> "True wealth is of the heart, not of the purse."  
+> — **Og Mandino**
 
 ---
 

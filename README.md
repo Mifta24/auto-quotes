@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The strongest and sweetest songs yet remain to be sung."  
-> — **Walt Whitman**
+> "True wealth is of the heart, not of the purse."  
+> — **Og Mandino**
 
 ---
 
