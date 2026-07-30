@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your dreams, you never know when you might need them."  
-> — **Carlos Ruiz Zafon**
+> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
+> — **Laurence J. Peter**
 
 ---
 
