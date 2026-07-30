@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
-> — **Thich Nhat Hanh**
+> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."  
+> — **Sydney Smith**
 
 ---
 
