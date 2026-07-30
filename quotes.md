@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True wealth is of the heart, not of the purse."  
-> — **Og Mandino**
+> "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable."  
+> — **Denis Waitley**
 
 ---
 
