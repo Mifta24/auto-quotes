@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable."  
-> — **Denis Waitley**
+> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
+> — **Thich Nhat Hanh**
 
 ---
 

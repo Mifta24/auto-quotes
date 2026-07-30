@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "True wealth is of the heart, not of the purse."  
-> — **Og Mandino**
+> "Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy."  
+> — **Thich Nhat Hanh**
 
 ---
 
