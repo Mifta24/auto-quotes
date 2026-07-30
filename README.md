@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Management is doing things right; leadership is doing the right things."  
-> — **Peter Drucker**
+> "The strongest and sweetest songs yet remain to be sung."  
+> — **Walt Whitman**
 
 ---
 
-_Last updated: 29 July 2026 ⏳_
+_Last updated: 30 July 2026 ⏳_
