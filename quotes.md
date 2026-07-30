@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Age is a very high price to pay for maturity."  
-> — **William James**
+> "Keep your dreams, you never know when you might need them."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

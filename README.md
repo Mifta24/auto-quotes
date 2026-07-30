@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Follow your heart, listen to your inner voice, stop caring about what others think."  
-> — **Roy T. Bennett**
+> "Keep your dreams, you never know when you might need them."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
