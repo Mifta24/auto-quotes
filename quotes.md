@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The strongest and sweetest songs yet remain to be sung."  
-> — **Walt Whitman**
+> "The outer conditions of a person's life will always be found to reflect their inner beliefs."  
+> — **James Allen**
 
 ---
 
