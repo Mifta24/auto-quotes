@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 
