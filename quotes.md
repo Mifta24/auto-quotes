@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise."  
-> — **Buddha**
+> "If you have to be in a soap opera try not to be cast in the worst role."  
+> — **Judy Garland**
 
 ---
 
