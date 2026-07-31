@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The cost of leadership is self-interest."  
-> — **Simon Sinek**
+> "Perseverance and spirit have done wonders in all ages."  
+> — **George Washington**
 
 ---
 
