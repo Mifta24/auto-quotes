@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Closing your eyes and listening to silence is self-care."  
-> — **Maxime Lagace**
+> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."  
+> — **Confucius**
 
 ---
 
