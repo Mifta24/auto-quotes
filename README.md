@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Keep your dreams, you never know when you might need them."  
-> — **Carlos Ruiz Zafon**
+> "The cost of leadership is self-interest."  
+> — **Simon Sinek**
 
 ---
 
-_Last updated: 30 July 2026 ⏳_
+_Last updated: 31 July 2026 ⏳_

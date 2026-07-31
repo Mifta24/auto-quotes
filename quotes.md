@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Speak when you are angry - and you'll make the best speech you'll ever regret."  
-> — **Laurence J. Peter**
+> "The cost of leadership is self-interest."  
+> — **Simon Sinek**
 
 ---
 
-_Last updated: 30 July 2026 ⏳_
+_Last updated: 31 July 2026 ⏳_
