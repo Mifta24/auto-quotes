@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages."  
-> — **George Washington**
+> "The older you get the stronger the wind gets - and it's always in your face."  
+> — **Pablo Picasso**
 
 ---
 

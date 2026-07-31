@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The cost of leadership is self-interest."  
-> — **Simon Sinek**
+> "The older you get the stronger the wind gets - and it's always in your face."  
+> — **Pablo Picasso**
 
 ---
 
