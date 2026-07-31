@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get the stronger the wind gets - and it's always in your face."  
-> — **Pablo Picasso**
+> "Do not take life too seriously. You will never get out of it alive."  
+> — **Elbert Hubbard**
 
 ---
 
