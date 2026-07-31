@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not take life too seriously. You will never get out of it alive."  
-> — **Elbert Hubbard**
+> "A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise."  
+> — **Buddha**
 
 ---
 

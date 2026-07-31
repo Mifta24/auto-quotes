@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get the stronger the wind gets - and it's always in your face."  
-> — **Pablo Picasso**
+> "A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise."  
+> — **Buddha**
 
 ---
 
