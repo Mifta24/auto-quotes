@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."  
-> — **Confucius**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 

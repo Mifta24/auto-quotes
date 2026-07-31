@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Closing your eyes and listening to silence is self-care."  
-> — **Maxime Lagace**
+> "If you need inspiration, don't do it."  
+> — **Elon Musk**
 
 ---
 
