@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."  
-> — **Roy T. Bennett**
+> "Quality is not an act, it is a habit."  
+> — **Colin R. Davis**
 
 ---
 

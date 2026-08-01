@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better."  
-> — **Elon Musk**
+> "Quality is not an act, it is a habit."  
+> — **Colin R. Davis**
 
 ---
 
