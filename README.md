@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you need inspiration, don't do it."  
-> — **Elon Musk**
+> "If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."  
+> — **Martin Luther King, Jr.**
 
 ---
 
-_Last updated: 31 July 2026 ⏳_
+_Last updated: 01 August 2026 ⏳_
