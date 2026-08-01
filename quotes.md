@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is not an act, it is a habit."  
-> — **Colin R. Davis**
+> "If you always do what you've always done, you'll always get what you've always got."  
+> — **Henry Ford**
 
 ---
 
