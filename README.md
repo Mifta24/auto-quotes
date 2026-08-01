@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is not an act, it is a habit."  
-> — **Colin R. Davis**
+> "Do not save what is left after spending, but spend what is left after saving."  
+> — **Warren Buffett**
 
 ---
 

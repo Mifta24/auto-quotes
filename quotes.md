@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you always do what you've always done, you'll always get what you've always got."  
-> — **Henry Ford**
+> "Do not save what is left after spending, but spend what is left after saving."  
+> — **Warren Buffett**
 
 ---
 
