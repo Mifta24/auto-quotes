@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret to happiness is having low expectations."  
-> — **Warren Buffett**
+> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."  
+> — **Roy T. Bennett**
 
 ---
 

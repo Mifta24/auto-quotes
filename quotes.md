@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is our experiences that mold us into who we are...during times of adversity our true character will show."  
-> — **Unknown**
+> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life."  
+> — **Roy T. Bennett**
 
 ---
 
