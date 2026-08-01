@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
-> — **Elvis Presley**
+> "The secret to happiness is having low expectations."  
+> — **Warren Buffett**
 
 ---
 
