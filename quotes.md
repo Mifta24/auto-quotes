@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret to happiness is having low expectations."  
-> — **Warren Buffett**
+> "It is our experiences that mold us into who we are...during times of adversity our true character will show."  
+> — **Unknown**
 
 ---
 
