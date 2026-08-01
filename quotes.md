@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not save what is left after spending, but spend what is left after saving."  
-> — **Warren Buffett**
+> "A single dream is more powerful than a thousand realities."  
+> — **J.R.R. Tolkien**
 
 ---
 
