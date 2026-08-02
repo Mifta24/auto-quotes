@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winners don't Quit. That's why they Win."  
-> — **Unknown**
+> "The more you lose yourself in something bigger than yourself, the more energy you will have."  
+> — **Norman Vincent Peale**
 
 ---
 
