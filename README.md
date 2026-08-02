@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not save what is left after spending, but spend what is left after saving."  
-> — **Warren Buffett**
+> "A man sees in the world what he carries in his heart."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
-_Last updated: 01 August 2026 ⏳_
+_Last updated: 02 August 2026 ⏳_
