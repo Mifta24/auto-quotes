@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "Life is much more successfully looked at from a single window."  
+> — **F. Scott Fitzgerald**
 
 ---
 
