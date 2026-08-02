@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you run you stand a chance of losing, but if you don't run you've already lost."  
-> — **Barack Obama**
+> "Throw your heart over the bar and your body will follow."  
+> — **Norman Vincent Peale**
 
 ---
 
