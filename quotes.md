@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
-> — **Rumi**
+> "When it hurts - observe. Life is trying to teach you something."  
+> — **Anita Krizzan**
 
 ---
 
