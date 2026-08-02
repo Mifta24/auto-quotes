@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you run you stand a chance of losing, but if you don't run you've already lost."  
-> — **Barack Obama**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 

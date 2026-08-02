@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the bar and your body will follow."  
-> — **Norman Vincent Peale**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 
