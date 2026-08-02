@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it hurts - observe. Life is trying to teach you something."  
-> — **Anita Krizzan**
+> "Winners don't Quit. That's why they Win."  
+> — **Unknown**
 
 ---
 
