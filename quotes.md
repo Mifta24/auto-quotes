@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is much more successfully looked at from a single window."  
-> — **F. Scott Fitzgerald**
+> "If you run you stand a chance of losing, but if you don't run you've already lost."  
+> — **Barack Obama**
 
 ---
 

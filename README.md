@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "If you run you stand a chance of losing, but if you don't run you've already lost."  
+> — **Barack Obama**
 
 ---
 
