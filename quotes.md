@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "If you done it, it ain't bragging."  
+> — **Walt Whitman**
 
 ---
 
