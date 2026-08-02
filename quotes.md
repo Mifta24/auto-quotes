@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you done it, it ain't bragging."  
-> — **Walt Whitman**
+> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
+> — **Rumi**
 
 ---
 

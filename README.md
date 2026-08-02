@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "It's your road, and yours alone, others may walk it with you, but no one can walk it for you."  
+> — **Rumi**
 
 ---
 
