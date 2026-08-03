@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He suffers more than necessary, who suffers before it is necessary."  
-> — **Seneca**
+> "Every drop in the ocean counts."  
+> — **Yoko Ono**
 
 ---
 
