@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose."  
-> — **Ming-Dao Deng**
+> "He suffers more than necessary, who suffers before it is necessary."  
+> — **Seneca**
 
 ---
 

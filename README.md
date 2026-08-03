@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be deeply aware of the impermanence of the world."  
-> — **Dogen**
+> "He suffers more than necessary, who suffers before it is necessary."  
+> — **Seneca**
 
 ---
 
