@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to fail in originality than to succeed in imitation."  
-> — **Herman Melville**
+> "The key to success is failure."  
+> — **Michael Jordan**
 
 ---
 
