@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He suffers more than necessary, who suffers before it is necessary."  
-> — **Seneca**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
