@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Deeds will not be less valiant because they are upraised."  
-> — **J.R.R. Tolkien**
+> "Vision is the art of seeing things invisible."  
+> — **Jonathan Swift**
 
 ---
 
