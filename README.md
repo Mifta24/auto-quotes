@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Winners don't Quit. That's why they Win."  
-> — **Unknown**
+> "It is better to fail in originality than to succeed in imitation."  
+> — **Herman Melville**
 
 ---
 
-_Last updated: 02 August 2026 ⏳_
+_Last updated: 03 August 2026 ⏳_
