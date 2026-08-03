@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One must be deeply aware of the impermanence of the world."  
-> — **Dogen**
+> "It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose."  
+> — **Ming-Dao Deng**
 
 ---
 
