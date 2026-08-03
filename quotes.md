@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life isn't what happens to you, but what you do with what happens to you."  
-> — **Norman Vincent Peale**
+> "I hear and I forget. I see and I remember. I do and I understand."  
+> — **Confucius**
 
 ---
 
