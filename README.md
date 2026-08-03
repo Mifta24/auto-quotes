@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is better to fail in originality than to succeed in imitation."  
-> — **Herman Melville**
+> "One must be deeply aware of the impermanence of the world."  
+> — **Dogen**
 
 ---
 

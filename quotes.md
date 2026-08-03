@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is failure."  
-> — **Michael Jordan**
+> "One must be deeply aware of the impermanence of the world."  
+> — **Dogen**
 
 ---
 
