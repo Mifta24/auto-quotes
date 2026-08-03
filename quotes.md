@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I hear and I forget. I see and I remember. I do and I understand."  
-> — **Confucius**
+> "Deeds will not be less valiant because they are upraised."  
+> — **J.R.R. Tolkien**
 
 ---
 
