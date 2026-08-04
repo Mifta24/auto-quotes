@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "Do not pray for an easy life, pray for the strength to endure a difficult one."  
+> — **Bruce Lee**
 
 ---
 
