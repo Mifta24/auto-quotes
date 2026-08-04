@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not pray for an easy life, pray for the strength to endure a difficult one."  
-> — **Bruce Lee**
+> "In a world of distraction, focusing is a superpower."  
+> — **Ryan Holiday**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I will not walk backward in life."  
-> — **J.R.R. Tolkien**
+> "In a world of distraction, focusing is a superpower."  
+> — **Ryan Holiday**
 
 ---
 
