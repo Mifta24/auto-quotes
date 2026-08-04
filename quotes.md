@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "Even the finest sword plunged into salt water will eventually rust."  
+> — **Sun Tzu**
 
 ---
 
