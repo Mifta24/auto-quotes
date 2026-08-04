@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Yesterday is gone. Tomorrow has not yet come. We have only today."  
-> — **Mother Teresa**
+> "Avoiding failure is to avoid progress."  
+> — **Unknown**
 
 ---
 
