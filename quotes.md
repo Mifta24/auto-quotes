@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In a world of distraction, focusing is a superpower."  
-> — **Ryan Holiday**
+> "For changes to be of any true value, they've got to be lasting and consistent."  
+> — **Tony Robbins**
 
 ---
 
