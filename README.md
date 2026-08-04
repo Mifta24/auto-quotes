@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In a world of distraction, focusing is a superpower."  
-> — **Ryan Holiday**
+> "Yesterday is gone. Tomorrow has not yet come. We have only today."  
+> — **Mother Teresa**
 
 ---
 

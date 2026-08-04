@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "For changes to be of any true value, they've got to be lasting and consistent."  
-> — **Tony Robbins**
+> "Yesterday is gone. Tomorrow has not yet come. We have only today."  
+> — **Mother Teresa**
 
 ---
 
