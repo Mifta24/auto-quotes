@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who boasts does so only out of a feeling of inferiority."  
-> — **Alfred Adler**
+> "We have a choice everyday regarding the attitude we will embrace for that day."  
+> — **Charles Swindoll**
 
 ---
 
