@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We have a choice everyday regarding the attitude we will embrace for that day."  
-> — **Charles Swindoll**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
