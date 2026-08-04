@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Avoiding failure is to avoid progress."  
-> — **Unknown**
+> "The one who boasts does so only out of a feeling of inferiority."  
+> — **Alfred Adler**
 
 ---
 
