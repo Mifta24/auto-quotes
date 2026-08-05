@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "Fallacies do not cease to be fallacies because they become fashions."  
+> — **Gilbert Chesterton**
 
 ---
 

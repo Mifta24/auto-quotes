@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I want the fishing rod, not the fish."  
-> — **Yanni**
+> "Fallacies do not cease to be fallacies because they become fashions."  
+> — **Gilbert Chesterton**
 
 ---
 
