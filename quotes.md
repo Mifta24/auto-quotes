@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "I want the fishing rod, not the fish."  
+> — **Yanni**
 
 ---
 
