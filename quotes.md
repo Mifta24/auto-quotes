@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
-> — **Jon Kabat-Zinn**
+> "Your purpose will be clear only when you listen to your heart."  
+> — **Lolly Daskal**
 
 ---
 
