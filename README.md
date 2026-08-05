@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be."  
+> — **Yanni**
 
 ---
 
-_Last updated: 04 August 2026 ⏳_
+_Last updated: 05 August 2026 ⏳_
