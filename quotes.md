@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be."  
-> — **Yanni**
+> "Actions are the seeds of fate. Deeds grow into destiny."  
+> — **Harry S. Truman**
 
 ---
 
