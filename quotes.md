@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Actions are the seeds of fate. Deeds grow into destiny."  
-> — **Harry S. Truman**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
+> — **Jon Kabat-Zinn**
 
 ---
 

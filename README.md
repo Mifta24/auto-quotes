@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be."  
-> — **Yanni**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
+> — **Jon Kabat-Zinn**
 
 ---
 
