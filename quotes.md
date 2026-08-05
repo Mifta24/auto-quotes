@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fallacies do not cease to be fallacies because they become fashions."  
-> — **Gilbert Chesterton**
+> "Life is too important to be taken seriously."  
+> — **Oscar Wilde**
 
 ---
 
