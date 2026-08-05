@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your purpose will be clear only when you listen to your heart."  
-> — **Lolly Daskal**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 

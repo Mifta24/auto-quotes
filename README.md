@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
-> — **Jon Kabat-Zinn**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 
