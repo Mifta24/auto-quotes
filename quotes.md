@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
-> — **Kabir**
+> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
+> — **Jon Kabat-Zinn**
 
 ---
 
