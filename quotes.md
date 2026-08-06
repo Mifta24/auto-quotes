@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your problem isn't the problem. Your reaction is the problem."  
-> — **Unknown**
+> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
+> — **Kabir**
 
 ---
 

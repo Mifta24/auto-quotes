@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "As long as a human being worries about when he will die, and what he has that is his, all of his works are zero."  
+> — **Kabir**
 
 ---
 
