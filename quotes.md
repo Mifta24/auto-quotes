@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Maybe you are searching among the branches, for what only appears in the roots."  
-> — **Rumi**
+> "Your problem isn't the problem. Your reaction is the problem."  
+> — **Unknown**
 
 ---
 
