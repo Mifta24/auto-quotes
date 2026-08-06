@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is no absolute success in the world, only constant progress."  
-> — **Jonathan Swift**
+> "Maybe you are searching among the branches, for what only appears in the roots."  
+> — **Rumi**
 
 ---
 
-_Last updated: 05 August 2026 ⏳_
+_Last updated: 06 August 2026 ⏳_
