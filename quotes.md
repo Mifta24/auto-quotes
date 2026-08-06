@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "Happiness is not something ready made. It comes from your own actions."  
+> — **Dalai Lama**
 
 ---
 
