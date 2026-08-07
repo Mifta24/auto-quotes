@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to lose than to win."  
-> — **Wayne Gretzky**
+> "Only when the tide goes out do you discover who's been swimming naked."  
+> — **Warren Buffett**
 
 ---
 

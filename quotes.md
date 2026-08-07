@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Simplicity is a difficult thing to achieve."  
-> — **Charlie Chaplin**
+> "Only when the tide goes out do you discover who's been swimming naked."  
+> — **Warren Buffett**
 
 ---
 
