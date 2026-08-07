@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's easier to lose than to win."  
-> — **Wayne Gretzky**
+> "Simplicity is a difficult thing to achieve."  
+> — **Charlie Chaplin**
 
 ---
 
