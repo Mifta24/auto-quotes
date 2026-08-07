@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "It's easier to lose than to win."  
+> — **Wayne Gretzky**
 
 ---
 
-_Last updated: 06 August 2026 ⏳_
+_Last updated: 07 August 2026 ⏳_

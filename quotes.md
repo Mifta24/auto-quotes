@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness is not something ready made. It comes from your own actions."  
-> — **Dalai Lama**
+> "It's easier to lose than to win."  
+> — **Wayne Gretzky**
 
 ---
 
-_Last updated: 06 August 2026 ⏳_
+_Last updated: 07 August 2026 ⏳_
