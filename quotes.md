@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest gift that you can give to others is the gift of unconditional love and acceptance."  
-> — **Brian Tracy**
+> "The sun is new each day."  
+> — **Heraclitus**
 
 ---
 
