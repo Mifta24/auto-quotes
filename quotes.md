@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What is planted in each person's soul will sprout."  
-> — **Rumi**
+> "The greatest gift that you can give to others is the gift of unconditional love and acceptance."  
+> — **Brian Tracy**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when the tide goes out do you discover who's been swimming naked."  
-> — **Warren Buffett**
+> "The greatest gift that you can give to others is the gift of unconditional love and acceptance."  
+> — **Brian Tracy**
 
 ---
 
