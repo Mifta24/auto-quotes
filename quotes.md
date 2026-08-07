@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when the tide goes out do you discover who's been swimming naked."  
-> — **Warren Buffett**
+> "What is planted in each person's soul will sprout."  
+> — **Rumi**
 
 ---
 
