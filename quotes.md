@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is not uncommon for people to spend their whole life waiting to start living."  
-> — **Eckhart Tolle**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 

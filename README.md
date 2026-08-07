@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't feed a hundred people, then feed just one."  
-> — **Mother Teresa**
+> "Not all readers are leaders, but all leaders are readers."  
+> — **Harry S. Truman**
 
 ---
 
