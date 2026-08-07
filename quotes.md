@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sun is new each day."  
-> — **Heraclitus**
+> "If you can't feed a hundred people, then feed just one."  
+> — **Mother Teresa**
 
 ---
 
