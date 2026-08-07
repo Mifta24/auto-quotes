@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't feed a hundred people, then feed just one."  
-> — **Mother Teresa**
+> "It is not uncommon for people to spend their whole life waiting to start living."  
+> — **Eckhart Tolle**
 
 ---
 
