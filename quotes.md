@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always try to be a little kinder than necessary."  
-> — **James Matthew Barrie**
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."  
+> — **Oprah Winfrey**
 
 ---
 
