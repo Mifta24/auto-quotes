@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Catch, then, O catch the transient hour; Improve each moment as it flies!"  
-> — **St. Jerome**
+> "There is no fear for one whose mind is not filled with desires."  
+> — **Buddha**
 
 ---
 
