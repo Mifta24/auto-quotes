@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no fear for one whose mind is not filled with desires."  
-> — **Buddha**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 

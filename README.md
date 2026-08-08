@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Catch, then, O catch the transient hour; Improve each moment as it flies!"  
-> — **St. Jerome**
+> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
+> — **Eleanor Roosevelt**
 
 ---
 
