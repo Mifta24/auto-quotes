@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "No one returns from a long journey the same person they were before."  
+> — **Zen Proverb**
 
 ---
 
