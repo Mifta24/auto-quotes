@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one returns from a long journey the same person they were before."  
-> — **Zen Proverb**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 

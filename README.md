@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do what you feel in your heart to be right - for you'll be criticized anyway."  
-> — **Eleanor Roosevelt**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
