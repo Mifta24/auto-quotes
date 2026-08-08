@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always try to be a little kinder than necessary."  
-> — **James Matthew Barrie**
+> "Common sense is not so common."  
+> — **Voltaire**
 
 ---
 
