@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Common sense is not so common."  
-> — **Voltaire**
+> "Catch, then, O catch the transient hour; Improve each moment as it flies!"  
+> — **St. Jerome**
 
 ---
 

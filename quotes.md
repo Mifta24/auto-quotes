@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change your thoughts and you change your world."  
-> — **Norman Vincent Peale**
+> "Catch, then, O catch the transient hour; Improve each moment as it flies!"  
+> — **St. Jerome**
 
 ---
 
