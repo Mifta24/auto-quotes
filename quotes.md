@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Common sense is not so common."  
-> — **Voltaire**
+> "Change your thoughts and you change your world."  
+> — **Norman Vincent Peale**
 
 ---
 
