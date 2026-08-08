@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Not all readers are leaders, but all leaders are readers."  
-> — **Harry S. Truman**
+> "Always try to be a little kinder than necessary."  
+> — **James Matthew Barrie**
 
 ---
 
-_Last updated: 07 August 2026 ⏳_
+_Last updated: 08 August 2026 ⏳_
