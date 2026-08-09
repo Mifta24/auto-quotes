@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We learn to walk by falling down. If we never fell down, we would never walk."  
-> — **Robert Kiyosaki**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 

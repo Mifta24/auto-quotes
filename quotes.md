@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our deeds determine us, as much as we determine our deeds."  
-> — **George Eliot**
+> "The truly rich men are the ones who have health, loved ones and a work they love."  
+> — **Maxime Lagace**
 
 ---
 
