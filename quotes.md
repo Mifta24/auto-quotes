@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The right thing to do and the hard thing to do are usually the same."  
-> — **Steve Maraboli**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 

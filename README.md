@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
 > — **Robert Kiyosaki**
 
 ---
