@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
-> — **Sigmund Freud**
+> "The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome."  
+> — **Tony Robbins**
 
 ---
 
