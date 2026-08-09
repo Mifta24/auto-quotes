@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind is infinite, it's your doubts that are limiting."  
-> — **Robert Kiyosaki**
+> "The right thing to do and the hard thing to do are usually the same."  
+> — **Steve Maraboli**
 
 ---
 
