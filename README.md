@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
+> — **Sigmund Freud**
 
 ---
 

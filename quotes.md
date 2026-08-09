@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In order to be walked over, you have to be lying down."  
-> — **Celestine Chua**
+> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
+> — **Sigmund Freud**
 
 ---
 
