@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The truly rich men are the ones who have health, loved ones and a work they love."  
-> — **Maxime Lagace**
+> "In order to be walked over, you have to be lying down."  
+> — **Celestine Chua**
 
 ---
 
