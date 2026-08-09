@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 08 August 2026 ⏳_
+_Last updated: 09 August 2026 ⏳_

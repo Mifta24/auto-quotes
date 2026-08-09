@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Only I can change my life. No one can do it for me."  
-> — **Carol Burnett**
+> "Your mind is infinite, it's your doubts that are limiting."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 08 August 2026 ⏳_
+_Last updated: 09 August 2026 ⏳_
