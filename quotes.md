@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We learn to walk by falling down. If we never fell down, we would never walk."  
-> — **Robert Kiyosaki**
+> "Our deeds determine us, as much as we determine our deeds."  
+> — **George Eliot**
 
 ---
 
