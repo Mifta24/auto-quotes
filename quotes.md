@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First learn the meaning of what you say, and then speak."  
-> — **Epictetus**
+> "Life is like underwear, should be changed twice a day."  
+> — **Ray Bradbury**
 
 ---
 
