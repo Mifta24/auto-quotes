@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remain calm. Be kind."  
-> — **Colin Powell**
+> "There is no significance in life without struggle."  
+> — **Lolly Daskal**
 
 ---
 
