@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is like underwear, should be changed twice a day."  
-> — **Ray Bradbury**
+> "Not all of us can do great things. But we can do small things with great love."  
+> — **Mother Teresa**
 
 ---
 
-_Last updated: 09 August 2026 ⏳_
+_Last updated: 10 August 2026 ⏳_
