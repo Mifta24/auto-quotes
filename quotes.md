@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "It is not enough to win a war; it is more important to organize the peace."  
+> — **Aristotle**
 
 ---
 
