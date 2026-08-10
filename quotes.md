@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's the unknown we fear when we look upon death and darkness, nothing more."  
-> — **Albus Dumbledore**
+> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."  
+> — **Ayn Rand**
 
 ---
 

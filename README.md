@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all of us can do great things. But we can do small things with great love."  
-> — **Mother Teresa**
+> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."  
+> — **Ayn Rand**
 
 ---
 
