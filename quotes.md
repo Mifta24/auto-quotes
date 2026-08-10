@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man can get rich himself unless he enriches others."  
-> — **Earl Nightingale**
+> "Either get busy living or get busy dying."  
+> — **Stephen King**
 
 ---
 
