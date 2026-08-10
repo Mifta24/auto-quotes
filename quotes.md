@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Integrity is the ability to stand by an idea."  
-> — **Ayn Rand**
+> "No man can get rich himself unless he enriches others."  
+> — **Earl Nightingale**
 
 ---
 
