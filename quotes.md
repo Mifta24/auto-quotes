@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every day passes whether you participate or not."  
-> — **Ming-Dao Deng**
+> "Remain calm. Be kind."  
+> — **Colin Powell**
 
 ---
 
