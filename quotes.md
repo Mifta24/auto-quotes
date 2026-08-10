@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."  
+> "Integrity is the ability to stand by an idea."  
 > — **Ayn Rand**
 
 ---
