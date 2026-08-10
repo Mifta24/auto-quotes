@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man can get rich himself unless he enriches others."  
-> — **Earl Nightingale**
+> "Every day passes whether you participate or not."  
+> — **Ming-Dao Deng**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Either get busy living or get busy dying."  
-> — **Stephen King**
+> "Every day passes whether you participate or not."  
+> — **Ming-Dao Deng**
 
 ---
 
