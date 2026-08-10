@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not all of us can do great things. But we can do small things with great love."  
-> — **Mother Teresa**
+> "It's the unknown we fear when we look upon death and darkness, nothing more."  
+> — **Albus Dumbledore**
 
 ---
 
