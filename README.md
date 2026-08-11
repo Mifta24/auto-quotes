@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There is no significance in life without struggle."  
-> — **Lolly Daskal**
+> "Quiet people have the loudest minds."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 10 August 2026 ⏳_
+_Last updated: 11 August 2026 ⏳_

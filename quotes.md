@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is not enough to win a war; it is more important to organize the peace."  
-> — **Aristotle**
+> "Quiet people have the loudest minds."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 10 August 2026 ⏳_
+_Last updated: 11 August 2026 ⏳_
