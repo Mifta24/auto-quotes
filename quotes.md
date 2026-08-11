@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The educated differ from the uneducated as much as the living differ from the dead."  
-> — **Aristotle**
+> "Hold yourself responsible for a higher standard than anybody else expects of you."  
+> — **Henry Ward Beecher**
 
 ---
 
