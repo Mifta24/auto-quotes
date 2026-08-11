@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A loving heart is the truest wisdom."  
-> — **Charles Dickens**
+> "The educated differ from the uneducated as much as the living differ from the dead."  
+> — **Aristotle**
 
 ---
 
