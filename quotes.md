@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quiet people have the loudest minds."  
-> — **Stephen Hawking**
+> "Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom."  
+> — **Sonia Ricotti**
 
 ---
 
