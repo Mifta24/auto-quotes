@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Do one thing every day that scares you."  
+> "To handle yourself, use your head; to handle others, use your heart."  
 > — **Eleanor Roosevelt**
 
 ---
