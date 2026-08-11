@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quiet people have the loudest minds."  
-> — **Stephen Hawking**
+> "A loving heart is the truest wisdom."  
+> — **Charles Dickens**
 
 ---
 
