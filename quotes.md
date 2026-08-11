@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company."  
-> — **George Washington**
+> "Do one thing every day that scares you."  
+> — **Eleanor Roosevelt**
 
 ---
 
