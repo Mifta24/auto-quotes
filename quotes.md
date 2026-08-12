@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest test of courage on earth is to bear defeat without losing heart."  
-> — **Robert Greene**
+> "A bird does not sing because it has an answer. It sings because it has a song."  
+> — **Chinese Proverb**
 
 ---
 

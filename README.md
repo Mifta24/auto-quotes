@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
-> — **Nicolas Chamfort**
+> "A bird does not sing because it has an answer. It sings because it has a song."  
+> — **Chinese Proverb**
 
 ---
 
