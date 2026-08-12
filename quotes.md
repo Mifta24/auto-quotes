@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
-> — **Nicolas Chamfort**
+> "The greatest test of courage on earth is to bear defeat without losing heart."  
+> — **Robert Greene**
 
 ---
 
