@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great deeds are usually wrought at great risks."  
-> — **Herodotus**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 

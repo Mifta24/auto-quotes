@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better the cottage where one is merry than the palace where one weeps."  
-> — **Chinese Proverb**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 
