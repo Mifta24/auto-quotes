@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A bird does not sing because it has an answer. It sings because it has a song."  
-> — **Chinese Proverb**
+> "You cannot find peace by avoiding life."  
+> — **Virginia Woolf**
 
 ---
 
