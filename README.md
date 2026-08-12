@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To handle yourself, use your head; to handle others, use your heart."  
-> — **Eleanor Roosevelt**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
-_Last updated: 11 August 2026 ⏳_
+_Last updated: 12 August 2026 ⏳_

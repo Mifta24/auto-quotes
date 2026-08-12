@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
-_Last updated: 11 August 2026 ⏳_
+_Last updated: 12 August 2026 ⏳_
