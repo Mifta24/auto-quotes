@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being ignorant is not so much a shame, as being unwilling to learn."  
-> — **Benjamin Franklin**
+> "Make peace with your inner turmoil."  
+> — **Unknown**
 
 ---
 
