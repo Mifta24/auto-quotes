@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A bird does not sing because it has an answer. It sings because it has a song."  
-> — **Chinese Proverb**
+> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
+> — **Eric Hoffer**
 
 ---
 
