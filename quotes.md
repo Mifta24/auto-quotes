@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "Better the cottage where one is merry than the palace where one weeps."  
+> — **Chinese Proverb**
 
 ---
 

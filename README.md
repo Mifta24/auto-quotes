@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You cannot find peace by avoiding life."  
-> — **Virginia Woolf**
+> "Better the cottage where one is merry than the palace where one weeps."  
+> — **Chinese Proverb**
 
 ---
 
