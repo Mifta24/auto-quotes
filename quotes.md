@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better the cottage where one is merry than the palace where one weeps."  
-> — **Chinese Proverb**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 
