@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Make peace with your inner turmoil."  
-> — **Unknown**
+> "I've always tried to go a step past wherever people expected me to end up."  
+> — **Beverly Sills**
 
 ---
 
-_Last updated: 12 August 2026 ⏳_
+_Last updated: 13 August 2026 ⏳_

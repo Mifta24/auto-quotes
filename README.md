@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Being ignorant is not so much a shame, as being unwilling to learn."  
-> — **Benjamin Franklin**
+> "I've always tried to go a step past wherever people expected me to end up."  
+> — **Beverly Sills**
 
 ---
 
-_Last updated: 12 August 2026 ⏳_
+_Last updated: 13 August 2026 ⏳_
