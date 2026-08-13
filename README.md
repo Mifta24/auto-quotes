@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wisest men follow their own direction."  
-> — **Euripides**
+> "Nothing makes a man broad-minded like adversity."  
+> — **Will Rogers**
 
 ---
 
