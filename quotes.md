@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't Let Yesterday Take Up Too Much Of Today."  
-> — **Will Rogers**
+> "We are all different. Don't judge, understand instead."  
+> — **Roy T. Bennett**
 
 ---
 
