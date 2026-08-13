@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all different. Don't judge, understand instead."  
-> — **Roy T. Bennett**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 

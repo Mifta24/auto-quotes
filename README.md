@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't Let Yesterday Take Up Too Much Of Today."  
-> — **Will Rogers**
+> "Friendship is like money, easier made than kept."  
+> — **Samuel Butler**
 
 ---
 
