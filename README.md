@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "Don't Let Yesterday Take Up Too Much Of Today."  
+> — **Will Rogers**
 
 ---
 

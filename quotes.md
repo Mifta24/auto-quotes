@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing better than the encouragement of a good friend."  
-> — **David Brinkley**
+> "Don't Let Yesterday Take Up Too Much Of Today."  
+> — **Will Rogers**
 
 ---
 
