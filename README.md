@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friendship is like money, easier made than kept."  
-> — **Samuel Butler**
+> "The wisest men follow their own direction."  
+> — **Euripides**
 
 ---
 
