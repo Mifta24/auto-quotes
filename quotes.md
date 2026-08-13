@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I've always tried to go a step past wherever people expected me to end up."  
-> — **Beverly Sills**
+> "There is nothing better than the encouragement of a good friend."  
+> — **David Brinkley**
 
 ---
 
