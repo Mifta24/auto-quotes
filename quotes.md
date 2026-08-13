@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing makes a man broad-minded like adversity."  
-> — **Will Rogers**
+> "Just do what must be done. This may not be happiness but it is greatness."  
+> — **George Bernard Shaw**
 
 ---
 
