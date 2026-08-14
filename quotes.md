@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
-> — **Maxime Lagace**
+> "You can only be afraid of what you think you know."  
+> — **Jiddu Krishnamurti**
 
 ---
 
