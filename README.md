@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get, the better you get. Unless you're a banana."  
-> — **Betty White**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who possesses most must be most afraid of loss."  
-> — **Leonardo da Vinci**
+> "Open your eyes and look within. Are you satisfied with the life you're living?"  
+> — **Bob Marley**
 
 ---
 
