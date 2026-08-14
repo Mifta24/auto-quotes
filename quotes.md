@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
-> — **Mark Manson**
+> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."  
+> — **Maxime Lagace**
 
 ---
 
