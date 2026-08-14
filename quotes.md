@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The older you get, the better you get. Unless you're a banana."  
-> — **Betty White**
+> "He who possesses most must be most afraid of loss."  
+> — **Leonardo da Vinci**
 
 ---
 
