@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only be afraid of what you think you know."  
-> — **Jiddu Krishnamurti**
+> "Well done is better than well said."  
+> — **Benjamin Franklin**
 
 ---
 
