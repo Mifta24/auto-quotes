@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Nothing makes a man broad-minded like adversity."  
-> — **Will Rogers**
+> "The older you get, the better you get. Unless you're a banana."  
+> — **Betty White**
 
 ---
 
-_Last updated: 13 August 2026 ⏳_
+_Last updated: 14 August 2026 ⏳_

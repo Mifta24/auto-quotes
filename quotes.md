@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Just do what must be done. This may not be happiness but it is greatness."  
-> — **George Bernard Shaw**
+> "The older you get, the better you get. Unless you're a banana."  
+> — **Betty White**
 
 ---
 
-_Last updated: 13 August 2026 ⏳_
+_Last updated: 14 August 2026 ⏳_
