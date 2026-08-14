@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Well done is better than well said."  
-> — **Benjamin Franklin**
+> "Do not fear failure but rather fear not trying."  
+> — **Roy T. Bennett**
 
 ---
 

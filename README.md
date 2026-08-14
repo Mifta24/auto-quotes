@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can only be afraid of what you think you know."  
-> — **Jiddu Krishnamurti**
+> "Do not fear failure but rather fear not trying."  
+> — **Roy T. Bennett**
 
 ---
 
