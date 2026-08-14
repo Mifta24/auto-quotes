@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "Don't ever save anything for a special occasion. Being alive is the special occasion."  
+> — **Mary Engelbreit**
 
 ---
 
