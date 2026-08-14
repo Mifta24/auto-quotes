@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Open your eyes and look within. Are you satisfied with the life you're living?"  
-> — **Bob Marley**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 

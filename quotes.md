@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't ever save anything for a special occasion. Being alive is the special occasion."  
-> — **Mary Engelbreit**
+> "Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."  
+> — **Mark Manson**
 
 ---
 
