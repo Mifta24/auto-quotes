@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "People seldom do what they believe in. They do what is convenient, then repent."  
+> — **Bob Dylan**
 
 ---
 
