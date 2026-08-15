@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between winning and losing is most often not quitting."  
-> — **Walt Disney**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cease striving. Then there will be transformation."  
-> — **Zhuangzi**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 
