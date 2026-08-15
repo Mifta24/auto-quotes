@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One's best success comes after their greatest disappointments."  
-> — **Henry Ward Beecher**
+> "To get angry is like to revenge yourself for the guilt of others."  
+> — **Jonathan Swift**
 
 ---
 
