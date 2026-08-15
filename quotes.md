@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Storms don't last forever."  
-> — **Unknown**
+> "Our greatest fears lie in anticipation."  
+> — **Honore de Balzac**
 
 ---
 

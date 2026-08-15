@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide upon your major definite purpose in life and then organize all your activities around it."  
-> — **Brian Tracy**
+> "Our greatest fears lie in anticipation."  
+> — **Honore de Balzac**
 
 ---
 
