@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let the noise of others' opinions drown out your own inner voice."  
-> — **Steve Jobs**
+> "That some achieve great success is proof to all that others can achieve it as well."  
+> — **Abraham Lincoln**
 
 ---
 
