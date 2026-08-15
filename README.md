@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not fear failure but rather fear not trying."  
-> — **Roy T. Bennett**
+> "One's best success comes after their greatest disappointments."  
+> — **Henry Ward Beecher**
 
 ---
 
-_Last updated: 14 August 2026 ⏳_
+_Last updated: 15 August 2026 ⏳_
