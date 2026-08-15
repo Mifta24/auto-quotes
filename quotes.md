@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."  
-> — **Napoleon Hill**
+> "Don't let the noise of others' opinions drown out your own inner voice."  
+> — **Steve Jobs**
 
 ---
 

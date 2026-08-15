@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our greatest fears lie in anticipation."  
-> — **Honore de Balzac**
+> "Don't let the noise of others' opinions drown out your own inner voice."  
+> — **Steve Jobs**
 
 ---
 
