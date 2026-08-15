@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One's best success comes after their greatest disappointments."  
-> — **Henry Ward Beecher**
+> "The difference between winning and losing is most often not quitting."  
+> — **Walt Disney**
 
 ---
 
