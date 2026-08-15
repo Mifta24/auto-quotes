@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between winning and losing is most often not quitting."  
-> — **Walt Disney**
+> "Cease striving. Then there will be transformation."  
+> — **Zhuangzi**
 
 ---
 
