@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Care about what other people think and you will always be their prisoner."  
-> — **Lao Tzu**
+> "Excellence is not a skill. It is an attitude."  
+> — **Ralph Marston**
 
 ---
 
