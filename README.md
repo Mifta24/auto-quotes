@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Care about what other people think and you will always be their prisoner."  
-> — **Lao Tzu**
+> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
+> — **Sigmund Freud**
 
 ---
 
