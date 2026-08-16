@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never test the depth of river with both the feet."  
-> — **Warren Buffett**
+> "Success is going from failure to failure without losing your enthusiasm"  
+> — **Winston Churchill**
 
 ---
 
