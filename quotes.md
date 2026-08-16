@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't explain it simply, you don't understand it well enough."  
-> — **Albert Einstein**
+> "Never test the depth of river with both the feet."  
+> — **Warren Buffett**
 
 ---
 

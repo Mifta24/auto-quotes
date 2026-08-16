@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
-> — **Sigmund Freud**
+> "Never test the depth of river with both the feet."  
+> — **Warren Buffett**
 
 ---
 
