@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Words are the clothes thoughts wear."  
-> — **Samuel Beckett**
+> "You are what you believe in. You become that which you believe you can become."  
+> — **Bhagavad Gita**
 
 ---
 

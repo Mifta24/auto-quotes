@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities."  
-> — **Eric Hoffer**
+> "You are what you believe in. You become that which you believe you can become."  
+> — **Bhagavad Gita**
 
 ---
 
