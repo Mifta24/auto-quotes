@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility."  
-> — **Sigmund Freud**
+> "If you can't explain it simply, you don't understand it well enough."  
+> — **Albert Einstein**
 
 ---
 
