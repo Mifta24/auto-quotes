@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are what you believe in. You become that which you believe you can become."  
-> — **Bhagavad Gita**
+> "Real loss is only possible when you love something more than you love yourself."  
+> — **Robin Williams**
 
 ---
 
