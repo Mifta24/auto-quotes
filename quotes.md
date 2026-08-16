@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real loss is only possible when you love something more than you love yourself."  
-> — **Robin Williams**
+> "Care about what other people think and you will always be their prisoner."  
+> — **Lao Tzu**
 
 ---
 
