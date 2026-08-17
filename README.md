@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How you think when you lose determines how long it will be until you win."  
-> — **Gilbert Chesterton**
+> "The more something threatens your identity, the more you will avoid it."  
+> — **Mark Manson**
 
 ---
 
