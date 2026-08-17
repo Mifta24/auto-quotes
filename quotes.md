@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is action."  
-> — **Brian Tracy**
+> "How you think when you lose determines how long it will be until you win."  
+> — **Gilbert Chesterton**
 
 ---
 

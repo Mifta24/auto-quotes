@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You give but little when you give of your possessions. It is when you give of yourself that you truly give."  
-> — **Kahlil Gibran**
+> "How you think when you lose determines how long it will be until you win."  
+> — **Gilbert Chesterton**
 
 ---
 
