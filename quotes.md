@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something threatens your identity, the more you will avoid it."  
-> — **Mark Manson**
+> "Only when the tide goes out do you discover who's been swimming naked."  
+> — **Warren Buffett**
 
 ---
 
