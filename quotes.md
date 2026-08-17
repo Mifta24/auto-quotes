@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when the tide goes out do you discover who's been swimming naked."  
-> — **Warren Buffett**
+> "The wise man reads both books and life itself."  
+> — **Lin Yutang**
 
 ---
 
