@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How you think when you lose determines how long it will be until you win."  
-> — **Gilbert Chesterton**
+> "One must be poor to know the luxury of giving."  
+> — **George Eliot**
 
 ---
 
