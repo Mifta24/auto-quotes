@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't like something, change it. If you can't change it, change your attitude."  
-> — **Maya Angelou**
+> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
+> — **Lolly Daskal**
 
 ---
 

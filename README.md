@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise man reads both books and life itself."  
-> — **Lin Yutang**
+> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
+> — **Lolly Daskal**
 
 ---
 
