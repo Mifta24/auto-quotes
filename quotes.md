@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
-> — **F. Scott Fitzgerald**
+> "To improve is to change, so to be perfect is to change often."  
+> — **Winston Churchill**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are what you do, not what you say you'll do."  
-> — **Carl Jung**
+> "To improve is to change, so to be perfect is to change often."  
+> — **Winston Churchill**
 
 ---
 
