@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are what you do, not what you say you'll do."  
-> — **Carl Jung**
+> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
+> — **F. Scott Fitzgerald**
 
 ---
 
