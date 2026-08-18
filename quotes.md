@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't watch the clock; do what it does. Keep going."  
-> — **Colin R. Davis**
+> "What would you do if you weren't afraid?"  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 17 August 2026 ⏳_
+_Last updated: 18 August 2026 ⏳_

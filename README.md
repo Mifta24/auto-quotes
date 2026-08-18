@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Focus on how far you have come in life rather than looking at the accomplishments of others."  
-> — **Lolly Daskal**
+> "What would you do if you weren't afraid?"  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 17 August 2026 ⏳_
+_Last updated: 18 August 2026 ⏳_
