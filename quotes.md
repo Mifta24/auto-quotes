@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I think self-awareness is probably the most important thing towards being a champion."  
-> — **Billie Jean King**
+> "Quality is more important than quantity. One home run is much better than two doubles."  
+> — **Steve Jobs**
 
 ---
 

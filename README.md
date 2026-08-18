@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What would you do if you weren't afraid?"  
-> — **Spencer Johnson**
+> "Quality is more important than quantity. One home run is much better than two doubles."  
+> — **Steve Jobs**
 
 ---
 
