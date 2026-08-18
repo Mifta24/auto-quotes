@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To improve is to change, so to be perfect is to change often."  
-> — **Winston Churchill**
+> "Life reflects your own thoughts back to you."  
+> — **Napoleon Hill**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Identification with our mind causes thought to become compulsive."  
-> — **Eckhart Tolle**
+> "Life reflects your own thoughts back to you."  
+> — **Napoleon Hill**
 
 ---
 
