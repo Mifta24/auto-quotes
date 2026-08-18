@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life reflects your own thoughts back to you."  
-> — **Napoleon Hill**
+> "Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death."  
+> — **Socrates**
 
 ---
 
