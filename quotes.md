@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To improve is to change, so to be perfect is to change often."  
-> — **Winston Churchill**
+> "Identification with our mind causes thought to become compulsive."  
+> — **Eckhart Tolle**
 
 ---
 
