@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Quality is more important than quantity. One home run is much better than two doubles."  
-> — **Steve Jobs**
+> "Action is the foundational key to all success."  
+> — **Pablo Picasso**
 
 ---
 
