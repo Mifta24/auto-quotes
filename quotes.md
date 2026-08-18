@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What would you do if you weren't afraid?"  
-> — **Spencer Johnson**
+> "I think self-awareness is probably the most important thing towards being a champion."  
+> — **Billie Jean King**
 
 ---
 
