@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everybody's life is either rewarding or an example."  
-> — **Tony Robbins**
+> "It is in the darkness that one finds the light."  
+> — **Meister Eckhart**
 
 ---
 
