@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everybody's life is either rewarding or an example."  
-> — **Tony Robbins**
+> "It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart."  
+> — **Roy T. Bennett**
 
 ---
 
