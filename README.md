@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "That some achieve great success is proof to all that others can achieve it as well."  
-> — **Abraham Lincoln**
+> "Everybody's life is either rewarding or an example."  
+> — **Tony Robbins**
 
 ---
 

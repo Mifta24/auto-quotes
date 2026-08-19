@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find the game where you can win, and then commit your life to playing it; and play to win."  
-> — **Robert Kiyosaki**
+> "Everybody's life is either rewarding or an example."  
+> — **Tony Robbins**
 
 ---
 
