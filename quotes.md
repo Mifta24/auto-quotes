@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wrong does not cease to be wrong because the majority share in it."  
-> — **Leo Tolstoy**
+> "That some achieve great success is proof to all that others can achieve it as well."  
+> — **Abraham Lincoln**
 
 ---
 
