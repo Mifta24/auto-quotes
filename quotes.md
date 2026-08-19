@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can tell more about a person by what he says about others than you can by what others say about him."  
-> — **Audrey Hepburn**
+> "Wrong does not cease to be wrong because the majority share in it."  
+> — **Leo Tolstoy**
 
 ---
 
