@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The goal of an artist is to create the definitive work that cannot be surpassed."  
-> — **George Bernard Shaw**
+> "You know the more one does the more one can do."  
+> — **Amelia Earhart**
 
 ---
 
