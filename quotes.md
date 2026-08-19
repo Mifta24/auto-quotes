@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A Rolling Stone Gathers No Moss."  
-> — **Publilius Syrus**
+> "The goal of an artist is to create the definitive work that cannot be surpassed."  
+> — **George Bernard Shaw**
 
 ---
 

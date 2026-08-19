@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart."  
-> — **Roy T. Bennett**
+> "The goal of an artist is to create the definitive work that cannot be surpassed."  
+> — **George Bernard Shaw**
 
 ---
 
