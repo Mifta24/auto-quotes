@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "That some achieve great success is proof to all that others can achieve it as well."  
-> — **Abraham Lincoln**
+> "Find the game where you can win, and then commit your life to playing it; and play to win."  
+> — **Robert Kiyosaki**
 
 ---
 
