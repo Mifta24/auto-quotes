@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life does not get better by chance, it gets better by change."  
-> — **Jim Rohn**
+> "People should pursue what they're passionate about. That will make them happier than pretty much anything else."  
+> — **Elon Musk**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't risk what is important to you, to get what is not important to you."  
-> — **Warren Buffett**
+> "People should pursue what they're passionate about. That will make them happier than pretty much anything else."  
+> — **Elon Musk**
 
 ---
 
