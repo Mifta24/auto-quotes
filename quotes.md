@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
-> — **James Cameron**
+> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
+> — **Alfred Adler**
 
 ---
 

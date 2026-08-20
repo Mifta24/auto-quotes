@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Risk comes from not knowing what you're doing."  
-> — **Warren Buffett**
+> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
+> — **Alfred Adler**
 
 ---
 
