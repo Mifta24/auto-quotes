@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Risk comes from not knowing what you're doing."  
-> — **Warren Buffett**
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
+> — **James Cameron**
 
 ---
 
