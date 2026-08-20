@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People should pursue what they're passionate about. That will make them happier than pretty much anything else."  
-> — **Elon Musk**
+> "Reality is nothing but a collective hunch."  
+> — **Lily Tomlin**
 
 ---
 
