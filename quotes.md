@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You know the more one does the more one can do."  
-> — **Amelia Earhart**
+> "Risk comes from not knowing what you're doing."  
+> — **Warren Buffett**
 
 ---
 
-_Last updated: 19 August 2026 ⏳_
+_Last updated: 20 August 2026 ⏳_
