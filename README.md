@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
-> — **Alfred Adler**
+> "Life does not get better by chance, it gets better by change."  
+> — **Jim Rohn**
 
 ---
 

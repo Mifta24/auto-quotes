@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
-> — **Shunryu Suzuki**
+> "Life does not get better by chance, it gets better by change."  
+> — **Jim Rohn**
 
 ---
 
