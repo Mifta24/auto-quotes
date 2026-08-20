@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life does not get better by chance, it gets better by change."  
-> — **Jim Rohn**
+> "Don't risk what is important to you, to get what is not important to you."  
+> — **Warren Buffett**
 
 ---
 
