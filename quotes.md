@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
-> — **Alfred Adler**
+> "In the beginner's mind there are many possibilities, but in the expert's mind there are few."  
+> — **Shunryu Suzuki**
 
 ---
 
