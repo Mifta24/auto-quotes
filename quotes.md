@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
-> — **Denis Waitley**
+> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
+> — **Dogen**
 
 ---
 
