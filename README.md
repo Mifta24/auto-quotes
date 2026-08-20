@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People should pursue what they're passionate about. That will make them happier than pretty much anything else."  
-> — **Elon Musk**
+> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
+> — **Denis Waitley**
 
 ---
 

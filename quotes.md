@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Reality is nothing but a collective hunch."  
-> — **Lily Tomlin**
+> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
+> — **Denis Waitley**
 
 ---
 
