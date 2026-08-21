@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It ain't where you start in life, it's where you end up, and what you did along the way."  
-> — **Colin Powell**
+> "Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours."  
+> — **Orison Swett Marden**
 
 ---
 
