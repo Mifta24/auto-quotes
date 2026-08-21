@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have to give up some of the old so that you can make room for the new."  
-> — **Yanni**
+> "The future doesn't belong to the faint-hearted; it belongs to the brave."  
+> — **Ronald Reagan**
 
 ---
 
