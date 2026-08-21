@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who knows best knows how little he knows."  
-> — **Thomas Jefferson**
+> "If I persist long enough I will win."  
+> — **Og Mandino**
 
 ---
 
