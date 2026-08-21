@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whatever you are, be a good one."  
-> — **Abraham Lincoln**
+> "A friend to all is a friend to none."  
+> — **Aristotle**
 
 ---
 
