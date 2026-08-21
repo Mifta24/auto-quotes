@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "Whatever you are, be a good one."  
+> — **Abraham Lincoln**
 
 ---
 
