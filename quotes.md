@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you are unable to find the truth right where you are, where else do you expect to find it?"  
-> — **Dogen**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 20 August 2026 ⏳_
+_Last updated: 21 August 2026 ⏳_

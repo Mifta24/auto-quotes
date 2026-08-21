@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
-> — **Denis Waitley**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 20 August 2026 ⏳_
+_Last updated: 21 August 2026 ⏳_
