@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours."  
-> — **Orison Swett Marden**
+> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
+> — **Oprah Winfrey**
 
 ---
 
