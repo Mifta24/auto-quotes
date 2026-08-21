@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work."  
-> — **Oprah Winfrey**
+> "You have to give up some of the old so that you can make room for the new."  
+> — **Yanni**
 
 ---
 
