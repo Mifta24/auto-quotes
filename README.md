@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You have to give up some of the old so that you can make room for the new."  
-> — **Yanni**
+> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
+> — **Charles Spurgeon**
 
 ---
 
-_Last updated: 21 August 2026 ⏳_
+_Last updated: 22 August 2026 ⏳_

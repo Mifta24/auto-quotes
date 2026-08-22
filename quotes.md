@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The future doesn't belong to the faint-hearted; it belongs to the brave."  
-> — **Ronald Reagan**
+> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
+> — **Charles Spurgeon**
 
 ---
 
-_Last updated: 21 August 2026 ⏳_
+_Last updated: 22 August 2026 ⏳_
