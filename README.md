@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you've never eaten while crying you don t know what life tastes like."  
-> — **Johann Wolfgang von Goethe**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 

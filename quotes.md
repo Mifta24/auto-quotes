@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."  
-> — **Alfred Adler**
+> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
+> — **Eckhart Tolle**
 
 ---
 
