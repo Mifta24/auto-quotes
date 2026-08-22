@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two things a person should never be angry at, what they can help, and what they cannot."  
-> — **Plato**
+> "If you've never eaten while crying you don t know what life tastes like."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pain doesn't last. And when it's gone, we have something to show for it. Growth."  
-> — **Kamal Ravikant**
+> "If you've never eaten while crying you don t know what life tastes like."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
