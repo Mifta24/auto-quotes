@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two things a person should never be angry at, what they can help, and what they cannot."  
-> — **Plato**
+> "Pain doesn't last. And when it's gone, we have something to show for it. Growth."  
+> — **Kamal Ravikant**
 
 ---
 
