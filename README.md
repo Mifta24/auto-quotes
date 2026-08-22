@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real loss is only possible when you love something more than you love yourself."  
-> — **Robin Williams**
+> "There are two things a person should never be angry at, what they can help, and what they cannot."  
+> — **Plato**
 
 ---
 
