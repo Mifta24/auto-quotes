@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "All know that the drop merges into the ocean, but few know that the ocean merges into the drop."  
+> — **Kabir**
 
 ---
 
