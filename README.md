@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
-> — **Charles Spurgeon**
+> "Real loss is only possible when you love something more than you love yourself."  
+> — **Robin Williams**
 
 ---
 

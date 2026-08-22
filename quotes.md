@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forgive those who have hurt you."  
-> — **Les Brown**
+> "Real loss is only possible when you love something more than you love yourself."  
+> — **Robin Williams**
 
 ---
 
