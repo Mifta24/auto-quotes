@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real loss is only possible when you love something more than you love yourself."  
-> — **Robin Williams**
+> "Being ignorant is not so much a shame, as being unwilling to learn."  
+> — **Benjamin Franklin**
 
 ---
 
