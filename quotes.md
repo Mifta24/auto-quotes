@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good character is the best tombstone. Carve your name on hearts, not on marble."  
-> — **Charles Spurgeon**
+> "Forgive those who have hurt you."  
+> — **Les Brown**
 
 ---
 
