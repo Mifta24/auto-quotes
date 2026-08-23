@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He will win who knows when to fight and when not to fight."  
-> — **Sun Tzu**
+> "In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."  
+> — **Theodore Roosevelt**
 
 ---
 

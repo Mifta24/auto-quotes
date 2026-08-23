@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If I persist long enough I will win."  
-> — **Og Mandino**
+> "In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."  
+> — **Theodore Roosevelt**
 
 ---
 
