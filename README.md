@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness."  
-> — **Eckhart Tolle**
+> "The sweetest pleasure arises from difficulties overcome."  
+> — **Publilius Syrus**
 
 ---
 
-_Last updated: 22 August 2026 ⏳_
+_Last updated: 23 August 2026 ⏳_
