@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to go slowly. Be afraid of stopping."  
-> — **Zen Proverb**
+> "He will win who knows when to fight and when not to fight."  
+> — **Sun Tzu**
 
 ---
 
