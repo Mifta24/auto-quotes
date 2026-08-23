@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The sweetest pleasure arises from difficulties overcome."  
-> — **Publilius Syrus**
+> "Before you embark on a journey of revenge, dig two graves."  
+> — **Confucius**
 
 ---
 
