@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
+> — **Unknown**
 
 ---
 
