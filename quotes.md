@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you embark on a journey of revenge, dig two graves."  
-> — **Confucius**
+> "If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man."  
+> — **Mark Twain**
 
 ---
 
