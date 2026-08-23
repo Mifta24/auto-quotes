@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."  
-> — **Theodore Roosevelt**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 

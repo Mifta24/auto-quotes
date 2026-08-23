@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your neighbor is the man who needs you."  
-> — **Elbert Hubbard**
+> "If you truly expect something to be difficult, it will be."  
+> — **Peter A. Cohen**
 
 ---
 
