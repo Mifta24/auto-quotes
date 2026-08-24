@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are today where your thoughts have brought you."  
-> — **James Allen**
+> "I would rather die on my feet than live on my knees."  
+> — **Euripides**
 
 ---
 

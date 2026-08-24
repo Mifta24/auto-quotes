@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little."  
-> — **Criss Jami**
+> "I would rather die on my feet than live on my knees."  
+> — **Euripides**
 
 ---
 
