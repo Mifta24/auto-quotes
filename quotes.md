@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather die on my feet than live on my knees."  
-> — **Euripides**
+> "Unless you change how you are, you will always have what you got."  
+> — **Jim Rohn**
 
 ---
 
