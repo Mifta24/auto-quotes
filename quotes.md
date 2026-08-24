@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard."  
-> — **Colin Powell**
+> "No man is happy who does not think himself so."  
+> — **Norman Vincent Peale**
 
 ---
 
