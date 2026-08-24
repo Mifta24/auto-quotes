@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless you change how you are, you will always have what you got."  
-> — **Jim Rohn**
+> "Where you are right now doesn't have to determine where you'll end up."  
+> — **Barack Obama**
 
 ---
 

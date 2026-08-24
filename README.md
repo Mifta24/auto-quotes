@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I would rather die on my feet than live on my knees."  
-> — **Euripides**
+> "Where you are right now doesn't have to determine where you'll end up."  
+> — **Barack Obama**
 
 ---
 
