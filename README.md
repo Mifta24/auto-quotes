@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you truly expect something to be difficult, it will be."  
-> — **Peter A. Cohen**
+> "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little."  
+> — **Criss Jami**
 
 ---
 
-_Last updated: 23 August 2026 ⏳_
+_Last updated: 24 August 2026 ⏳_
