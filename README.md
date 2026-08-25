@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard."  
-> — **Colin Powell**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 24 August 2026 ⏳_
+_Last updated: 25 August 2026 ⏳_

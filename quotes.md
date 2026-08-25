@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No man is happy who does not think himself so."  
-> — **Norman Vincent Peale**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
-_Last updated: 24 August 2026 ⏳_
+_Last updated: 25 August 2026 ⏳_
