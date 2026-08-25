@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who knows best knows how little he knows."  
-> — **Thomas Jefferson**
+> "Anyone who has ever made anything of importance was disciplined."  
+> — **Andrew Hendrixson**
 
 ---
 
