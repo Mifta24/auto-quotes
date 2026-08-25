@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunities multiply as they are seized."  
-> — **Sun Tzu**
+> "You can not live your life just based on what everyone else thinks."  
+> — **Joyce Meyer**
 
 ---
 
