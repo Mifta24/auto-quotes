@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our thoughts are highly influenced by the people around us and everything we read, see, and do."  
-> — **Jeff Booth**
+> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
+> — **Winston Churchill**
 
 ---
 
