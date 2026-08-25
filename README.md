@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
-> — **James Cameron**
+> "Our thoughts are highly influenced by the people around us and everything we read, see, and do."  
+> — **Jeff Booth**
 
 ---
 
