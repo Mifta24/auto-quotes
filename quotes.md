@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Continuous effort - not strength or intelligence - is the key to unlocking our potential."  
-> — **Winston Churchill**
+> "Opportunities multiply as they are seized."  
+> — **Sun Tzu**
 
 ---
 

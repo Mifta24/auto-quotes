@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our thoughts are highly influenced by the people around us and everything we read, see, and do."  
-> — **Jeff Booth**
+> "Opportunities multiply as they are seized."  
+> — **Sun Tzu**
 
 ---
 
