@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's OK to have your eggs in one basket as long as you control what happens to that basket."  
-> — **Elon Musk**
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
+> — **James Cameron**
 
 ---
 
