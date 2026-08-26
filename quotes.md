@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
-> — **Eleanor Roosevelt**
+> "If your happiness depends on what somebody else does, I guess you do have a problem."  
+> — **Richard Bach**
 
 ---
 
