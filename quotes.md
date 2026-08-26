@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You can not live your life just based on what everyone else thinks."  
-> — **Joyce Meyer**
+> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."  
+> — **Socrates**
 
 ---
 
-_Last updated: 25 August 2026 ⏳_
+_Last updated: 26 August 2026 ⏳_
