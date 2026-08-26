@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success comes to those who become success conscious."  
-> — **Napoleon Hill**
+> "All know the way; few actually walk it."  
+> — **Bodhidharma**
 
 ---
 
