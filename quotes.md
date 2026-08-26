@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All know the way; few actually walk it."  
-> — **Bodhidharma**
+> "Failure shows us the way — by showing us what isn't the way."  
+> — **Ryan Holiday**
 
 ---
 
