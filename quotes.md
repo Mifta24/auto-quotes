@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Creativity is the greatest rebellion in existence."  
-> — **Osho**
+> "What worries you, masters you."  
+> — **John Locke**
 
 ---
 
