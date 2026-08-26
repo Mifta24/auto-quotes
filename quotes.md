@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."  
-> — **Socrates**
+> "Care about what other people think and you will always be their prisoner."  
+> — **Lao Tzu**
 
 ---
 
