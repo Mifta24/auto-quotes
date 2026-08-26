@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If your happiness depends on what somebody else does, I guess you do have a problem."  
-> — **Richard Bach**
+> "Success comes to those who become success conscious."  
+> — **Napoleon Hill**
 
 ---
 

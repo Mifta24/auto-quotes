@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
-> — **Eleanor Roosevelt**
+> "Success comes to those who become success conscious."  
+> — **Napoleon Hill**
 
 ---
 
