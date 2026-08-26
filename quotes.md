@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What worries you, masters you."  
-> — **John Locke**
+> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
+> — **Eleanor Roosevelt**
 
 ---
 

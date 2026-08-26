@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Creativity is the greatest rebellion in existence."  
-> — **Osho**
+> "Great minds discuss ideas. Average minds discuss events. Small minds discuss people."  
+> — **Eleanor Roosevelt**
 
 ---
 
