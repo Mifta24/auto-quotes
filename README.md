@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success comes to those who become success conscious."  
-> — **Napoleon Hill**
+> "Life is a journey, not a destination."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 26 August 2026 ⏳_
+_Last updated: 27 August 2026 ⏳_
