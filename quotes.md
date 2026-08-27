@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not allow your inner doubts to keep you from achieving what you can do."  
-> — **Lolly Daskal**
+> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
+> — **Jack Kerouac**
 
 ---
 

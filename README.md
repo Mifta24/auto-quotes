@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
+> — **Jack Kerouac**
 
 ---
 
