@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a journey, not a destination."  
-> — **Dan Millman**
+> "Do not allow your inner doubts to keep you from achieving what you can do."  
+> — **Lolly Daskal**
 
 ---
 
