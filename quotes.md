@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
-> — **Jack Kerouac**
+> "A diamond is a piece of charcoal that handled stress exceptionally well."  
+> — **Unknown**
 
 ---
 
