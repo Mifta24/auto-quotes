@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Make no small plans for they have no power to stir the soul."  
-> — **Niccolo Machiavelli**
+> "It is difficult to free fools from the chains they revere."  
+> — **Voltaire**
 
 ---
 
