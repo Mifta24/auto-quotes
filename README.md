@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Great things are not accomplished by those who yield to trends and fads and popular opinion."  
-> — **Jack Kerouac**
+> "Thinking is the hardest work there is. That is why so few people engage in it."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 27 August 2026 ⏳_
+_Last updated: 28 August 2026 ⏳_

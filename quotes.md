@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A diamond is a piece of charcoal that handled stress exceptionally well."  
-> — **Unknown**
+> "Thinking is the hardest work there is. That is why so few people engage in it."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 27 August 2026 ⏳_
+_Last updated: 28 August 2026 ⏳_
