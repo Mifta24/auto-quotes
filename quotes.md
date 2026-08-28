@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is. That is why so few people engage in it."  
-> — **Robert Kiyosaki**
+> "Make no small plans for they have no power to stir the soul."  
+> — **Niccolo Machiavelli**
 
 ---
 
