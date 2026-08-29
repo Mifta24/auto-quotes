@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is difficult to free fools from the chains they revere."  
-> — **Voltaire**
+> "Men trust their ears less than their eyes."  
+> — **Herodotus**
 
 ---
 
-_Last updated: 28 August 2026 ⏳_
+_Last updated: 29 August 2026 ⏳_

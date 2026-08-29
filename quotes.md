@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "Men trust their ears less than their eyes."  
+> — **Herodotus**
 
 ---
 
-_Last updated: 28 August 2026 ⏳_
+_Last updated: 29 August 2026 ⏳_
