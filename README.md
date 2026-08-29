@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men trust their ears less than their eyes."  
-> — **Herodotus**
+> "Absorb what is useful, discard what is not, add what is uniquely your own."  
+> — **Bruce Lee**
 
 ---
 
