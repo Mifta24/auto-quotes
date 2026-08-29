@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From error to error one discovers the entire truth."  
-> — **Sigmund Freud**
+> "See what you're doing wrong, laugh at it, change and do better."  
+> — **Spencer Johnson**
 
 ---
 

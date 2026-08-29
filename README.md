@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
-> — **Criss Jami**
+> "See what you're doing wrong, laugh at it, change and do better."  
+> — **Spencer Johnson**
 
 ---
 
