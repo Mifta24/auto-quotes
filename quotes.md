@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "See what you're doing wrong, laugh at it, change and do better."  
-> — **Spencer Johnson**
+> "Those who attain the middle Dominate the whole."  
+> — **Ming-Dao Deng**
 
 ---
 
