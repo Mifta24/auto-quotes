@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "The greatest miracle is to be alive."  
+> — **Thich Nhat Hanh**
 
 ---
 
