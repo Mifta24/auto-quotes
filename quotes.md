@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
-> — **James Allen**
+> "There is only the one reality, neither to be realized nor attained."  
+> — **Huang Po**
 
 ---
 
