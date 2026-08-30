@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "Nothing in this universe occurs by accident."  
+> — **Neale Donald Walsch**
 
 ---
 

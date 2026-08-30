@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest miracle is to be alive."  
-> — **Thich Nhat Hanh**
+> "Nothing in this universe occurs by accident."  
+> — **Neale Donald Walsch**
 
 ---
 
