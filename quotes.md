@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who attain the middle Dominate the whole."  
-> — **Ming-Dao Deng**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 29 August 2026 ⏳_
+_Last updated: 30 August 2026 ⏳_

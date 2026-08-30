@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "See what you're doing wrong, laugh at it, change and do better."  
-> — **Spencer Johnson**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
-_Last updated: 29 August 2026 ⏳_
+_Last updated: 30 August 2026 ⏳_
