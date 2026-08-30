@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing in this universe occurs by accident."  
-> — **Neale Donald Walsch**
+> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
+> — **James Allen**
 
 ---
 

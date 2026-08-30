@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself."  
-> — **Alexander Graham Bell**
+> "All that a man achieves and all that he fails to achieve is the direct result of his own thoughts."  
+> — **James Allen**
 
 ---
 
