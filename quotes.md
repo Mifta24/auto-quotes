@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is only the one reality, neither to be realized nor attained."  
-> — **Huang Po**
+> "Acknowledging the good that you already have in your life is the foundation for all abundance."  
+> — **Eckhart Tolle**
 
 ---
 
