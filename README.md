@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
-> — **Billie Jean King**
+> "Throw your heart over the bar and your body will follow."  
+> — **Norman Vincent Peale**
 
 ---
 

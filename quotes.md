@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen."  
-> — **Winston Churchill**
+> "Throw your heart over the bar and your body will follow."  
+> — **Norman Vincent Peale**
 
 ---
 
