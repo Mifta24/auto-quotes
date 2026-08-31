@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throw your heart over the bar and your body will follow."  
-> — **Norman Vincent Peale**
+> "There are people who have money and people who are rich."  
+> — **Coco Chanel**
 
 ---
 
