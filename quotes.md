@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We have more possibilities available in each moment than we realize."  
-> — **Thich Nhat Hanh**
+> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
+> — **Billie Jean King**
 
 ---
 
-_Last updated: 30 August 2026 ⏳_
+_Last updated: 31 August 2026 ⏳_
