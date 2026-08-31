@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are people who have money and people who are rich."  
-> — **Coco Chanel**
+> "Failure is not fatal, but failure to change might be."  
+> — **John Wooden**
 
 ---
 
