@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
-> — **Billie Jean King**
+> "Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen."  
+> — **Winston Churchill**
 
 ---
 
