@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead."  
-> — **Samuel Butler**
+> "People think you're crazy if you talk about things they don't understand."  
+> — **Elvis Presley**
 
 ---
 
