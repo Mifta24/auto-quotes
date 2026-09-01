@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People think you're crazy if you talk about things they don't understand."  
-> — **Elvis Presley**
+> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
+> — **Zig Ziglar**
 
 ---
 
