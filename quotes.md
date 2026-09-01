@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you do not get the chills when you set your goal you're not setting big enough goals."  
-> — **Bob Proctor**
+> "There are no ordinary moments."  
+> — **Dan Millman**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is not outside man; it is within."  
-> — **George Eliot**
+> "There are no ordinary moments."  
+> — **Dan Millman**
 
 ---
 
