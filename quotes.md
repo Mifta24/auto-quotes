@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never allow someone to be your priority while allowing yourself to be their option."  
-> — **Mark Twain**
+> "Adventure is not outside man; it is within."  
+> — **George Eliot**
 
 ---
 
