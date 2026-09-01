@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no ordinary moments."  
-> — **Dan Millman**
+> "Where there is no struggle, there is no strength."  
+> — **Oprah Winfrey**
 
 ---
 
