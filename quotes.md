@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Adventure is not outside man; it is within."  
-> — **George Eliot**
+> "If you do not get the chills when you set your goal you're not setting big enough goals."  
+> — **Bob Proctor**
 
 ---
 
