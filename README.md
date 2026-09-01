@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There are people who have money and people who are rich."  
-> — **Coco Chanel**
+> "Truth is like the sun. You can shut it out for a time, but it ain't going away."  
+> — **Elvis Presley**
 
 ---
 
-_Last updated: 31 August 2026 ⏳_
+_Last updated: 01 September 2026 ⏳_
