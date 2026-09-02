@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily."  
-> — **Zig Ziglar**
+> "New opinions are always suspected, and usually opposed, without any other reason but because they are not common."  
+> — **John Locke**
 
 ---
 
-_Last updated: 01 September 2026 ⏳_
+_Last updated: 02 September 2026 ⏳_

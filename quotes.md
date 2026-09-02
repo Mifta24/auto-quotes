@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure is feedback. Learn from it and move on."  
-> — **Jack Butcher**
+> "New opinions are always suspected, and usually opposed, without any other reason but because they are not common."  
+> — **John Locke**
 
 ---
 
-_Last updated: 01 September 2026 ⏳_
+_Last updated: 02 September 2026 ⏳_
