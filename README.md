@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
-> — **Zen Proverb**
+> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."  
+> — **Tony Robbins**
 
 ---
 
