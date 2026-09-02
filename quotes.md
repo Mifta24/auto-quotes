@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking."  
-> — **Steve Jobs**
+> "Focus is a matter of deciding what things you're not going to do."  
+> — **John Carmack**
 
 ---
 
