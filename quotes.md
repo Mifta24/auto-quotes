@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
-> — **Sathya Sai Baba**
+> "You talk when you cease to be at peace with your thoughts."  
+> — **Kahlil Gibran**
 
 ---
 
