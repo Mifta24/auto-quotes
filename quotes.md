@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
-> — **Zen Proverb**
+> "The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."  
+> — **Stephen Hawking**
 
 ---
 
