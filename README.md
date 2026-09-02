@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "New opinions are always suspected, and usually opposed, without any other reason but because they are not common."  
-> — **John Locke**
+> "Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking."  
+> — **Steve Jobs**
 
 ---
 
