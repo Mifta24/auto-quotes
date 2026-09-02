@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
-> — **Sathya Sai Baba**
+> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
+> — **Zen Proverb**
 
 ---
 

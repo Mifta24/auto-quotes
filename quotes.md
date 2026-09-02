@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You talk when you cease to be at peace with your thoughts."  
-> — **Kahlil Gibran**
+> "Only when you can be extremely pliable and soft can you be extremely hard and strong."  
+> — **Zen Proverb**
 
 ---
 
