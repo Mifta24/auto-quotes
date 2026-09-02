@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Focus is a matter of deciding what things you're not going to do."  
-> — **John Carmack**
+> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
+> — **Sathya Sai Baba**
 
 ---
 

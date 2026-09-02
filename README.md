@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking."  
-> — **Steve Jobs**
+> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."  
+> — **Sathya Sai Baba**
 
 ---
 
