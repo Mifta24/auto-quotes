@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something threatens your identity, the more you will avoid it."  
-> — **Mark Manson**
+> "Why fit in when you were born to stand out?"  
+> — **Dr. Seuss**
 
 ---
 
