@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your success and happiness lie in you."  
-> — **Helen Keller**
+> "The more something threatens your identity, the more you will avoid it."  
+> — **Mark Manson**
 
 ---
 
