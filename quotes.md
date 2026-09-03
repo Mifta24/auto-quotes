@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the dancer and you are the dance."  
-> — **Eckhart Tolle**
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
+> — **Criss Jami**
 
 ---
 
