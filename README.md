@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "Life is the dancer and you are the dance."  
+> — **Eckhart Tolle**
 
 ---
 
