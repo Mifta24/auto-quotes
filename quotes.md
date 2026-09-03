@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Those who are easily shocked should be shocked more often."  
-> — **Mae West**
+> "The whole of life, from the moment you are born to the moment you die, is a process of learning."  
+> — **Jiddu Krishnamurti**
 
 ---
 
