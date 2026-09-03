@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more something threatens your identity, the more you will avoid it."  
-> — **Mark Manson**
+> "There is no self-discovery without pain and loss."  
+> — **Anita Krizzan**
 
 ---
 
