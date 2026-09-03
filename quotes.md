@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your success and happiness lie in you."  
-> — **Helen Keller**
+> "You cannot swim for new horizons until you have courage to lose sight of the shore."  
+> — **William Faulkner**
 
 ---
 
