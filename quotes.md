@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Why fit in when you were born to stand out?"  
-> — **Dr. Seuss**
+> "The person who says something is impossible should not interrupt the person who is doing it."  
+> — **Chinese Proverb**
 
 ---
 
