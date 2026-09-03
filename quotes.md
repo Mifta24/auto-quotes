@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."  
-> — **Criss Jami**
+> "Those who are easily shocked should be shocked more often."  
+> — **Mae West**
 
 ---
 

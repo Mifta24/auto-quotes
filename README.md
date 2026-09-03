@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the dancer and you are the dance."  
-> — **Eckhart Tolle**
+> "Those who are easily shocked should be shocked more often."  
+> — **Mae West**
 
 ---
 
