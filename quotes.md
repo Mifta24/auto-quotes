@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise accomplish all that they want without arousing the envy or scorn of others."  
-> — **Ming-Dao Deng**
+> "Men are disturbed not by things, but by the view which they take of them."  
+> — **Epictetus**
 
 ---
 
