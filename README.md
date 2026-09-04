@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Those who are easily shocked should be shocked more often."  
-> — **Mae West**
+> "You do not read a book for the book's sake, but for your own."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 03 September 2026 ⏳_
+_Last updated: 04 September 2026 ⏳_

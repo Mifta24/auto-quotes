@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The whole of life, from the moment you are born to the moment you die, is a process of learning."  
-> — **Jiddu Krishnamurti**
+> "You do not read a book for the book's sake, but for your own."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 03 September 2026 ⏳_
+_Last updated: 04 September 2026 ⏳_
