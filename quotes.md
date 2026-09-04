@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "Only the hand that erases can write the true thing."  
+> — **Meister Eckhart**
 
 ---
 
