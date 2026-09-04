@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your mind will make you rich or poor, depending on the use you put to it."  
-> — **Brian Tracy**
+> "The wise accomplish all that they want without arousing the envy or scorn of others."  
+> — **Ming-Dao Deng**
 
 ---
 

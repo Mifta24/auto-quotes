@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "The wise accomplish all that they want without arousing the envy or scorn of others."  
+> — **Ming-Dao Deng**
 
 ---
 
