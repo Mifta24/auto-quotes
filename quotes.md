@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore."  
-> — **Chinese Proverb**
+> "Talk to someone about themselves and they'll listen for hours."  
+> — **Dale Carnegie**
 
 ---
 
