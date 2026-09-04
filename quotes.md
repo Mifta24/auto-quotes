@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work."  
-> — **Estee Lauder**
+> "No duty is more urgent than that of returning thanks."  
+> — **James Allen**
 
 ---
 

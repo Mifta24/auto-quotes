@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You do not read a book for the book's sake, but for your own."  
-> — **Earl Nightingale**
+> "No duty is more urgent than that of returning thanks."  
+> — **James Allen**
 
 ---
 
