@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the hand that erases can write the true thing."  
-> — **Meister Eckhart**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 

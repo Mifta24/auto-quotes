@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "What are we doing here, that is the question."  
+> — **Samuel Beckett**
 
 ---
 
