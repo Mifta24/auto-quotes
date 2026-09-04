@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You do not read a book for the book's sake, but for your own."  
-> — **Earl Nightingale**
+> "First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work."  
+> — **Estee Lauder**
 
 ---
 
