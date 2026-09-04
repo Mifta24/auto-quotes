@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What are we doing here, that is the question."  
-> — **Samuel Beckett**
+> "Your mind will make you rich or poor, depending on the use you put to it."  
+> — **Brian Tracy**
 
 ---
 
