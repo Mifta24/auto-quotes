@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise accomplish all that they want without arousing the envy or scorn of others."  
-> — **Ming-Dao Deng**
+> "Do not believe that you will reach your destination without leaving the shore."  
+> — **Chinese Proverb**
 
 ---
 

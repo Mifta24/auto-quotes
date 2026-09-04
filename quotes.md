@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are disturbed not by things, but by the view which they take of them."  
-> — **Epictetus**
+> "Do not believe that you will reach your destination without leaving the shore."  
+> — **Chinese Proverb**
 
 ---
 
