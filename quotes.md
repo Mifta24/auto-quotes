@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "From the errors of others, a wise man corrects his own."  
-> — **Publilius Syrus**
+> "To live is the rarest thing in the world. Most people exist, that is all."  
+> — **Oscar Wilde**
 
 ---
 

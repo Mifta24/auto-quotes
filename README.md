@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "To live is the rarest thing in the world. Most people exist, that is all."  
+> — **Oscar Wilde**
 
 ---
 
