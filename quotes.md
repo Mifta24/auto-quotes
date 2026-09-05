@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Shoot for the moon, because even if you miss, you'll land among the stars."  
-> — **Les Brown**
+> "Be not glad at the misfortune of another, though he may be your enemy."  
+> — **George Washington**
 
 ---
 
