@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge."  
-> — **Robert Greene**
+> "Shoot for the moon, because even if you miss, you'll land among the stars."  
+> — **Les Brown**
 
 ---
 

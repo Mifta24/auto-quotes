@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live is the rarest thing in the world. Most people exist, that is all."  
-> — **Oscar Wilde**
+> "Shoot for the moon, because even if you miss, you'll land among the stars."  
+> — **Les Brown**
 
 ---
 
