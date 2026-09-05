@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore."  
-> — **Chinese Proverb**
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 04 September 2026 ⏳_
+_Last updated: 05 September 2026 ⏳_
