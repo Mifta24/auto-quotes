@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let your mind stop you."  
-> — **Steve Harvey**
+> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
+> — **Brian Tracy**
 
 ---
 
