@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "From the errors of others, a wise man corrects his own."  
+> — **Publilius Syrus**
 
 ---
 
