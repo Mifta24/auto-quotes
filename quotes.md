@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't let your mind stop you."  
-> — **Steve Harvey**
+> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
+> — **Norman Vincent Peale**
 
 ---
 
