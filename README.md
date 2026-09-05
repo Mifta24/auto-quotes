@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Shoot for the moon, because even if you miss, you'll land among the stars."  
-> — **Les Brown**
+> "Don't let your mind stop you."  
+> — **Steve Harvey**
 
 ---
 

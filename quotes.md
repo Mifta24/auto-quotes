@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be not glad at the misfortune of another, though he may be your enemy."  
-> — **George Washington**
+> "Don't let your mind stop you."  
+> — **Steve Harvey**
 
 ---
 
