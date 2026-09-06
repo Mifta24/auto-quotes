@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The chief enemy of creativity is good sense."  
-> — **Pablo Picasso**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
-> — **Colin Powell**
+> "We learn to walk by falling down. If we never fell down, we would never walk."  
+> — **Robert Kiyosaki**
 
 ---
 
