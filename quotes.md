@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stop playing because we grow old; we grow old because we stop playing."  
-> — **George Bernard Shaw**
+> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
+> — **Mark Manson**
 
 ---
 
