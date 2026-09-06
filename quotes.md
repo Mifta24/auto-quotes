@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men do not attract which they want but that which they are."  
-> — **James Allen**
+> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
+> — **Ayn Rand**
 
 ---
 

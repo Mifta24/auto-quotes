@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We learn to walk by falling down. If we never fell down, we would never walk."  
-> — **Robert Kiyosaki**
+> "Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver."  
+> — **Ayn Rand**
 
 ---
 
