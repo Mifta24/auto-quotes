@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Become the kind of leader that people would follow voluntarily, even if you had no title or position."  
-> — **Brian Tracy**
+> "We don't stop playing because we grow old; we grow old because we stop playing."  
+> — **George Bernard Shaw**
 
 ---
 
-_Last updated: 05 September 2026 ⏳_
+_Last updated: 06 September 2026 ⏳_
