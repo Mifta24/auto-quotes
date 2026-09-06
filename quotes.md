@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
-> — **Colin Powell**
+> "The chief enemy of creativity is good sense."  
+> — **Pablo Picasso**
 
 ---
 
