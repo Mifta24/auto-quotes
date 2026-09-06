@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
+> — **Colin Powell**
 
 ---
 

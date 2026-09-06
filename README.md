@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stop playing because we grow old; we grow old because we stop playing."  
-> — **George Bernard Shaw**
+> "A dream doesn't become reality through magic it takes sweat, determination and hard work."  
+> — **Colin Powell**
 
 ---
 
