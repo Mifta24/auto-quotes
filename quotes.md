@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is created twice, first in the mind and then in reality."  
-> — **Robin Sharma**
+> "We build too many walls and not enough bridges."  
+> — **Isaac Newton**
 
 ---
 
