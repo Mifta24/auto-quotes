@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone."  
+> — **Jack Kerouac**
 
 ---
 
