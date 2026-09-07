@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The art of being happy lies in the power of extracting happiness from common things."  
-> — **Henry Ward Beecher**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 

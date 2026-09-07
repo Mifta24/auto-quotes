@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
-> — **Og Mandino**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
