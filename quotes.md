@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are the only problem you will ever have and you are the only solution."  
-> — **Bob Proctor**
+> "The greatest test of courage on earth is to bear defeat without losing heart."  
+> — **Robert Greene**
 
 ---
 
