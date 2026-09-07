@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest adventure is what lies ahead."  
-> — **J.R.R. Tolkien**
+> "I know of only one duty, and that is to love."  
+> — **George Bernard Shaw**
 
 ---
 
