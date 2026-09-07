@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing is easier than fault finding."  
-> — **Og Mandino**
+> "The art of being happy lies in the power of extracting happiness from common things."  
+> — **Henry Ward Beecher**
 
 ---
 
