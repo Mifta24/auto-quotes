@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest test of courage on earth is to bear defeat without losing heart."  
-> — **Robert Greene**
+> "Nothing is easier than fault finding."  
+> — **Og Mandino**
 
 ---
 
