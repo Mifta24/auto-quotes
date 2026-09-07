@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Everything is created twice, first in the mind and then in reality."  
-> — **Robin Sharma**
+> "The biggest adventure is what lies ahead."  
+> — **J.R.R. Tolkien**
 
 ---
 
-_Last updated: 06 September 2026 ⏳_
+_Last updated: 07 September 2026 ⏳_
