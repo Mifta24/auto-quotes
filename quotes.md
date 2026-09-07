@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I know of only one duty, and that is to love."  
-> — **George Bernard Shaw**
+> "You are the only problem you will ever have and you are the only solution."  
+> — **Bob Proctor**
 
 ---
 

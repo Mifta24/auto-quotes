@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The biggest adventure is what lies ahead."  
-> — **J.R.R. Tolkien**
+> "You are the only problem you will ever have and you are the only solution."  
+> — **Bob Proctor**
 
 ---
 
