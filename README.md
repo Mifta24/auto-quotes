@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Projecting your mind into a successful situation is the most powerful means to achieve goals."  
-> — **Estee Lauder**
+> "Wake up and smile! Wake up and be grateful!"  
+> — **Steve Harvey**
 
 ---
 

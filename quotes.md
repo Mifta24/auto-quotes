@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ego wants to go fast. The soul needs to go slow."  
-> — **Maxime Lagace**
+> "Wake up and smile! Wake up and be grateful!"  
+> — **Steve Harvey**
 
 ---
 
