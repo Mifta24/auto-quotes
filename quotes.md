@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What the mind can conceive and believe, and the heart desire, you can achieve."  
-> — **Norman Vincent Peale**
+> "You have the ability, now apply yourself."  
+> — **Benjamin Mays**
 
 ---
 
