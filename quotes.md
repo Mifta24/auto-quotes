@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Projecting your mind into a successful situation is the most powerful means to achieve goals."  
-> — **Estee Lauder**
+> "The ego wants to go fast. The soul needs to go slow."  
+> — **Maxime Lagace**
 
 ---
 
