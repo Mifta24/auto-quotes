@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."  
+> — **Steve Maraboli**
 
 ---
 
-_Last updated: 07 September 2026 ⏳_
+_Last updated: 08 September 2026 ⏳_
