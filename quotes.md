@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wake up and smile! Wake up and be grateful!"  
-> — **Steve Harvey**
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
+> — **Criss Jami**
 
 ---
 
