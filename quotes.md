@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You have the ability, now apply yourself."  
-> — **Benjamin Mays**
+> "I have never let my schooling interfere with my education."  
+> — **Mark Twain**
 
 ---
 
