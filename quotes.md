@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength."  
-> — **Criss Jami**
+> "What the mind can conceive and believe, and the heart desire, you can achieve."  
+> — **Norman Vincent Peale**
 
 ---
 
