@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have never let my schooling interfere with my education."  
-> — **Mark Twain**
+> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."  
+> — **Sathya Sai Baba**
 
 ---
 
