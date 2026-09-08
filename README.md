@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."  
-> — **Steve Maraboli**
+> "Projecting your mind into a successful situation is the most powerful means to achieve goals."  
+> — **Estee Lauder**
 
 ---
 
