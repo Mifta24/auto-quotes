@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man is but a product of his thoughts. What he thinks he becomes."  
-> — **Mahatma Gandhi**
+> "The smallest of actions is always better than the noblest of intentions."  
+> — **Robin Sharma**
 
 ---
 
