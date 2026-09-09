@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I have never let my schooling interfere with my education."  
-> — **Mark Twain**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
-_Last updated: 08 September 2026 ⏳_
+_Last updated: 09 September 2026 ⏳_

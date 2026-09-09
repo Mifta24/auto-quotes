@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are."  
-> — **Sathya Sai Baba**
+> "Life is the art of drawing sufficient conclusions from insufficient premises."  
+> — **Samuel Butler**
 
 ---
 
-_Last updated: 08 September 2026 ⏳_
+_Last updated: 09 September 2026 ⏳_
