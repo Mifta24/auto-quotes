@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "There exists only the present instant; a Now which always and without end is itself new."  
+> — **Meister Eckhart**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great deeds are usually wrought at great risks."  
-> — **Herodotus**
+> "There exists only the present instant; a Now which always and without end is itself new."  
+> — **Meister Eckhart**
 
 ---
 
