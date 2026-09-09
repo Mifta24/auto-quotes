@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There exists only the present instant; a Now which always and without end is itself new."  
-> — **Meister Eckhart**
+> "Identify your problems, but give your power and energy to solutions."  
+> — **Tony Robbins**
 
 ---
 
