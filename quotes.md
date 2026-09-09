@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Setting goals is the first step in turning the invisible into the visible."  
-> — **Tony Robbins**
+> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
+> — **C. Sean McGee**
 
 ---
 
