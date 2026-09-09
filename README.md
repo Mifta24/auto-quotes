@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There exists only the present instant; a Now which always and without end is itself new."  
-> — **Meister Eckhart**
+> "Setting goals is the first step in turning the invisible into the visible."  
+> — **Tony Robbins**
 
 ---
 

@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Identify your problems, but give your power and energy to solutions."  
+> "Setting goals is the first step in turning the invisible into the visible."  
 > — **Tony Robbins**
 
 ---
