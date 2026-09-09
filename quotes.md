@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between ordinary and extraordinary is that little extra."  
-> — **Colin R. Davis**
+> "A man is but a product of his thoughts. What he thinks he becomes."  
+> — **Mahatma Gandhi**
 
 ---
 

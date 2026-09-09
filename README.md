@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
-> — **Charles Dickens**
+> "A man is but a product of his thoughts. What he thinks he becomes."  
+> — **Mahatma Gandhi**
 
 ---
 
