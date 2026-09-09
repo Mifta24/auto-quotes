@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is the art of drawing sufficient conclusions from insufficient premises."  
-> — **Samuel Butler**
+> "Great deeds are usually wrought at great risks."  
+> — **Herodotus**
 
 ---
 
