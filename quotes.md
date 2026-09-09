@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What's the point in being smart enough to read, if everything you read makes you dumb?"  
-> — **C. Sean McGee**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 

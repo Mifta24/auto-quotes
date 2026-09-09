@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Setting goals is the first step in turning the invisible into the visible."  
-> — **Tony Robbins**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 
