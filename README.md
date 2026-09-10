@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people don't like change, but you need to embrace change if the alternative is disaster."  
-> — **Elon Musk**
+> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
+> — **Dan Millman**
 
 ---
 

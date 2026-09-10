@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Animals don't hate, and we're supposed to be better than them."  
-> — **Elvis Presley**
+> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
+> — **Dan Millman**
 
 ---
 
