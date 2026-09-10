@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The world doesn't owe you anything. It was here first."  
-> — **Mark Twain**
+> "My powers are ordinary. Only my application brings me success."  
+> — **Isaac Newton**
 
 ---
 
