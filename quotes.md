@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The smallest of actions is always better than the noblest of intentions."  
-> — **Robin Sharma**
+> "The quality of your commitments will determine the course of your life."  
+> — **Ralph Marston**
 
 ---
 
-_Last updated: 09 September 2026 ⏳_
+_Last updated: 10 September 2026 ⏳_

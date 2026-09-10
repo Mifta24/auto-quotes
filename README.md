@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A man is but a product of his thoughts. What he thinks he becomes."  
-> — **Mahatma Gandhi**
+> "The quality of your commitments will determine the course of your life."  
+> — **Ralph Marston**
 
 ---
 
-_Last updated: 09 September 2026 ⏳_
+_Last updated: 10 September 2026 ⏳_
