@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some people don't like change, but you need to embrace change if the alternative is disaster."  
-> — **Elon Musk**
+> "Animals don't hate, and we're supposed to be better than them."  
+> — **Elvis Presley**
 
 ---
 
