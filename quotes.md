@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your commitments will determine the course of your life."  
-> — **Ralph Marston**
+> "Life moves on and so should we."  
+> — **Spencer Johnson**
 
 ---
 
