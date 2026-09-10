@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "The world doesn't owe you anything. It was here first."  
+> — **Mark Twain**
 
 ---
 

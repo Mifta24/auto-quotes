@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive."  
-> — **Maxime Lagace**
+> "The world doesn't owe you anything. It was here first."  
+> — **Mark Twain**
 
 ---
 
