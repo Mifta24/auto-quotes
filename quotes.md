@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
-> — **Kahlil Gibran**
+> "Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive."  
+> — **Maxime Lagace**
 
 ---
 

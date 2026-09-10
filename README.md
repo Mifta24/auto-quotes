@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
-> — **Dan Millman**
+> "Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive."  
+> — **Maxime Lagace**
 
 ---
 
