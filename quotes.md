@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "May you find grace as you surrender to life. May you find happiness, as you stop seeking it."  
-> — **Dan Millman**
+> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
+> — **Kahlil Gibran**
 
 ---
 
