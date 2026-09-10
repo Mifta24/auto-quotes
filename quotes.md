@@ -1,6 +1,6 @@
 # 📜 Daily Quote
 
-> "Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive."  
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
 > — **Maxime Lagace**
 
 ---
