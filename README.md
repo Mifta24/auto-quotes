@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The quality of your commitments will determine the course of your life."  
-> — **Ralph Marston**
+> "Some people don't like change, but you need to embrace change if the alternative is disaster."  
+> — **Elon Musk**
 
 ---
 
