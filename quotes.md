@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Honesty is the first chapter in the book of wisdom."  
-> — **Thomas Jefferson**
+> "Everyone you admire was once a beginner."  
+> — **Jack Butcher**
 
 ---
 

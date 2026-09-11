@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What would you do if you weren't afraid?"  
-> — **Spencer Johnson**
+> "Everyone you admire was once a beginner."  
+> — **Jack Butcher**
 
 ---
 
