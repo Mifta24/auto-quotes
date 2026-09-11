@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Walking with a friend in the dark is better than walking alone in the light."  
-> — **Helen Keller**
+> "Whenever people agree with me I always feel I must be wrong."  
+> — **Oscar Wilde**
 
 ---
 
