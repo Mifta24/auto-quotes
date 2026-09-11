@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone you admire was once a beginner."  
-> — **Jack Butcher**
+> "Walking with a friend in the dark is better than walking alone in the light."  
+> — **Helen Keller**
 
 ---
 
