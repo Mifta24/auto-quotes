@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
+> — **Brian Tracy**
 
 ---
 
