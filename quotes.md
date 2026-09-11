@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."  
-> — **Barack Obama**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 

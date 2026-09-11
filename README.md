@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The price of inaction is far greater than the cost of making a mistake."  
-> — **Meister Eckhart**
+> "He who cheats the earth will be cheated by the earth."  
+> — **Chinese Proverb**
 
 ---
 
