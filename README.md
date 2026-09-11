@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Walking with a friend in the dark is better than walking alone in the light."  
-> — **Helen Keller**
+> "The price of inaction is far greater than the cost of making a mistake."  
+> — **Meister Eckhart**
 
 ---
 

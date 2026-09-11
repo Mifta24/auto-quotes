@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever people agree with me I always feel I must be wrong."  
-> — **Oscar Wilde**
+> "The price of inaction is far greater than the cost of making a mistake."  
+> — **Meister Eckhart**
 
 ---
 
