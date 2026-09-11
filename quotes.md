@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "My powers are ordinary. Only my application brings me success."  
-> — **Isaac Newton**
+> "What would you do if you weren't afraid?"  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 10 September 2026 ⏳_
+_Last updated: 11 September 2026 ⏳_

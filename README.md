@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The world doesn't owe you anything. It was here first."  
-> — **Mark Twain**
+> "What would you do if you weren't afraid?"  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 10 September 2026 ⏳_
+_Last updated: 11 September 2026 ⏳_
