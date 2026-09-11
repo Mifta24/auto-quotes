@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What would you do if you weren't afraid?"  
-> — **Spencer Johnson**
+> "Honesty is the first chapter in the book of wisdom."  
+> — **Thomas Jefferson**
 
 ---
 
