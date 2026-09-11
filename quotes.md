@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The price of inaction is far greater than the cost of making a mistake."  
-> — **Meister Eckhart**
+> "it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds."  
+> — **Barack Obama**
 
 ---
 
