@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the hand that erases can write the true thing."  
-> — **Meister Eckhart**
+> "Throughout this life, you can never be certain of living long enough to take another breath."  
+> — **Zen Proverb**
 
 ---
 
