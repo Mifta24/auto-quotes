@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not what happened to me, I am what I choose to become."  
-> — **Carl Jung**
+> "Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through."  
+> — **Jonathan Swift**
 
 ---
 
