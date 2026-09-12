@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
-> — **Carl Jung**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 

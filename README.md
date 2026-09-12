@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To affect the quality of the day, that is the highest of arts."  
-> — **Henry David Thoreau**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
