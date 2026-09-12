@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "Only the hand that erases can write the true thing."  
+> — **Meister Eckhart**
 
 ---
 
