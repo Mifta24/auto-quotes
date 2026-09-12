@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am not what happened to me, I am what I choose to become."  
-> — **Carl Jung**
+> "Everything you've ever wanted is on the other side of fear."  
+> — **Brian Tracy**
 
 ---
 

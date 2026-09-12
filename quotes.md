@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through."  
-> — **Jonathan Swift**
+> "Everything you've ever wanted is on the other side of fear."  
+> — **Brian Tracy**
 
 ---
 
