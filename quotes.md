@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves."  
-> — **Brian Tracy**
+> "To affect the quality of the day, that is the highest of arts."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 11 September 2026 ⏳_
+_Last updated: 12 September 2026 ⏳_

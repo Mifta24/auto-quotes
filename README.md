@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "He who cheats the earth will be cheated by the earth."  
-> — **Chinese Proverb**
+> "To affect the quality of the day, that is the highest of arts."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 11 September 2026 ⏳_
+_Last updated: 12 September 2026 ⏳_
