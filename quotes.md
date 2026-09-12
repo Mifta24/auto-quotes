@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Throughout this life, you can never be certain of living long enough to take another breath."  
-> — **Zen Proverb**
+> "He that can have patience can have what he will."  
+> — **Benjamin Franklin**
 
 ---
 
