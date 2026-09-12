@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To affect the quality of the day, that is the highest of arts."  
-> — **Henry David Thoreau**
+> "Knowing your own darkness is the best method for dealing with the darknesses of other people."  
+> — **Carl Jung**
 
 ---
 
