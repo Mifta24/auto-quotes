@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He that can have patience can have what he will."  
-> — **Benjamin Franklin**
+> "I am not what happened to me, I am what I choose to become."  
+> — **Carl Jung**
 
 ---
 
