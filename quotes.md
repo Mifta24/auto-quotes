@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
-> — **Stephen King**
+> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
+> — **Mother Teresa**
 
 ---
 
