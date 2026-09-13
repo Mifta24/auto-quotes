@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
-> — **Stephen King**
+> "The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened."  
+> — **Kamal Ravikant**
 
 ---
 

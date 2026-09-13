@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I alone cannot change the world, but I can cast a stone across the waters to create many ripples."  
-> — **Mother Teresa**
+> "The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened."  
+> — **Kamal Ravikant**
 
 ---
 
