@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore."  
-> — **Chinese Proverb**
+> "Respect is earned by effort not age, all things age without effort."  
+> — **C. Sean McGee**
 
 ---
 
