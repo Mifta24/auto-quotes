@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Where there is no struggle, there is no strength."  
-> — **Oprah Winfrey**
+> "Do not believe that you will reach your destination without leaving the shore."  
+> — **Chinese Proverb**
 
 ---
 
-_Last updated: 12 September 2026 ⏳_
+_Last updated: 13 September 2026 ⏳_
