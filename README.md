@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not believe that you will reach your destination without leaving the shore."  
-> — **Chinese Proverb**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 

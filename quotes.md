@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 
