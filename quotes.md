@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature!"  
-> — **Charles Darwin**
+> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
+> — **Unknown**
 
 ---
 
