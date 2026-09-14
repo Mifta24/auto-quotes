@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience never fears midnight knocking."  
-> — **Chinese Proverb**
+> "The best way out is always through."  
+> — **Robert Frost**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to understanding is a few good examples."  
-> — **Isaac Newton**
+> "The best way out is always through."  
+> — **Robert Frost**
 
 ---
 
