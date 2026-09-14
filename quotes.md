@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Wealth consists not in having great possessions, but in having few wants."  
+> — **Epictetus**
 
 ---
 
