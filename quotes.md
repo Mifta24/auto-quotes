@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
-> — **Napoleon Hill**
+> "Many a man has failed because he had his wishbone where his backbone should have been."  
+> — **Ronald Reagan**
 
 ---
 
