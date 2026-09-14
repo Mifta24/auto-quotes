@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Invisible things are the only realities."  
-> — **Edgar Allan Poe**
+> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
+> — **Napoleon Hill**
 
 ---
 

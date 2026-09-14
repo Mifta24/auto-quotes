@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Wealth consists not in having great possessions, but in having few wants."  
-> — **Epictetus**
+> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
+> — **Napoleon Hill**
 
 ---
 
