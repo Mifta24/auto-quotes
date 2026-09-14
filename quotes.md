@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way out is always through."  
-> — **Robert Frost**
+> "I have lived with several Zen masters -- all of them cats."  
+> — **Eckhart Tolle**
 
 ---
 
