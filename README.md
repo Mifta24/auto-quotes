@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
-> — **Napoleon Hill**
+> "A clear conscience never fears midnight knocking."  
+> — **Chinese Proverb**
 
 ---
 
