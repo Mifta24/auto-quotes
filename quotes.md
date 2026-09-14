@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A clear conscience never fears midnight knocking."  
-> — **Chinese Proverb**
+> "The best way to understanding is a few good examples."  
+> — **Isaac Newton**
 
 ---
 
