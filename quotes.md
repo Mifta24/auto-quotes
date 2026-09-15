@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The attempt to escape from pain, is what creates more pain."  
-> — **Gabor Mate**
+> "Anger exceeding limits causes fear and excessive kindness eliminates respect."  
+> — **Euripides**
 
 ---
 

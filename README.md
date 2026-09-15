@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The successful warrior is the average man, with laser-like focus."  
-> — **Bruce Lee**
+> "Anger exceeding limits causes fear and excessive kindness eliminates respect."  
+> — **Euripides**
 
 ---
 
