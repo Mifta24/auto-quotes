@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I have lived with several Zen masters -- all of them cats."  
-> — **Eckhart Tolle**
+> "Our attitude toward life determines life's attitude towards us."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 14 September 2026 ⏳_
+_Last updated: 15 September 2026 ⏳_

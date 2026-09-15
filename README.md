@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The best way out is always through."  
-> — **Robert Frost**
+> "Our attitude toward life determines life's attitude towards us."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 14 September 2026 ⏳_
+_Last updated: 15 September 2026 ⏳_
