@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our attitude toward life determines life's attitude towards us."  
-> — **Earl Nightingale**
+> "Be like a postage stamp. Stick to it until you get there."  
+> — **Bob Proctor**
 
 ---
 
