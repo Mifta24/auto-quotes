@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our attitude toward life determines life's attitude towards us."  
-> — **Earl Nightingale**
+> "Perseverance and spirit have done wonders in all ages."  
+> — **George Washington**
 
 ---
 

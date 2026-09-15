@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be like a postage stamp. Stick to it until you get there."  
-> — **Bob Proctor**
+> "Perseverance and spirit have done wonders in all ages."  
+> — **George Washington**
 
 ---
 
