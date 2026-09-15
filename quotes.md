@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you are tough on yourself, life is going to be infinitely easier on you."  
-> — **Zig Ziglar**
+> "Every limit is a beginning as well as an ending."  
+> — **George Eliot**
 
 ---
 

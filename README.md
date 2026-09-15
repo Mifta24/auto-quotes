@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages."  
-> — **George Washington**
+> "Every limit is a beginning as well as an ending."  
+> — **George Eliot**
 
 ---
 
