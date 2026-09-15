@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It always started with a dream."  
-> — **Conrad Hilton**
+> "The successful warrior is the average man, with laser-like focus."  
+> — **Bruce Lee**
 
 ---
 

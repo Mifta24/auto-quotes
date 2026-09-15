@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every limit is a beginning as well as an ending."  
-> — **George Eliot**
+> "The successful warrior is the average man, with laser-like focus."  
+> — **Bruce Lee**
 
 ---
 
