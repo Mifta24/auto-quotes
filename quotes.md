@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The successful warrior is the average man, with laser-like focus."  
-> — **Bruce Lee**
+> "The attempt to escape from pain, is what creates more pain."  
+> — **Gabor Mate**
 
 ---
 
