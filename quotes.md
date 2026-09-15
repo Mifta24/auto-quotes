@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anger exceeding limits causes fear and excessive kindness eliminates respect."  
-> — **Euripides**
+> "Truth is such a rare thing, it is delighted to tell it."  
+> — **Emily Dickinson**
 
 ---
 
