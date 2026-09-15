@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages."  
-> — **George Washington**
+> "When you are tough on yourself, life is going to be infinitely easier on you."  
+> — **Zig Ziglar**
 
 ---
 
