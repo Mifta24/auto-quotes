@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing endures but change."  
-> — **Heraclitus**
+> "He who leaves the game wins it."  
+> — **Nicolas Chamfort**
 
 ---
 
