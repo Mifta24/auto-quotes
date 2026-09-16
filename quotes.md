@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "Science can flourish only in an atmosphere of free speech."  
+> — **Albert Einstein**
 
 ---
 

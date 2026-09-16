@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With self-discipline, almost anything is possible."  
-> — **Theodore Roosevelt**
+> "Science can flourish only in an atmosphere of free speech."  
+> — **Albert Einstein**
 
 ---
 
