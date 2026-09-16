@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Talk to someone about themselves and they'll listen for hours."  
-> — **Dale Carnegie**
+> "Do not look for a sanctuary in anyone except your self."  
+> — **Buddha**
 
 ---
 
