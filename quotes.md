@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With self-discipline, almost anything is possible."  
-> — **Theodore Roosevelt**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 
