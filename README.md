@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Anger exceeding limits causes fear and excessive kindness eliminates respect."  
-> — **Euripides**
+> "We forge the chains we wear in life."  
+> — **Charles Dickens**
 
 ---
 
-_Last updated: 15 September 2026 ⏳_
+_Last updated: 16 September 2026 ⏳_

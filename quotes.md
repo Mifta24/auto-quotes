@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Truth is such a rare thing, it is delighted to tell it."  
-> — **Emily Dickinson**
+> "We forge the chains we wear in life."  
+> — **Charles Dickens**
 
 ---
 
-_Last updated: 15 September 2026 ⏳_
+_Last updated: 16 September 2026 ⏳_
