@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who leaves the game wins it."  
-> — **Nicolas Chamfort**
+> "Talk to someone about themselves and they'll listen for hours."  
+> — **Dale Carnegie**
 
 ---
 
