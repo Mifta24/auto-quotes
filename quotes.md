@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who leaves the game wins it."  
-> — **Nicolas Chamfort**
+> "Let not your mind run on what you lack as much as on what you have already."  
+> — **Marcus Aurelius**
 
 ---
 
