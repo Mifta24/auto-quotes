@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We forge the chains we wear in life."  
-> — **Charles Dickens**
+> "With self-discipline, almost anything is possible."  
+> — **Theodore Roosevelt**
 
 ---
 
