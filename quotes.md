@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Science can flourish only in an atmosphere of free speech."  
-> — **Albert Einstein**
+> "Nothing endures but change."  
+> — **Heraclitus**
 
 ---
 
