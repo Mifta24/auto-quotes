@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are now, and you do become, what you think about."  
-> — **Earl Nightingale**
+> "Selfishness and greed, individual or national, cause most of our troubles."  
+> — **Harry S. Truman**
 
 ---
 

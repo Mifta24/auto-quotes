@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember the entrance to the sanctuary is inside you."  
-> — **Rumi**
+> "Selfishness and greed, individual or national, cause most of our troubles."  
+> — **Harry S. Truman**
 
 ---
 
