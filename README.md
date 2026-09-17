@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
-> — **Robert Kiyosaki**
+> "Remember the entrance to the sanctuary is inside you."  
+> — **Rumi**
 
 ---
 
