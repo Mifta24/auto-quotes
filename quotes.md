@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Do not look for a sanctuary in anyone except your self."  
-> — **Buddha**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
-_Last updated: 16 September 2026 ⏳_
+_Last updated: 17 September 2026 ⏳_

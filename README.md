@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Talk to someone about themselves and they'll listen for hours."  
-> — **Dale Carnegie**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
-_Last updated: 16 September 2026 ⏳_
+_Last updated: 17 September 2026 ⏳_
