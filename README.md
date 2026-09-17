@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of your greatest lessons come from your darkest moments."  
-> — **Roger Lee**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 

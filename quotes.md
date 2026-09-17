@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We will now discuss in a little more detail the Struggle for Existence."  
-> — **Charles Darwin**
+> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
+> — **Robert Kiyosaki**
 
 ---
 
