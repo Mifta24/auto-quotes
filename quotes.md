@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "Be curious, not judgmental."  
+> — **Walt Whitman**
 
 ---
 
