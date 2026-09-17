@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Some of your greatest lessons come from your darkest moments."  
-> — **Roger Lee**
+> "We will now discuss in a little more detail the Struggle for Existence."  
+> — **Charles Darwin**
 
 ---
 
