@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."  
-> — **Robert Kiyosaki**
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road."  
+> — **Henry Ward Beecher**
 
 ---
 
