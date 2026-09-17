@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remember the entrance to the sanctuary is inside you."  
-> — **Rumi**
+> "You are now, and you do become, what you think about."  
+> — **Earl Nightingale**
 
 ---
 
