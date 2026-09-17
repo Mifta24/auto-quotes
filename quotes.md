@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be curious, not judgmental."  
-> — **Walt Whitman**
+> "Some of your greatest lessons come from your darkest moments."  
+> — **Roger Lee**
 
 ---
 

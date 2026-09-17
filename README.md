@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "Some of your greatest lessons come from your darkest moments."  
+> — **Roger Lee**
 
 ---
 
