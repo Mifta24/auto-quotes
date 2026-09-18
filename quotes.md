@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars."  
-> — **Oscar Wilde**
+> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
+> — **Sathya Sai Baba**
 
 ---
 
