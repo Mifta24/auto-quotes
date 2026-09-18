@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Blessed is he who expects nothing, for he shall never be disappointed."  
-> — **Alexander Pope**
+> "Let us always meet each other with smile, for the smile is the beginning of love."  
+> — **Mother Teresa**
 
 ---
 
