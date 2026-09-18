@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're afraid - don't do it, - if you're doing it - don't be afraid!"  
-> — **Genghis Khan**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 

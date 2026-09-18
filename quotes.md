@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is always right to do what is right."  
-> — **Martin Luther King, Jr.**
+> "He who knows best knows how little he knows."  
+> — **Thomas Jefferson**
 
 ---
 
