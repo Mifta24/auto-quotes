@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What we dwell on is who we become."  
-> — **Oprah Winfrey**
+> "There is no such thing as a great talent without great willpower."  
+> — **Honore de Balzac**
 
 ---
 
