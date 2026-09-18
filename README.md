@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Blessed is he who expects nothing, for he shall never be disappointed."  
-> — **Alexander Pope**
+> "If you're afraid - don't do it, - if you're doing it - don't be afraid!"  
+> — **Genghis Khan**
 
 ---
 

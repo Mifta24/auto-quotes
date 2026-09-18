@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Let us always meet each other with smile, for the smile is the beginning of love."  
-> — **Mother Teresa**
+> "If you're afraid - don't do it, - if you're doing it - don't be afraid!"  
+> — **Genghis Khan**
 
 ---
 
