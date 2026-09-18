@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is no such thing as a great talent without great willpower."  
-> — **Honore de Balzac**
+> "We are all in the gutter, but some of us are looking at the stars."  
+> — **Oscar Wilde**
 
 ---
 

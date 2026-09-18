@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What we dwell on is who we become."  
-> — **Oprah Winfrey**
+> "We are all in the gutter, but some of us are looking at the stars."  
+> — **Oscar Wilde**
 
 ---
 
