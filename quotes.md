@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're afraid - don't do it, - if you're doing it - don't be afraid!"  
-> — **Genghis Khan**
+> "The time is always right to do what is right."  
+> — **Martin Luther King, Jr.**
 
 ---
 
