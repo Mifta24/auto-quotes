@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Knowing yourself is the beginning of all wisdom."  
-> — **Aristotle**
+> "What we dwell on is who we become."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 17 September 2026 ⏳_
+_Last updated: 18 September 2026 ⏳_

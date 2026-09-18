@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Selfishness and greed, individual or national, cause most of our troubles."  
-> — **Harry S. Truman**
+> "What we dwell on is who we become."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 17 September 2026 ⏳_
+_Last updated: 18 September 2026 ⏳_
