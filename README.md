@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars."  
-> — **Oscar Wilde**
+> "Blessed is he who expects nothing, for he shall never be disappointed."  
+> — **Alexander Pope**
 
 ---
 

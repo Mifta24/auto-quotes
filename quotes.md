@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Start the day with love, spend the day with love, fill the day with love and end the day with love."  
-> — **Sathya Sai Baba**
+> "Blessed is he who expects nothing, for he shall never be disappointed."  
+> — **Alexander Pope**
 
 ---
 
