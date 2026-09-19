@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness is the absence of the striving for happiness."  
-> — **Zhuangzi**
+> "First say to yourself what you would be; and then do what you have to do."  
+> — **Epictetus**
 
 ---
 
