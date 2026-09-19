@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You Create Your Own Present By What You Give Your Attention To Today."  
-> — **Spencer Johnson**
+> "Happiness is the absence of the striving for happiness."  
+> — **Zhuangzi**
 
 ---
 
