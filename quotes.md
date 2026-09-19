@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Insanity: doing the same thing over and over again and expecting different results."  
-> — **Albert Einstein**
+> "In peace, sons bury their fathers. In war, fathers bury their sons."  
+> — **Herodotus**
 
 ---
 
