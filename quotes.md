@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In peace, sons bury their fathers. In war, fathers bury their sons."  
-> — **Herodotus**
+> "Know your gifts and share them."  
+> — **Les Brown**
 
 ---
 
