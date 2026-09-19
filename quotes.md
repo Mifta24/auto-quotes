@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Know your gifts and share them."  
-> — **Les Brown**
+> "Relax. Nothing is under control."  
+> — **Adi Da Samraj**
 
 ---
 
