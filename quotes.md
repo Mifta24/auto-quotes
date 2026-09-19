@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Relax. Nothing is under control."  
-> — **Adi Da Samraj**
+> "The power of human thought grows exponentially with the number of minds that share that thought."  
+> — **Dan Brown**
 
 ---
 
