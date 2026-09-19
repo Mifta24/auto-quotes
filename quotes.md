@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we all did the things we are capable of doing, we would literally astound ourselves."  
-> — **Thomas Edison**
+> "My guiding principle is this: Guilt is never to be doubted."  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 18 September 2026 ⏳_
+_Last updated: 19 September 2026 ⏳_

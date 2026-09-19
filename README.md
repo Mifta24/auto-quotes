@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "He who knows best knows how little he knows."  
-> — **Thomas Jefferson**
+> "My guiding principle is this: Guilt is never to be doubted."  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 18 September 2026 ⏳_
+_Last updated: 19 September 2026 ⏳_
