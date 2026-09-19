@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry."  
-> — **Tony Robbins**
+> "Insanity: doing the same thing over and over again and expecting different results."  
+> — **Albert Einstein**
 
 ---
 
