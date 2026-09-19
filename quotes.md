@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My guiding principle is this: Guilt is never to be doubted."  
-> — **Franz Kafka**
+> "You Create Your Own Present By What You Give Your Attention To Today."  
+> — **Spencer Johnson**
 
 ---
 
