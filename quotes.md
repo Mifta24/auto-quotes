@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "First say to yourself what you would be; and then do what you have to do."  
-> — **Epictetus**
+> "I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry."  
+> — **Tony Robbins**
 
 ---
 
