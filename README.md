@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Relax. Nothing is under control."  
-> — **Adi Da Samraj**
+> "If you can't, you must. If you must, you can."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 19 September 2026 ⏳_
+_Last updated: 20 September 2026 ⏳_

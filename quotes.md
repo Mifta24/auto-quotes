@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The power of human thought grows exponentially with the number of minds that share that thought."  
-> — **Dan Brown**
+> "If you can't, you must. If you must, you can."  
+> — **Tony Robbins**
 
 ---
 
-_Last updated: 19 September 2026 ⏳_
+_Last updated: 20 September 2026 ⏳_
