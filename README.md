@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't, you must. If you must, you can."  
-> — **Tony Robbins**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "Stop wasting time defending your problems and work on addressing them instead."  
+> — **Celestine Chua**
 
 ---
 
