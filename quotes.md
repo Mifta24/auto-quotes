@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "Do not ignore the passion that burns in you. Spend time to discover your gift."  
+> — **Steve Harvey**
 
 ---
 
