@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
-> — **Charles Dickens**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
