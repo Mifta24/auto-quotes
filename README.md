@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Paths are made by walking."  
-> — **Franz Kafka**
+> "Who looks outside, dreams; who looks inside, awakes."  
+> — **Lolly Daskal**
 
 ---
 

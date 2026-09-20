@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many roads lead to the path, but basically there are only two: reason and practice."  
-> — **Bodhidharma**
+> "Who looks outside, dreams; who looks inside, awakes."  
+> — **Lolly Daskal**
 
 ---
 
