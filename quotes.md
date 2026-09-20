@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Stop wasting time defending your problems and work on addressing them instead."  
-> — **Celestine Chua**
+> "There is nothing in the world so irresistibly contagious as laughter and good humor."  
+> — **Charles Dickens**
 
 ---
 
