@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "Paths are made by walking."  
+> — **Franz Kafka**
 
 ---
 
