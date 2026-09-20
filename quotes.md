@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't, you must. If you must, you can."  
-> — **Tony Robbins**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
