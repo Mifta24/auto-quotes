@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
-> — **Roy T. Bennett**
+> "We cannot change anything unless we accept it."  
+> — **Carl Jung**
 
 ---
 
