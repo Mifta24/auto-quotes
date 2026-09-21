@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "It's very strange that the people you love are often the people you're most cruel to."  
+> — **Kenneth Branagh**
 
 ---
 
