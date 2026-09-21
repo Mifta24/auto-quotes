@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your wounds into wisdom."  
-> — **Oprah Winfrey**
+> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
+> — **Dogen**
 
 ---
 
