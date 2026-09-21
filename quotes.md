@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace."  
-> — **Dogen**
+> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
+> — **Roy T. Bennett**
 
 ---
 

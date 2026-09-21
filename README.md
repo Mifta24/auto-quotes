@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your wounds into wisdom."  
-> — **Oprah Winfrey**
+> "Believe in your infinite potential. Your only limitations are those you set upon yourself."  
+> — **Roy T. Bennett**
 
 ---
 
