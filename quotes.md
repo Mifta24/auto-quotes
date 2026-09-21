@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How you think when you lose determines how long it will be until you win."  
-> — **Gilbert Chesterton**
+> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
+> — **Bette Midler**
 
 ---
 
