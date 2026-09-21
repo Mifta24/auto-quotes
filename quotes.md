@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We cannot change anything unless we accept it."  
-> — **Carl Jung**
+> "You use a glass mirror to see your face; you use works of art to see your soul."  
+> — **George Bernard Shaw**
 
 ---
 
