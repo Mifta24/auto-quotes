@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Who looks outside, dreams; who looks inside, awakes."  
-> — **Lolly Daskal**
+> "Turn your wounds into wisdom."  
+> — **Oprah Winfrey**
 
 ---
 
-_Last updated: 20 September 2026 ⏳_
+_Last updated: 21 September 2026 ⏳_
