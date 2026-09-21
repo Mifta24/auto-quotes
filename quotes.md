@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very strange that the people you love are often the people you're most cruel to."  
-> — **Kenneth Branagh**
+> "How you think when you lose determines how long it will be until you win."  
+> — **Gilbert Chesterton**
 
 ---
 

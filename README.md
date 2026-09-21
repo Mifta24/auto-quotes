@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You use a glass mirror to see your face; you use works of art to see your soul."  
-> — **George Bernard Shaw**
+> "How you think when you lose determines how long it will be until you win."  
+> — **Gilbert Chesterton**
 
 ---
 
