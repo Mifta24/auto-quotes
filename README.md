@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We meet ourselves time and again in a thousand disguises on the path of life."  
-> — **Carl Jung**
+> "A man sees in the world what he carries in his heart."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always remember that you are absolutely unique. Just like everyone else."  
-> — **Margaret Mead**
+> "A man sees in the world what he carries in his heart."  
+> — **Johann Wolfgang von Goethe**
 
 ---
 
