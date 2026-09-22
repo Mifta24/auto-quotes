@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man sees in the world what he carries in his heart."  
-> — **Johann Wolfgang von Goethe**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
+> — **Ronald Reagan**
 
 ---
 
