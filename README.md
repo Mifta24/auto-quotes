@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "How you think when you lose determines how long it will be until you win."  
-> — **Gilbert Chesterton**
+> "Out of your vulnerabilities will come your strength."  
+> — **Sigmund Freud**
 
 ---
 
-_Last updated: 21 September 2026 ⏳_
+_Last updated: 22 September 2026 ⏳_
