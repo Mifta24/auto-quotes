@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
-> — **Estee Lauder**
+> "We meet ourselves time and again in a thousand disguises on the path of life."  
+> — **Carl Jung**
 
 ---
 

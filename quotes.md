@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't look for meaning in the words. Listen to the silences."  
-> — **Samuel Beckett**
+> "We meet ourselves time and again in a thousand disguises on the path of life."  
+> — **Carl Jung**
 
 ---
 
