@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of your vulnerabilities will come your strength."  
-> — **Sigmund Freud**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
