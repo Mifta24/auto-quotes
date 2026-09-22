@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
-> — **Estee Lauder**
+> "Don't look for meaning in the words. Listen to the silences."  
+> — **Samuel Beckett**
 
 ---
 
