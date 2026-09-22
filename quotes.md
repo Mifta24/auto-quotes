@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyday is a second chance."  
-> — **Unknown**
+> "Successful people do what unsuccessful people are not willing to do."  
+> — **Jim Rohn**
 
 ---
 
