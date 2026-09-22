@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We meet ourselves time and again in a thousand disguises on the path of life."  
-> — **Carl Jung**
+> "Always remember that you are absolutely unique. Just like everyone else."  
+> — **Margaret Mead**
 
 ---
 
