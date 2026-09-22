@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of your vulnerabilities will come your strength."  
-> — **Sigmund Freud**
+> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
+> — **Estee Lauder**
 
 ---
 

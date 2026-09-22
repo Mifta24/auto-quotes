@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The secret of life isn't what happens to you, but what you do with what happens to you."  
-> — **Norman Vincent Peale**
+> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
+> — **Estee Lauder**
 
 ---
 
