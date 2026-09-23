@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to stand by someone's side than by yourself."  
-> — **Jack London**
+> "Patience is bitter, but its fruit is sweet."  
+> — **Aristotle**
 
 ---
 
