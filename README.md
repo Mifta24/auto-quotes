@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's better to stand by someone's side than by yourself."  
-> — **Jack London**
+> "The people who succeed are irrationally passionate about something."  
+> — **Naval Ravikant**
 
 ---
 
