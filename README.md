@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
-> — **Wayne Gretzky**
+> "It doesn't matter what you do, only how well you do it."  
+> — **Dan Millman**
 
 ---
 

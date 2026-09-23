@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you try, you might get exactly what you want. If you don't, you don't."  
-> — **Unknown**
+> "It doesn't matter what you do, only how well you do it."  
+> — **Dan Millman**
 
 ---
 
