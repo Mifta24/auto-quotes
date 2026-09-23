@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only the educated are free."  
-> — **Epictetus**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 

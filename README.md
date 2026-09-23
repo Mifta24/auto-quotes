@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, so shall you become."  
-> — **Bruce Lee**
+> "It's better to stand by someone's side than by yourself."  
+> — **Jack London**
 
 ---
 
