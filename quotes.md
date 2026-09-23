@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter what you do, only how well you do it."  
-> — **Dan Millman**
+> "Older men declare war. But it is youth that must fight and die."  
+> — **Herbert Hoover**
 
 ---
 
