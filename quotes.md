@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As you think, so shall you become."  
-> — **Bruce Lee**
+> "Only the educated are free."  
+> — **Epictetus**
 
 ---
 
