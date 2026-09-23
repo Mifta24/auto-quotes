@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy."  
-> — **Wayne Gretzky**
+> "If you try, you might get exactly what you want. If you don't, you don't."  
+> — **Unknown**
 
 ---
 
