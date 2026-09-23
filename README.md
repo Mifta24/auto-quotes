@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter what you do, only how well you do it."  
-> — **Dan Millman**
+> "As you think, so shall you become."  
+> — **Bruce Lee**
 
 ---
 

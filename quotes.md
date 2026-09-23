@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Older men declare war. But it is youth that must fight and die."  
-> — **Herbert Hoover**
+> "As you think, so shall you become."  
+> — **Bruce Lee**
 
 ---
 
