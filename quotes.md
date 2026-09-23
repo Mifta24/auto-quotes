@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The people who succeed are irrationally passionate about something."  
-> — **Naval Ravikant**
+> "Life needs to be more than just solving problems every day. You need to wake up and be excited about the future."  
+> — **Elon Musk**
 
 ---
 
