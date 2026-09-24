@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No duty is more urgent than that of returning thanks."  
-> — **James Allen**
+> "The road to success and the road to failure are almost exactly the same."  
+> — **Colin R. Davis**
 
 ---
 
