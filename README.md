@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "When we have our body and mind in order, everything else will exist in the right place, in the right way."  
+> — **Shunryu Suzuki**
 
 ---
 

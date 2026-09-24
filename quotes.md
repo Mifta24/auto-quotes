@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches."  
-> — **Ming-Dao Deng**
+> "When we have our body and mind in order, everything else will exist in the right place, in the right way."  
+> — **Shunryu Suzuki**
 
 ---
 
