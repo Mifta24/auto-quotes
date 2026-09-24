@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
-> — **Norman Vincent Peale**
+> "The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches."  
+> — **Ming-Dao Deng**
 
 ---
 
