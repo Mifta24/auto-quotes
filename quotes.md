@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences."  
-> — **William Faulkner**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 

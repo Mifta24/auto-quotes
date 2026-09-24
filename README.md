@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
-> — **Joan Rivers**
+> "People who belittle people, will be LITTLE people, and will accomplish very Little"  
+> — **Norman Vincent Peale**
 
 ---
 
