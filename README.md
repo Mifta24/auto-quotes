@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The people who succeed are irrationally passionate about something."  
-> — **Naval Ravikant**
+> "A life without a cause is a life without effect."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 23 September 2026 ⏳_
+_Last updated: 24 September 2026 ⏳_
