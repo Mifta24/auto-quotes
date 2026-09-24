@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The road to success and the road to failure are almost exactly the same."  
-> — **Colin R. Davis**
+> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
+> — **Elvis Presley**
 
 ---
 
