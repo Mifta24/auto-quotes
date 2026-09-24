@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
+> — **Steve Maraboli**
 
 ---
 
