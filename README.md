@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 

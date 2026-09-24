@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
-> — **Steve Maraboli**
+> "Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over."  
+> — **Joan Rivers**
 
 ---
 
