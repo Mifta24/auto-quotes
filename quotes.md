@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you cannot control your emotions, you cannot control your money."  
-> — **Warren Buffett**
+> "The present moment is filled with joy and happiness. If you are attentive, you will see it."  
+> — **Thich Nhat Hanh**
 
 ---
 
