@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who praises you is a thief. The one who criticizes you is your true friend."  
-> — **Seungsahn**
+> "Always be a first-rate version of yourself, instead of a second-rate version of someone else."  
+> — **Judy Garland**
 
 ---
 
