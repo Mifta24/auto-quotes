@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The present moment is filled with joy and happiness. If you are attentive, you will see it."  
-> — **Thich Nhat Hanh**
+> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
+> — **Winston Churchill**
 
 ---
 
