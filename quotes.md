@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 
