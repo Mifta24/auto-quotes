@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The road to success and the road to failure are almost exactly the same."  
-> — **Colin R. Davis**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
-_Last updated: 24 September 2026 ⏳_
+_Last updated: 25 September 2026 ⏳_

@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
-> — **Elvis Presley**
+> "There is peace even in the storm."  
+> — **Vincent van Gogh**
 
 ---
 
-_Last updated: 24 September 2026 ⏳_
+_Last updated: 25 September 2026 ⏳_
