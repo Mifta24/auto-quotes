@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is peace even in the storm."  
-> — **Vincent van Gogh**
+> "The one who praises you is a thief. The one who criticizes you is your true friend."  
+> — **Seungsahn**
 
 ---
 

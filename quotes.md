@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "The one who praises you is a thief. The one who criticizes you is your true friend."  
+> — **Seungsahn**
 
 ---
 
