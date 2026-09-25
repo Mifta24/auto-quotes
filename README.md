@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who praises you is a thief. The one who criticizes you is your true friend."  
-> — **Seungsahn**
+> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
+> — **Henry Ford**
 
 ---
 

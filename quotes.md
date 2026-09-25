@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always be a first-rate version of yourself, instead of a second-rate version of someone else."  
-> — **Judy Garland**
+> "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it."  
+> — **Henry Ford**
 
 ---
 
