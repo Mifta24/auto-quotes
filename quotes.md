@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you know what you want, and want it bad enough, you will find a way to get it."  
-> — **Jim Rohn**
+> "People are not disturbed by things, but by the views they take of them."  
+> — **Epictetus**
 
 ---
 
