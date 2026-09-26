@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is simply the opportunity to begin again, this time more intelligently."  
-> — **Henry Ford**
+> "My instinct is always to seek out challenges as opposed to avoiding them."  
+> — **Josh Waitzkin**
 
 ---
 
