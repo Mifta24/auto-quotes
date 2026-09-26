@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's always to soon to quit!"  
-> — **Norman Vincent Peale**
+> "The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is."  
+> — **Eckhart Tolle**
 
 ---
 
