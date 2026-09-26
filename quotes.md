@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's always to soon to quit!"  
-> — **Norman Vincent Peale**
+> "An intelligent person hires people who are more intelligent than he is."  
+> — **Robert Kiyosaki**
 
 ---
 
