@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The present moment is filled with joy and happiness. If you are attentive, you will see it."  
-> — **Thich Nhat Hanh**
+> "It's always to soon to quit!"  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 25 September 2026 ⏳_
+_Last updated: 26 September 2026 ⏳_

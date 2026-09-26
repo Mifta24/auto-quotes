@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is not final, failure is not fatal: it is the courage to continue that counts."  
-> — **Winston Churchill**
+> "It's always to soon to quit!"  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 25 September 2026 ⏳_
+_Last updated: 26 September 2026 ⏳_
