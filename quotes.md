@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "Difficulties strengthen the mind, as labor does the body."  
+> — **Seneca**
 
 ---
 
