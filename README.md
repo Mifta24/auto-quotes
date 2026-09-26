@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is."  
-> — **Eckhart Tolle**
+> "Failure is simply the opportunity to begin again, this time more intelligently."  
+> — **Henry Ford**
 
 ---
 
