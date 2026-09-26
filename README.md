@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "When you know what you want, and want it bad enough, you will find a way to get it."  
+> — **Jim Rohn**
 
 ---
 
