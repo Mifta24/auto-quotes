@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "My instinct is always to seek out challenges as opposed to avoiding them."  
-> — **Josh Waitzkin**
+> "We think too much and feel too little."  
+> — **Charlie Chaplin**
 
 ---
 
