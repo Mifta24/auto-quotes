@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
-> — **Sathya Sai Baba**
+> "Decide what your truth is. Then live it."  
+> — **Kamal Ravikant**
 
 ---
 
