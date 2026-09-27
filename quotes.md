@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing external to you has any power over you."  
-> — **Ralph Waldo Emerson**
+> "Everything has its beauty, but not everyone sees it."  
+> — **Confucius**
 
 ---
 
