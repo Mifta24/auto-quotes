@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide what your truth is. Then live it."  
-> — **Kamal Ravikant**
+> "Nothing external to you has any power over you."  
+> — **Ralph Waldo Emerson**
 
 ---
 
