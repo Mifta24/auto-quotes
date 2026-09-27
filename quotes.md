@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
-> — **Joyce Meyer**
+> "If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher."  
+> — **Pema Chodron**
 
 ---
 
