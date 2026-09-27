@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "When you know what you want, and want it bad enough, you will find a way to get it."  
-> — **Jim Rohn**
+> "I'm not afraid of death, but I'm in no hurry to die."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 26 September 2026 ⏳_
+_Last updated: 27 September 2026 ⏳_

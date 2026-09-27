@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People are not disturbed by things, but by the views they take of them."  
-> — **Epictetus**
+> "I'm not afraid of death, but I'm in no hurry to die."  
+> — **Stephen Hawking**
 
 ---
 
-_Last updated: 26 September 2026 ⏳_
+_Last updated: 27 September 2026 ⏳_
