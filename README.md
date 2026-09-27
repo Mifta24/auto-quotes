@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing external to you has any power over you."  
-> — **Ralph Waldo Emerson**
+> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
+> — **Joyce Meyer**
 
 ---
 

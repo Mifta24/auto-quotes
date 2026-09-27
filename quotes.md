@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything has its beauty, but not everyone sees it."  
-> — **Confucius**
+> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
+> — **Joyce Meyer**
 
 ---
 
