@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to know what God thinks about money just look at the people He gives it to."  
-> — **Alexander Pope**
+> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
+> — **Sathya Sai Baba**
 
 ---
 

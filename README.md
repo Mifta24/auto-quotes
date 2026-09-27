@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I'm not afraid of death, but I'm in no hurry to die."  
-> — **Stephen Hawking**
+> "Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?"  
+> — **Sathya Sai Baba**
 
 ---
 
