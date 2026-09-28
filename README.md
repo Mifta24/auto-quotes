@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The ones who are crazy enough to think they can change the world, are the ones that do."  
-> — **Steve Jobs**
+> "Life is like riding a bicycle. To keep your balance you must keep moving."  
+> — **Albert Einstein**
 
 ---
 

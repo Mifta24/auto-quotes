@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit."  
-> — **Napoleon Hill**
+> "Life is like riding a bicycle. To keep your balance you must keep moving."  
+> — **Albert Einstein**
 
 ---
 
