@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To forgive means pardoning the unpardonable."  
-> — **Gilbert Chesterton**
+> "The ones who are crazy enough to think they can change the world, are the ones that do."  
+> — **Steve Jobs**
 
 ---
 

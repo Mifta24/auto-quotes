@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Growth is in a series of mistakes. That's the only way you learn."  
-> — **Steve Harvey**
+> "The ones who are crazy enough to think they can change the world, are the ones that do."  
+> — **Steve Jobs**
 
 ---
 
