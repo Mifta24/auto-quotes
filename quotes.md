@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like riding a bicycle. To keep your balance you must keep moving."  
-> — **Albert Einstein**
+> "It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance."  
+> — **Kamal Ravikant**
 
 ---
 
