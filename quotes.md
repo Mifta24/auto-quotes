@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher."  
-> — **Pema Chodron**
+> "To forgive means pardoning the unpardonable."  
+> — **Gilbert Chesterton**
 
 ---
 
-_Last updated: 27 September 2026 ⏳_
+_Last updated: 28 September 2026 ⏳_

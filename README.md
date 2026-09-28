@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Patience is not the ability to wait but the ability to keep a good attitude while waiting."  
-> — **Joyce Meyer**
+> "To forgive means pardoning the unpardonable."  
+> — **Gilbert Chesterton**
 
 ---
 
-_Last updated: 27 September 2026 ⏳_
+_Last updated: 28 September 2026 ⏳_
