@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To forgive means pardoning the unpardonable."  
-> — **Gilbert Chesterton**
+> "Growth is in a series of mistakes. That's the only way you learn."  
+> — **Steve Harvey**
 
 ---
 
