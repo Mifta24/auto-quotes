@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "When you consider things like the stars, our affairs don't seem to matter very much, do they?"  
+> — **Virginia Woolf**
 
 ---
 
