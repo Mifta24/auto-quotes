@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to die fighting for freedom than be a prisoner all the days of your life."  
-> — **Bob Marley**
+> "Invest in as much of yourself as you can, you are your own biggest asset by far."  
+> — **Warren Buffett**
 
 ---
 
