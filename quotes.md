@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand."  
-> — **Colin Powell**
+> "It's wise to tell the truth. It's even wiser to tell it kindly."  
+> — **Maxime Lagace**
 
 ---
 
