@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is like riding a bicycle. To keep your balance you must keep moving."  
-> — **Albert Einstein**
+> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
+> — **Henry Ford**
 
 ---
 
-_Last updated: 28 September 2026 ⏳_
+_Last updated: 29 September 2026 ⏳_

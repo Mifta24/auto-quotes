@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance."  
-> — **Kamal Ravikant**
+> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
+> — **Henry Ford**
 
 ---
 
-_Last updated: 28 September 2026 ⏳_
+_Last updated: 29 September 2026 ⏳_
