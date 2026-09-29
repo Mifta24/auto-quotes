@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Thinking is the hardest work there is, which is probably the reason why so few engage in it."  
-> — **Henry Ford**
+> "Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years."  
+> — **Richard Bach**
 
 ---
 
