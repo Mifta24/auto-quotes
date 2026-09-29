@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you consider things like the stars, our affairs don't seem to matter very much, do they?"  
-> — **Virginia Woolf**
+> "Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand."  
+> — **Colin Powell**
 
 ---
 
