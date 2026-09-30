@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
-> — **Kahlil Gibran**
+> "We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences"  
+> — **Nikola Tesla**
 
 ---
 

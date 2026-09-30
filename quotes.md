@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your time is limited, so don't waste it living someone elses. life."  
-> — **Steve Jobs**
+> "We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences"  
+> — **Nikola Tesla**
 
 ---
 
