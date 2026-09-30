@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences"  
-> — **Nikola Tesla**
+> "When it is dark enough, you can see the stars."  
+> — **Ralph Waldo Emerson**
 
 ---
 
