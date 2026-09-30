@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The river that flows in you also flows in me."  
-> — **Kabir**
+> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
+> — **Heraclitus**
 
 ---
 

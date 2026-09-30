@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
-> — **Denis Waitley**
+> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
+> — **Heraclitus**
 
 ---
 
