@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand."  
-> — **Colin Powell**
+> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
+> — **Kahlil Gibran**
 
 ---
 
-_Last updated: 29 September 2026 ⏳_
+_Last updated: 30 September 2026 ⏳_

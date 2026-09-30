@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
+> — **Kahlil Gibran**
 
 ---
 
-_Last updated: 29 September 2026 ⏳_
+_Last updated: 30 September 2026 ⏳_
