@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Out of suffering have emerged the strongest souls; the most massive characters are seared with scars."  
-> — **Kahlil Gibran**
+> "Your time is limited, so don't waste it living someone elses. life."  
+> — **Steve Jobs**
 
 ---
 
