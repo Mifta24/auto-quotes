@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
-> — **Heraclitus**
+> "Within every obstacle is an opportunity to improve our condition."  
+> — **Ryan Holiday**
 
 ---
 
