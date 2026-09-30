@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences"  
-> — **Nikola Tesla**
+> "The river that flows in you also flows in me."  
+> — **Kabir**
 
 ---
 

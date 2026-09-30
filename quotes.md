@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When it is dark enough, you can see the stars."  
-> — **Ralph Waldo Emerson**
+> "The river that flows in you also flows in me."  
+> — **Kabir**
 
 ---
 
