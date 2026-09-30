@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The river that flows in you also flows in me."  
-> — **Kabir**
+> "Happiness cannot be traveled to, owned, earned, worn or consumed."  
+> — **Denis Waitley**
 
 ---
 
