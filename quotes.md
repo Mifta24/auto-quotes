@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All cruelty springs from weakness."  
-> — **Seneca**
+> "For fast-acting relief try slowing down."  
+> — **Lily Tomlin**
 
 ---
 
