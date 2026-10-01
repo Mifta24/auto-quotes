@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change yourself - you are in control."  
-> — **Mahatma Gandhi**
+> "All cruelty springs from weakness."  
+> — **Seneca**
 
 ---
 
