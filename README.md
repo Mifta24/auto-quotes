@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
-> — **Heraclitus**
+> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
+> — **Unknown**
 
 ---
 
-_Last updated: 30 September 2026 ⏳_
+_Last updated: 01 October 2026 ⏳_
