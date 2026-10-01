@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
-> — **Unknown**
+> "Hope means hoping when everything seems hopeless."  
+> — **Gilbert Chesterton**
 
 ---
 
