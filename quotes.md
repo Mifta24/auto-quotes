@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope means hoping when everything seems hopeless."  
-> — **Gilbert Chesterton**
+> "Change yourself - you are in control."  
+> — **Mahatma Gandhi**
 
 ---
 

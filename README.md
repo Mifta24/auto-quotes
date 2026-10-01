@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The first step toward getting somewhere is to decide that you are not going to stay where you are."  
-> — **Unknown**
+> "Change yourself - you are in control."  
+> — **Mahatma Gandhi**
 
 ---
 
