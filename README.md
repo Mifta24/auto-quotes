@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is love and love is life."  
-> — **Elvis Presley**
+> "Do not pray for an easy life, pray for the strength to endure a difficult one."  
+> — **Bruce Lee**
 
 ---
 
