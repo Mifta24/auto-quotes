@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A man that flies from his fear may find that he has only taken a short cut to meet it."  
-> — **J.R.R. Tolkien**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means."  
-> — **Ronald Reagan**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
+> — **Les Brown**
 
 ---
 
