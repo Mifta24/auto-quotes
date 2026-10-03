@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "Life begins at the end of our comfort zone."  
+> — **Neale Donald Walsch**
 
 ---
 
