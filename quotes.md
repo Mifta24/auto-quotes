@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Chop your own wood and it will warm you twice."  
-> — **Henry Ford**
+> "Success is an iceberg."  
+> — **Unknown**
 
 ---
 
