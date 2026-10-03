@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive."  
-> — **Herodotus**
+> "Chop your own wood and it will warm you twice."  
+> — **Henry Ford**
 
 ---
 
