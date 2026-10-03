@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Whenever people agree with me I always feel I must be wrong."  
-> — **Oscar Wilde**
+> "The future is no more uncertain than the present."  
+> — **Walt Whitman**
 
 ---
 
