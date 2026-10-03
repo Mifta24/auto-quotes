@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The future is no more uncertain than the present."  
-> — **Walt Whitman**
+> "You only live once, but if you do it right, once is enough."  
+> — **Mae West**
 
 ---
 
