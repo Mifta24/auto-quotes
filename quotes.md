@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You just can't beat the person who never gives up."  
-> — **Babe Ruth**
+> "The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive."  
+> — **Herodotus**
 
 ---
 

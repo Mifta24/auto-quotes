@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You only live once, but if you do it right, once is enough."  
-> — **Mae West**
+> "The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive."  
+> — **Herodotus**
 
 ---
 
