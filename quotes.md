@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You only live once, but if you do it right, once is enough."  
-> — **Mae West**
+> "You just can't beat the person who never gives up."  
+> — **Babe Ruth**
 
 ---
 
