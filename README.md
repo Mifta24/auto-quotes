@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit."  
-> — **Les Brown**
+> "Whenever people agree with me I always feel I must be wrong."  
+> — **Oscar Wilde**
 
 ---
 
-_Last updated: 02 October 2026 ⏳_
+_Last updated: 03 October 2026 ⏳_
