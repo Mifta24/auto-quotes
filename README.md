@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freeing oneself from words is liberation."  
-> — **Bodhidharma**
+> "If you're really truthful with yourself, it's a wonderful guidance."  
+> — **Charlie Chaplin**
 
 ---
 

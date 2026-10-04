@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be so open-minded that your brains fall out."  
-> — **Gilbert Chesterton**
+> "If you're really truthful with yourself, it's a wonderful guidance."  
+> — **Charlie Chaplin**
 
 ---
 
