@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're really truthful with yourself, it's a wonderful guidance."  
-> — **Charlie Chaplin**
+> "When one does not have what one wants, one must want what one has."  
+> — **Sigmund Freud**
 
 ---
 
