@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you're really truthful with yourself, it's a wonderful guidance."  
-> — **Charlie Chaplin**
+> "Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time."  
+> — **Thomas Edison**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When one does not have what one wants, one must want what one has."  
-> — **Sigmund Freud**
+> "Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time."  
+> — **Thomas Edison**
 
 ---
 
