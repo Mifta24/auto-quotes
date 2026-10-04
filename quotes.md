@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Freeing oneself from words is liberation."  
-> — **Bodhidharma**
+> "Do not be so open-minded that your brains fall out."  
+> — **Gilbert Chesterton**
 
 ---
 
