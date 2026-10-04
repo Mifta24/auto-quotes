@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cherish forever what makes you unique, cuz you're really a yawn if it goes."  
-> — **Bette Midler**
+> "Every moment of happiness requires a great amount of Ignorance"  
+> — **Honore de Balzac**
 
 ---
 

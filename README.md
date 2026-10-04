@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time."  
-> — **Thomas Edison**
+> "Every moment of happiness requires a great amount of Ignorance"  
+> — **Honore de Balzac**
 
 ---
 
