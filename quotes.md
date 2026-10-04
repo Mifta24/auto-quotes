@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every moment of happiness requires a great amount of Ignorance"  
-> — **Honore de Balzac**
+> "The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions."  
+> — **Steve Maraboli**
 
 ---
 
