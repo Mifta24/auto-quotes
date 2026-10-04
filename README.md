@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "Freeing oneself from words is liberation."  
+> — **Bodhidharma**
 
 ---
 
-_Last updated: 03 October 2026 ⏳_
+_Last updated: 04 October 2026 ⏳_
