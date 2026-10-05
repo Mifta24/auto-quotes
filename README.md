@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every moment of happiness requires a great amount of Ignorance"  
-> — **Honore de Balzac**
+> "No one ever said life was fair. Just Eventful."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 04 October 2026 ⏳_
+_Last updated: 05 October 2026 ⏳_
