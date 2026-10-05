@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one ever said life was fair. Just Eventful."  
-> — **Carol Burnett**
+> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic."  
+> — **Charles Swindoll**
 
 ---
 
