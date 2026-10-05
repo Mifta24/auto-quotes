@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing good ever comes of violence."  
-> — **Martin Luther**
+> "Perseverance and spirit have done wonders in all ages."  
+> — **George Washington**
 
 ---
 
