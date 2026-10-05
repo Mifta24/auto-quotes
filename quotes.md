@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only place success comes before work is in the dictionary."  
-> — **Vince Lombardi**
+> "Vision is the art of seeing things invisible."  
+> — **Jonathan Swift**
 
 ---
 
