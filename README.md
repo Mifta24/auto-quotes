@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one ever said life was fair. Just Eventful."  
-> — **Carol Burnett**
+> "The only place success comes before work is in the dictionary."  
+> — **Vince Lombardi**
 
 ---
 
