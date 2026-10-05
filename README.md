@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only place success comes before work is in the dictionary."  
-> — **Vince Lombardi**
+> "Nothing good ever comes of violence."  
+> — **Martin Luther**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Vision is the art of seeing things invisible."  
-> — **Jonathan Swift**
+> "Nothing good ever comes of violence."  
+> — **Martin Luther**
 
 ---
 
