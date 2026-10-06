@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I am thankful to all those who said no. It's because of them, I did it myself."  
-> — **Wayne Dyer**
+> "Our life isn't how much we can take out, but how much we can put in."  
+> — **Estee Lauder**
 
 ---
 

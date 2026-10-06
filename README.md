@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Cleverness is not wisdom."  
-> — **Euripides**
+> "Our life isn't how much we can take out, but how much we can put in."  
+> — **Estee Lauder**
 
 ---
 
