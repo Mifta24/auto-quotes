@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor."  
-> — **Thich Nhat Hanh**
+> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

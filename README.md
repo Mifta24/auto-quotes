@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our life isn't how much we can take out, but how much we can put in."  
-> — **Estee Lauder**
+> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
