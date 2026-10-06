@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our life isn't how much we can take out, but how much we can put in."  
-> — **Estee Lauder**
+> "Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor."  
+> — **Thich Nhat Hanh**
 
 ---
 
