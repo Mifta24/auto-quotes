@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Nothing good ever comes of violence."  
-> — **Martin Luther**
+> "Cleverness is not wisdom."  
+> — **Euripides**
 
 ---
 
-_Last updated: 05 October 2026 ⏳_
+_Last updated: 06 October 2026 ⏳_

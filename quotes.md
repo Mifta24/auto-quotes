@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Perseverance and spirit have done wonders in all ages."  
-> — **George Washington**
+> "Cleverness is not wisdom."  
+> — **Euripides**
 
 ---
 
-_Last updated: 05 October 2026 ⏳_
+_Last updated: 06 October 2026 ⏳_
