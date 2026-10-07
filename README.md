@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
-> — **Lao Tzu**
+> "Time doesn't heal emotional pain, you need to learn how to let go."  
+> — **Roy T. Bennett**
 
 ---
 
