@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
-> — **Lao Tzu**
+> "No man ever steps in the same river twice, for it's not the same river and he's not the same man."  
+> — **Heraclitus**
 
 ---
 
