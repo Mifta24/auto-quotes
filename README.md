@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are only encounters in history. There are no accidents."  
-> — **Pablo Picasso**
+> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
+> — **Lao Tzu**
 
 ---
 

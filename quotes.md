@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
-> — **Robert Collier**
+> "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves."  
+> — **Lao Tzu**
 
 ---
 
