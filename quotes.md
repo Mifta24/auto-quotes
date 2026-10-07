@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Ability is a poor man's wealth."  
-> — **John Wooden**
+> "There are only encounters in history. There are no accidents."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 06 October 2026 ⏳_
+_Last updated: 07 October 2026 ⏳_

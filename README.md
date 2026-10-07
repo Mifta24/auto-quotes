@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."  
-> — **Carlos Ruiz Zafon**
+> "There are only encounters in history. There are no accidents."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 06 October 2026 ⏳_
+_Last updated: 07 October 2026 ⏳_
