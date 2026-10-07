@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are only encounters in history. There are no accidents."  
-> — **Pablo Picasso**
+> "Your chances of success in any undertaking can always be measured by your belief in yourself."  
+> — **Robert Collier**
 
 ---
 
