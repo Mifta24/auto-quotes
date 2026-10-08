@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Empty yourself of everything - let the mind become still."  
-> — **Lao Tzu**
+> "Throw your heart over the fence and the rest will follow"  
+> — **Norman Vincent Peale**
 
 ---
 

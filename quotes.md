@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The price of inaction is far greater than the cost of making a mistake."  
-> — **Meister Eckhart**
+> "Throw your heart over the fence and the rest will follow"  
+> — **Norman Vincent Peale**
 
 ---
 
