@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is the highway to success."  
-> — **Og Mandino**
+> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
+> — **Mark Manson**
 
 ---
 
