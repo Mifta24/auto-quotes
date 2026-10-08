@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Time doesn't heal emotional pain, you need to learn how to let go."  
-> — **Roy T. Bennett**
+> "Empty yourself of everything - let the mind become still."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 07 October 2026 ⏳_
+_Last updated: 08 October 2026 ⏳_
