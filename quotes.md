@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated."  
+> — **Albus Dumbledore**
 
 ---
 
