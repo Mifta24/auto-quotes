@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Empty yourself of everything - let the mind become still."  
-> — **Lao Tzu**
+> "The price of inaction is far greater than the cost of making a mistake."  
+> — **Meister Eckhart**
 
 ---
 
