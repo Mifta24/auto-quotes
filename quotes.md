@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must embrace pain and burn it as fuel for our journey."  
-> — **Kenji Miyazawa**
+> "The destiny of man is in his own soul."  
+> — **Herodotus**
 
 ---
 
