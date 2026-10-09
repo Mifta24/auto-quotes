@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul."  
-> — **Herodotus**
+> "Weeds are flowers too, once you get to know them."  
+> — **A.A. Milne**
 
 ---
 
