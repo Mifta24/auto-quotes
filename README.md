@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The destiny of man is in his own soul."  
-> — **Herodotus**
+> "We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves."  
+> — **Kamal Ravikant**
 
 ---
 

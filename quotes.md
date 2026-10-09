@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Weeds are flowers too, once you get to know them."  
-> — **A.A. Milne**
+> "We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves."  
+> — **Kamal Ravikant**
 
 ---
 
