@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves."  
-> — **Kamal Ravikant**
+> "Thought is so cunning, so clever, that it distorts everything for its own convenience."  
+> — **Jiddu Krishnamurti**
 
 ---
 

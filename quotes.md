@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
-> — **Jon Kabat-Zinn**
+> "Thought is so cunning, so clever, that it distorts everything for its own convenience."  
+> — **Jiddu Krishnamurti**
 
 ---
 
