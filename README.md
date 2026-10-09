@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change."  
-> — **Mark Manson**
+> "The trouble with the rat race is that even if you win, you're still a rat."  
+> — **Lily Tomlin**
 
 ---
 
-_Last updated: 08 October 2026 ⏳_
+_Last updated: 09 October 2026 ⏳_
