@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The trouble with the rat race is that even if you win, you're still a rat."  
-> — **Lily Tomlin**
+> "We must embrace pain and burn it as fuel for our journey."  
+> — **Kenji Miyazawa**
 
 ---
 
