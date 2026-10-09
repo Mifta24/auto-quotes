@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves."  
-> — **Kamal Ravikant**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 
