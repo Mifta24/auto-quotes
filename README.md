@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Thought is so cunning, so clever, that it distorts everything for its own convenience."  
-> — **Jiddu Krishnamurti**
+> "A life without a cause is a life without effect."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 09 October 2026 ⏳_
+_Last updated: 10 October 2026 ⏳_

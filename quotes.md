@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything is in your own heart."  
-> — **Thich Nhat Hanh**
+> "A life without a cause is a life without effect."  
+> — **Paulo Coelho**
 
 ---
 
