@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "Life is like a wheel. Sooner or later, it always comes around to where you started again."  
+> — **Stephen King**
 
 ---
 
