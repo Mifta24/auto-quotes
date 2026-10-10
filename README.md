@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It always started with a dream."  
-> — **Conrad Hilton**
+> "What loneliness is more lonely than distrust?"  
+> — **George Eliot**
 
 ---
 
