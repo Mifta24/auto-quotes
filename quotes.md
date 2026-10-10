@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It always started with a dream."  
-> — **Conrad Hilton**
+> "The man who moved the mountain was the one who began carrying away the smallest stones."  
+> — **Zen Proverb**
 
 ---
 
