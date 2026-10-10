@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What loneliness is more lonely than distrust?"  
-> — **George Eliot**
+> "In all chaos there is a cosmos, in all disorder a secret order."  
+> — **Carl Jung**
 
 ---
 
