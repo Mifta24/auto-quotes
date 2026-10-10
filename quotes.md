@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is like a wheel. Sooner or later, it always comes around to where you started again."  
-> — **Stephen King**
+> "It always started with a dream."  
+> — **Conrad Hilton**
 
 ---
 

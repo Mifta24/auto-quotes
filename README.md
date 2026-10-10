@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A life without a cause is a life without effect."  
-> — **Paulo Coelho**
+> "It always started with a dream."  
+> — **Conrad Hilton**
 
 ---
 
