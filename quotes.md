@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
-> — **Steve Maraboli**
+> "If they wrote it to make money, don't read it."  
+> — **Naval Ravikant**
 
 ---
 
