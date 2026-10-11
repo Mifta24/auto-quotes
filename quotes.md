@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 
