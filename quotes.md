@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
-> — **Og Mandino**
+> "We take care of the future best by taking care of the present now."  
+> — **Jon Kabat-Zinn**
 
 ---
 
