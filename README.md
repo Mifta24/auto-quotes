@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
-> — **Steve Maraboli**
+> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again."  
+> — **Og Mandino**
 
 ---
 
