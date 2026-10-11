@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We take care of the future best by taking care of the present now."  
-> — **Jon Kabat-Zinn**
+> "People spend too much time doing and not enough time thinking about what they should be doing."  
+> — **Naval Ravikant**
 
 ---
 
