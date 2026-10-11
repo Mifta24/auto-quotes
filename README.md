@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway."  
-> — **Earl Nightingale**
+> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
+> — **Steve Maraboli**
 
 ---
 

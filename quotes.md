@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The difference between treason and patriotism is only a matter of dates."  
-> — **Alexandre Dumas**
+> "You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously."  
+> — **Steve Maraboli**
 
 ---
 
