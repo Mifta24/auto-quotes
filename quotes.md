@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our greatest glory is not in never falling, but in rising every time we fall."  
-> — **Confucius**
+> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."  
+> — **Wayne Dyer**
 
 ---
 
