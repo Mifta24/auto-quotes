@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rivers know this: there is no hurry. We shall get there some day."  
-> — **A.A. Milne**
+> "Our greatest glory is not in never falling, but in rising every time we fall."  
+> — **Confucius**
 
 ---
 
