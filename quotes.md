@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Men are equal; it is not birth but virtue that makes the difference."  
-> — **Voltaire**
+> "Rivers know this: there is no hurry. We shall get there some day."  
+> — **A.A. Milne**
 
 ---
 
