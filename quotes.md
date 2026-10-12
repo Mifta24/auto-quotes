@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rivers know this: there is no hurry. We shall get there some day."  
-> — **A.A. Milne**
+> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."  
+> — **Samuel Butler**
 
 ---
 
