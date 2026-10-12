@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
-> — **Jon Kabat-Zinn**
+> "In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result."  
+> — **James Allen**
 
 ---
 
-_Last updated: 11 October 2026 ⏳_
+_Last updated: 12 October 2026 ⏳_

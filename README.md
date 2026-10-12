@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "People spend too much time doing and not enough time thinking about what they should be doing."  
-> — **Naval Ravikant**
+> "In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result."  
+> — **James Allen**
 
 ---
 
-_Last updated: 11 October 2026 ⏳_
+_Last updated: 12 October 2026 ⏳_
