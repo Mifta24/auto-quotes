@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Great loves too must be endured."  
-> — **Coco Chanel**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 

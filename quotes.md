@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
-> — **Jim Rohn**
+> "If you can't argue both sides, you can't argue."  
+> — **Jack Butcher**
 
 ---
 
