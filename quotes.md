@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "The ego wants comfort and certainty. The soul wants to live fully."  
+> — **Maxime Lagace**
 
 ---
 
