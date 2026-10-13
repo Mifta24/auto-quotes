@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Our greatest glory is not in never falling, but in rising every time we fall."  
-> — **Confucius**
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."  
+> — **Christopher Reeve**
 
 ---
 
-_Last updated: 12 October 2026 ⏳_
+_Last updated: 13 October 2026 ⏳_
