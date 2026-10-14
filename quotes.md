@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you chase two rabbits, you catch none."  
-> — **Confucius**
+> "All animals except man know that the principal business of life is to enjoy it."  
+> — **Samuel Butler**
 
 ---
 
