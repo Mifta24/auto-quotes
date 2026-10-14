@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Tradition is the illusion of permanence."  
-> — **Woody Allen**
+> "The best way to not feel hopeless is to get up and do something."  
+> — **Barack Obama**
 
 ---
 

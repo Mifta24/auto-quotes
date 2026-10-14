@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The power of human thought grows exponentially with the number of minds that share that thought."  
-> — **Dan Brown**
+> "The best way to not feel hopeless is to get up and do something."  
+> — **Barack Obama**
 
 ---
 
