@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The big thing is to make a winning effort. I'm not obsessed with wins."  
-> — **Morgan Wootten**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 

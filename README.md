@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important things are the hardest to say."  
-> — **Stephen King**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 
