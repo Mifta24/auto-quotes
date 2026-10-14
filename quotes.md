@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not stop thinking of life as an adventure."  
-> — **Eleanor Roosevelt**
+> "The most important things are the hardest to say."  
+> — **Stephen King**
 
 ---
 

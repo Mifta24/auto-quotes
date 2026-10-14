@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The best way to not feel hopeless is to get up and do something."  
-> — **Barack Obama**
+> "The most important things are the hardest to say."  
+> — **Stephen King**
 
 ---
 
