@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The most important things are the hardest to say."  
-> — **Stephen King**
+> "The big thing is to make a winning effort. I'm not obsessed with wins."  
+> — **Morgan Wootten**
 
 ---
 
