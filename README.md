@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you chase two rabbits, you catch none."  
-> — **Confucius**
+> "Tradition is the illusion of permanence."  
+> — **Woody Allen**
 
 ---
 

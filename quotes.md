@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All animals except man know that the principal business of life is to enjoy it."  
-> — **Samuel Butler**
+> "Tradition is the illusion of permanence."  
+> — **Woody Allen**
 
 ---
 
