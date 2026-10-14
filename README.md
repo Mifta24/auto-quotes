@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you can't argue both sides, you can't argue."  
-> — **Jack Butcher**
+> "If you chase two rabbits, you catch none."  
+> — **Confucius**
 
 ---
 
-_Last updated: 13 October 2026 ⏳_
+_Last updated: 14 October 2026 ⏳_
