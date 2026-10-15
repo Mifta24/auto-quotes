@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "The majority of what you want will come from the minority of what you do."  
+> — **Gary Keller**
 
 ---
 
