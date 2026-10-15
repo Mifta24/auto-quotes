@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is about doing the right thing, not about doing everything right."  
-> — **Gary Keller**
+> "Find your Light; They can't love you if they can't see you."  
+> — **Bette Midler**
 
 ---
 
-_Last updated: 14 October 2026 ⏳_
+_Last updated: 15 October 2026 ⏳_

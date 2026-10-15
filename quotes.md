@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Let not your mind run on what you lack as much as on what you have already."  
-> — **Marcus Aurelius**
+> "Find your Light; They can't love you if they can't see you."  
+> — **Bette Midler**
 
 ---
 
-_Last updated: 14 October 2026 ⏳_
+_Last updated: 15 October 2026 ⏳_
