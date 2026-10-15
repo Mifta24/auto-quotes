@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, accept. If you want suffering, expect."  
-> — **Maxime Lagace**
+> "It's easy to be a critic, but being a doer requires effort, risk, and change."  
+> — **Wayne Dyer**
 
 ---
 
