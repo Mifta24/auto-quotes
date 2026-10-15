@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live outside the law, you must be honest."  
-> — **Bob Dylan**
+> "We make a living by what we get, but we make a life by what we give."  
+> — **Unknown**
 
 ---
 
