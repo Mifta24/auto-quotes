@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Paths are made by walking."  
-> — **Franz Kafka**
+> "To live outside the law, you must be honest."  
+> — **Bob Dylan**
 
 ---
 

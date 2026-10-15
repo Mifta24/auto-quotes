@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find your Light; They can't love you if they can't see you."  
-> — **Bette Midler**
+> "To live outside the law, you must be honest."  
+> — **Bob Dylan**
 
 ---
 
