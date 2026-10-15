@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Find your Light; They can't love you if they can't see you."  
-> — **Bette Midler**
+> "Paths are made by walking."  
+> — **Franz Kafka**
 
 ---
 
