@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We make a living by what we get, but we make a life by what we give."  
-> — **Unknown**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 

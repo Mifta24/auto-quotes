@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To live outside the law, you must be honest."  
-> — **Bob Dylan**
+> "Do not think you will necessarily be aware of your own enlightenment."  
+> — **Dogen**
 
 ---
 
