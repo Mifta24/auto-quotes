@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The majority of what you want will come from the minority of what you do."  
-> — **Gary Keller**
+> "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has."  
+> — **Epictetus**
 
 ---
 

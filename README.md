@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not think you will necessarily be aware of your own enlightenment."  
-> — **Dogen**
+> "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has."  
+> — **Epictetus**
 
 ---
 
