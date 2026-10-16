@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
-> — **Jon Kabat-Zinn**
+> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
+> — **Estee Lauder**
 
 ---
 
