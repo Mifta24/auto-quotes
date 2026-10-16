@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wiser you get, the less you care to look like a fool."  
-> — **Maxime Lagace**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 

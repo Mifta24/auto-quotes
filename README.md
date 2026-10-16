@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
+> — **A.A. Milne**
 
 ---
 
