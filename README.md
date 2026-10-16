@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All know the way; few actually walk it."  
-> — **Bodhidharma**
+> "With the new day comes new strength and new thoughts."  
+> — **Eleanor Roosevelt**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You can have the mind or you can have the moment."  
-> — **Naval Ravikant**
+> "With the new day comes new strength and new thoughts."  
+> — **Eleanor Roosevelt**
 
 ---
 
