@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "Just living is not enough... one must have sunshine, freedom, and a little flower."  
+> — **Hans Christian Andersen**
 
 ---
 
