@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If you want peace, accept. If you want suffering, expect."  
-> — **Maxime Lagace**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 
-_Last updated: 15 October 2026 ⏳_
+_Last updated: 16 October 2026 ⏳_

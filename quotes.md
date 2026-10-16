@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's easy to be a critic, but being a doer requires effort, risk, and change."  
-> — **Wayne Dyer**
+> "Our view of the world is truly shaped by what we decide to hear."  
+> — **William James**
 
 ---
 
-_Last updated: 15 October 2026 ⏳_
+_Last updated: 16 October 2026 ⏳_
