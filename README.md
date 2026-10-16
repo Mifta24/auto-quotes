@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With the new day comes new strength and new thoughts."  
-> — **Eleanor Roosevelt**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 

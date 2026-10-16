@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only difference between success and failure is the ability to take action."  
-> — **Alexander Graham Bell**
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
+> — **Jon Kabat-Zinn**
 
 ---
 
