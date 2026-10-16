@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "With the new day comes new strength and new thoughts."  
-> — **Eleanor Roosevelt**
+> "The only difference between success and failure is the ability to take action."  
+> — **Alexander Graham Bell**
 
 ---
 
