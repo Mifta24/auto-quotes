@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All know the way; few actually walk it."  
-> — **Bodhidharma**
+> "You can have the mind or you can have the moment."  
+> — **Naval Ravikant**
 
 ---
 
