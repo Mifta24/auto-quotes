@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Our view of the world is truly shaped by what we decide to hear."  
-> — **William James**
+> "The wiser you get, the less you care to look like a fool."  
+> — **Maxime Lagace**
 
 ---
 
