@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You're braver than you believe, and stronger than you seem, and smarter than you think."  
-> — **A.A. Milne**
+> "All know the way; few actually walk it."  
+> — **Bodhidharma**
 
 ---
 

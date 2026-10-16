@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just living is not enough... one must have sunshine, freedom, and a little flower."  
-> — **Hans Christian Andersen**
+> "All know the way; few actually walk it."  
+> — **Bodhidharma**
 
 ---
 
