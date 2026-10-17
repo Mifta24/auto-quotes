@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In youth we run into difficulties. In old age difficulties run into us."  
-> — **Beverly Sills**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
+> — **Wayne Dyer**
 
 ---
 

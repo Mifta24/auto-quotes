@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every day passes whether you participate or not."  
-> — **Ming-Dao Deng**
+> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
+> — **Wayne Dyer**
 
 ---
 
