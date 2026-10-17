@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
-> — **Wayne Dyer**
+> "Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference."  
+> — **Robert Frost**
 
 ---
 
