@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Anyone who wants to achieve a dream must stay strong, focused and steady."  
-> — **Estee Lauder**
+> "Every one of us is the sum total of his own thoughts."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 16 October 2026 ⏳_
+_Last updated: 17 October 2026 ⏳_

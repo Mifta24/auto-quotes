@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own."  
-> — **Jon Kabat-Zinn**
+> "Every one of us is the sum total of his own thoughts."  
+> — **Earl Nightingale**
 
 ---
 
-_Last updated: 16 October 2026 ⏳_
+_Last updated: 17 October 2026 ⏳_
