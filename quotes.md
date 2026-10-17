@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I have no methods; all I do is accept people as they are."  
-> — **Joan Rivers**
+> "The secret of life isn't what happens to you, but what you do with what happens to you."  
+> — **Norman Vincent Peale**
 
 ---
 
