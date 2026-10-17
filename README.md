@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every one of us is the sum total of his own thoughts."  
-> — **Earl Nightingale**
+> "The way out is in."  
+> — **Thich Nhat Hanh**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Before preparing to improve the world, first look around your own home three times."  
-> — **Chinese Proverb**
+> "The way out is in."  
+> — **Thich Nhat Hanh**
 
 ---
 
