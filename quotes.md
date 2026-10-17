@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fiction is the truth inside the lie."  
-> — **Stephen King**
+> "Every day passes whether you participate or not."  
+> — **Ming-Dao Deng**
 
 ---
 

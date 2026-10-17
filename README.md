@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "Every day passes whether you participate or not."  
+> — **Ming-Dao Deng**
 
 ---
 
