@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every one of us is the sum total of his own thoughts."  
-> — **Earl Nightingale**
+> "Before preparing to improve the world, first look around your own home three times."  
+> — **Chinese Proverb**
 
 ---
 
