@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every day passes whether you participate or not."  
-> — **Ming-Dao Deng**
+> "In youth we run into difficulties. In old age difficulties run into us."  
+> — **Beverly Sills**
 
 ---
 
