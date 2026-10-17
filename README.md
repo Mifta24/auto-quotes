@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be."  
-> — **Wayne Dyer**
+> "I have no methods; all I do is accept people as they are."  
+> — **Joan Rivers**
 
 ---
 
