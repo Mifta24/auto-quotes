@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way out is in."  
-> — **Thich Nhat Hanh**
+> "Fiction is the truth inside the lie."  
+> — **Stephen King**
 
 ---
 
