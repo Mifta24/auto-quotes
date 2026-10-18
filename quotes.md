@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything becomes interesting if you look at it long enough.."  
-> — **Gustave Flaubert**
+> "Love is merely the name for the desire and pursuit of the whole."  
+> — **Aristophanes**
 
 ---
 
