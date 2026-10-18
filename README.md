@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone wants to go to Heaven, but no one wants to die."  
-> — **Robert Kiyosaki**
+> "Anything becomes interesting if you look at it long enough.."  
+> — **Gustave Flaubert**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Rest in reason; move in passion."  
-> — **Kahlil Gibran**
+> "Anything becomes interesting if you look at it long enough.."  
+> — **Gustave Flaubert**
 
 ---
 
