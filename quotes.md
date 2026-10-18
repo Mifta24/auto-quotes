@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."  
+> — **Billie Jean King**
 
 ---
 
