@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are always your own best guru, your own best teacher, the answers are always inside you."  
-> — **Sathya Sai Baba**
+> "Everyone wants to go to Heaven, but no one wants to die."  
+> — **Robert Kiyosaki**
 
 ---
 
