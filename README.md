@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Anything becomes interesting if you look at it long enough.."  
-> — **Gustave Flaubert**
+> "Every saint has a past, and every sinner has a future."  
+> — **Oscar Wilde**
 
 ---
 

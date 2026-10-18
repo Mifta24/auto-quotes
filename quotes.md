@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Love is merely the name for the desire and pursuit of the whole."  
-> — **Aristophanes**
+> "Every saint has a past, and every sinner has a future."  
+> — **Oscar Wilde**
 
 ---
 
