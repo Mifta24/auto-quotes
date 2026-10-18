@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
-> — **Pema Chodron**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 
