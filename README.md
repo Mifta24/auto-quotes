@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I have no methods; all I do is accept people as they are."  
-> — **Joan Rivers**
+> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
+> — **Pema Chodron**
 
 ---
 
-_Last updated: 17 October 2026 ⏳_
+_Last updated: 18 October 2026 ⏳_

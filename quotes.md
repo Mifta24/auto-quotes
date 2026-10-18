@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The secret of life isn't what happens to you, but what you do with what happens to you."  
-> — **Norman Vincent Peale**
+> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
+> — **Pema Chodron**
 
 ---
 
-_Last updated: 17 October 2026 ⏳_
+_Last updated: 18 October 2026 ⏳_
