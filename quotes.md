@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
-> — **Stephen King**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 

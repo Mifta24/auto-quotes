@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Hope and fear come from feeling that we lack something; they come from a sense of poverty."  
-> — **Pema Chodron**
+> "You are always your own best guru, your own best teacher, the answers are always inside you."  
+> — **Sathya Sai Baba**
 
 ---
 
