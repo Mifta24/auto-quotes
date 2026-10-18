@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone wants to go to Heaven, but no one wants to die."  
-> — **Robert Kiyosaki**
+> "Rest in reason; move in passion."  
+> — **Kahlil Gibran**
 
 ---
 
