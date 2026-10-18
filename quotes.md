@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every saint has a past, and every sinner has a future."  
-> — **Oscar Wilde**
+> "Adults are just children who earn money."  
+> — **Kenneth Branagh**
 
 ---
 
