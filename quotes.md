@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable."  
-> — **Elon Musk**
+> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
+> — **Brian Tracy**
 
 ---
 
