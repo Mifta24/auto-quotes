@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
-> — **Carlos Ruiz Zafon**
+> "Most of us will do anything to avoid facing ourselves."  
+> — **Lolly Daskal**
 
 ---
 
