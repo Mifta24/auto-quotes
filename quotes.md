@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most people achieved their greatest success one step beyond what looked like their greatest failure."  
-> — **Brian Tracy**
+> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
+> — **Carlos Ruiz Zafon**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable."  
-> — **Elon Musk**
+> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
+> — **Carlos Ruiz Zafon**
 
 ---
 
