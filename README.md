@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Poetry is written with tears, fiction with blood, and history with invisible ink."  
-> — **Carlos Ruiz Zafon**
+> "Life is a balance of holding on and letting go."  
+> — **Rumi**
 
 ---
 

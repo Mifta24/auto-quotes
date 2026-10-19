@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Most of us will do anything to avoid facing ourselves."  
-> — **Lolly Daskal**
+> "Life is a balance of holding on and letting go."  
+> — **Rumi**
 
 ---
 
