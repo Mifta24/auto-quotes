@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Every saint has a past, and every sinner has a future."  
-> — **Oscar Wilde**
+> "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable."  
+> — **Elon Musk**
 
 ---
 
-_Last updated: 18 October 2026 ⏳_
+_Last updated: 19 October 2026 ⏳_
