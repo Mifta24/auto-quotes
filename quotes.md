@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Life is a balance of holding on and letting go."  
-> — **Rumi**
+> "The most courageous act is still to think for yourself. Aloud."  
+> — **Coco Chanel**
 
 ---
 
