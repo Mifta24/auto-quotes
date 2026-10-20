@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed by your problems; be led by your dreams."  
-> — **Unknown**
+> "Be willing to be a beginner every single morning."  
+> — **Meister Eckhart**
 
 ---
 

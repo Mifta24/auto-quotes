@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader leads by example, not by force."  
-> — **Sun Tzu**
+> "Be willing to be a beginner every single morning."  
+> — **Meister Eckhart**
 
 ---
 
