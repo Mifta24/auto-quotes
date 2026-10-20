@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure is just information and an opportunity to change your course."  
-> — **Oprah Winfrey**
+> "Decide upon your major definite purpose in life and then organize all your activities around it."  
+> — **Brian Tracy**
 
 ---
 
