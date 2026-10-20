@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We would accomplish many more things if we did not think of them as impossible."  
-> — **Vince Lombardi**
+> "A leader leads by example, not by force."  
+> — **Sun Tzu**
 
 ---
 

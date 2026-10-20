@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Comedy = tragedy + time."  
-> — **Carol Burnett**
+> "A leader leads by example, not by force."  
+> — **Sun Tzu**
 
 ---
 
