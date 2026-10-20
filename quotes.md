@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A leader leads by example, not by force."  
-> — **Sun Tzu**
+> "Don't be pushed by your problems; be led by your dreams."  
+> — **Unknown**
 
 ---
 
