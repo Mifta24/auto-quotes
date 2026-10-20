@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easier to fight for one's principles than to live up to them."  
-> — **Alfred Adler**
+> "Do not allow your inner doubts to keep you from achieving what you can do."  
+> — **Lolly Daskal**
 
 ---
 
