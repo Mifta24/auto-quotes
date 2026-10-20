@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Comedy = tragedy + time."  
-> — **Carol Burnett**
+> "We would accomplish many more things if we did not think of them as impossible."  
+> — **Vince Lombardi**
 
 ---
 
