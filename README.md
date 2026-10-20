@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Life is a balance of holding on and letting go."  
-> — **Rumi**
+> "Comedy = tragedy + time."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 19 October 2026 ⏳_
+_Last updated: 20 October 2026 ⏳_

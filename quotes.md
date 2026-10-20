@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The most courageous act is still to think for yourself. Aloud."  
-> — **Coco Chanel**
+> "Comedy = tragedy + time."  
+> — **Carol Burnett**
 
 ---
 
-_Last updated: 19 October 2026 ⏳_
+_Last updated: 20 October 2026 ⏳_
