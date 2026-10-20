@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one can confidently say that he will still be living tomorrow."  
-> — **Euripides**
+> "It is easier to fight for one's principles than to live up to them."  
+> — **Alfred Adler**
 
 ---
 

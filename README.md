@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be willing to be a beginner every single morning."  
-> — **Meister Eckhart**
+> "It is easier to fight for one's principles than to live up to them."  
+> — **Alfred Adler**
 
 ---
 
