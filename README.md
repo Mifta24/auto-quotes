@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is easier to fight for one's principles than to live up to them."  
-> — **Alfred Adler**
+> "Failure is just information and an opportunity to change your course."  
+> — **Oprah Winfrey**
 
 ---
 
