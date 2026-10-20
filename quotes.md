@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be willing to be a beginner every single morning."  
-> — **Meister Eckhart**
+> "No one can confidently say that he will still be living tomorrow."  
+> — **Euripides**
 
 ---
 
