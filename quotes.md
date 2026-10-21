@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You are what you do, not what you say you'll do."  
-> — **Carl Jung**
+> "I'm an optimist by choice not by stupidity."  
+> — **Yanni**
 
 ---
 
