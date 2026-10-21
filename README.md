@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you put water into a cup, it becomes the cup."  
-> — **Bruce Lee**
+> "Don't stumble over something that's behind you."  
+> — **Steve Harvey**
 
 ---
 

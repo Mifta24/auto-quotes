@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The roots of education are bitter, but the fruit is sweet."  
-> — **Aristotle**
+> "Don't stumble over something that's behind you."  
+> — **Steve Harvey**
 
 ---
 
