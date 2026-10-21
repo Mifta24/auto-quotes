@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
-> — **Stephen King**
+> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
+> — **F. Scott Fitzgerald**
 
 ---
 

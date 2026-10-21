@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't stumble over something that's behind you."  
-> — **Steve Harvey**
+> "Sometimes it is harder to deprive oneself of a pain than of a pleasure."  
+> — **F. Scott Fitzgerald**
 
 ---
 
