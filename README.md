@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure is just information and an opportunity to change your course."  
-> — **Oprah Winfrey**
+> "Time goes from present to past."  
+> — **Shunryu Suzuki**
 
 ---
 
-_Last updated: 20 October 2026 ⏳_
+_Last updated: 21 October 2026 ⏳_
