@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't stumble over something that's behind you."  
-> — **Steve Harvey**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 
