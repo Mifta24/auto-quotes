@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted."  
-> — **Robert Collier**
+> "If you put water into a cup, it becomes the cup."  
+> — **Bruce Lee**
 
 ---
 

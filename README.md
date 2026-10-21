@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time goes from present to past."  
-> — **Shunryu Suzuki**
+> "If you put water into a cup, it becomes the cup."  
+> — **Bruce Lee**
 
 ---
 
