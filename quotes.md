@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you put water into a cup, it becomes the cup."  
-> — **Bruce Lee**
+> "The roots of education are bitter, but the fruit is sweet."  
+> — **Aristotle**
 
 ---
 
