@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It all depends on what you choose to believe."  
-> — **Spencer Johnson**
+> "Animals don't hate, and we're supposed to be better than them."  
+> — **Elvis Presley**
 
 ---
 
