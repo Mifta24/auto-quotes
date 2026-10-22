@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time."  
-> — **Thomas Jefferson**
+> "Don't be afraid to give up the good to go for the great."  
+> — **John D. Rockefeller**
 
 ---
 
