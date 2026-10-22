@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is in the darkness that one finds the light."  
-> — **Meister Eckhart**
+> "If you want to make God laugh, tell him about your plans."  
+> — **Woody Allen**
 
 ---
 
