@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to give up the good to go for the great."  
-> — **John D. Rockefeller**
+> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
+> — **Napoleon Hill**
 
 ---
 
