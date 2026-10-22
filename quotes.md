@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Opportunity often comes disguised in the form of misfortune or temporary defeat."  
-> — **Napoleon Hill**
+> "If you practiced for the day, then you have won. If you were lazy for the day, then you have lost."  
+> — **Ming-Dao Deng**
 
 ---
 

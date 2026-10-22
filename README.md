@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be afraid to give up the good to go for the great."  
-> — **John D. Rockefeller**
+> "If you practiced for the day, then you have won. If you were lazy for the day, then you have lost."  
+> — **Ming-Dao Deng**
 
 ---
 
