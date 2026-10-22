@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Animals don't hate, and we're supposed to be better than them."  
-> — **Elvis Presley**
+> "Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time."  
+> — **Thomas Jefferson**
 
 ---
 
