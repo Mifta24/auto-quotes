@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "You are what you do, not what you say you'll do."  
-> — **Carl Jung**
+> "It all depends on what you choose to believe."  
+> — **Spencer Johnson**
 
 ---
 
-_Last updated: 21 October 2026 ⏳_
+_Last updated: 22 October 2026 ⏳_
