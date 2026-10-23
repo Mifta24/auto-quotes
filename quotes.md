@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone sees what you appear to be, few experience what you really are."  
-> — **Niccolo Machiavelli**
+> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."  
+> — **Socrates**
 
 ---
 
