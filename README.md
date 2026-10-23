@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time is more valuable than money. You can get more money, but you cannot get more time."  
-> — **Jim Rohn**
+> "Everyone sees what you appear to be, few experience what you really are."  
+> — **Niccolo Machiavelli**
 
 ---
 
