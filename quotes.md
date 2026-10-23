@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Time is more valuable than money. You can get more money, but you cannot get more time."  
-> — **Jim Rohn**
+> "When it is dark enough, you can see the stars."  
+> — **Ralph Waldo Emerson**
 
 ---
 
