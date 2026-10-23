@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "Time is more valuable than money. You can get more money, but you cannot get more time."  
+> — **Jim Rohn**
 
 ---
 

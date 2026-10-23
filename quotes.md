@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He who cannot be a good follower cannot be a good leader."  
-> — **Aristotle**
+> "Time is more valuable than money. You can get more money, but you cannot get more time."  
+> — **Jim Rohn**
 
 ---
 
