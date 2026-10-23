@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a wisdom of the head, and there is a wisdom of the heart."  
-> — **Charles Dickens**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 

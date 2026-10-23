@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your vision will become clear only when you can look into your own heart."  
-> — **Lolly Daskal**
+> "Unless someone truly has the power to say no, they never truly have the power to say yes."  
+> — **Dan Millman**
 
 ---
 
