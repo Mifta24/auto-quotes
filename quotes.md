@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There is a wisdom of the head, and there is a wisdom of the heart."  
-> — **Charles Dickens**
+> "Your vision will become clear only when you can look into your own heart."  
+> — **Lolly Daskal**
 
 ---
 
