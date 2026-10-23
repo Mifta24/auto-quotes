@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even if you're sure you can win, be careful that you can live with what you lose."  
-> — **Gary Keller**
+> "He who cannot be a good follower cannot be a good leader."  
+> — **Aristotle**
 
 ---
 
