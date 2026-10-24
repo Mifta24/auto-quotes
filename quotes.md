@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One loyal friend is worth ten thousand relatives."  
-> — **Euripides**
+> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
+> — **Josh Waitzkin**
 
 ---
 
