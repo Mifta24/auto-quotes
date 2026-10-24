@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
-> — **Stephen King**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 

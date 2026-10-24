@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An action committed in anger is an action doomed to failure."  
-> — **Genghis Khan**
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
+> — **Epictetus**
 
 ---
 
