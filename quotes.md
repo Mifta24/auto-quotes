@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Sometimes you put walls up not to keep people out, but to see who cares enough to break them down."  
-> — **Socrates**
+> "The greatest miracle is to be alive."  
+> — **Thich Nhat Hanh**
 
 ---
 
-_Last updated: 23 October 2026 ⏳_
+_Last updated: 24 October 2026 ⏳_
