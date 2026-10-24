@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The soul should always stand ajar, ready to welcome the ecstatic experience."  
-> — **Emily Dickinson**
+> "An action committed in anger is an action doomed to failure."  
+> — **Genghis Khan**
 
 ---
 

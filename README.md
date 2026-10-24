@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are most nearly ourselves when we achieve the seriousness of the child at play."  
-> — **Heraclitus**
+> "An action committed in anger is an action doomed to failure."  
+> — **Genghis Khan**
 
 ---
 
