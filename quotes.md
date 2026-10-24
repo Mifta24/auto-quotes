@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
-> — **Epictetus**
+> "Good entrepreneurs don't fail because they stay at it."  
+> — **Naval Ravikant**
 
 ---
 
