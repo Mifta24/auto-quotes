@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An action committed in anger is an action doomed to failure."  
-> — **Genghis Khan**
+> "Amateurs sit and wait for inspiration, the rest of us just get up and got to work."  
+> — **Stephen King**
 
 ---
 
