@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence."  
-> — **Josh Waitzkin**
+> "We are most nearly ourselves when we achieve the seriousness of the child at play."  
+> — **Heraclitus**
 
 ---
 

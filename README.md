@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One loyal friend is worth ten thousand relatives."  
-> — **Euripides**
+> "We are most nearly ourselves when we achieve the seriousness of the child at play."  
+> — **Heraclitus**
 
 ---
 
