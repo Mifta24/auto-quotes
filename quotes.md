@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest miracle is to be alive."  
-> — **Thich Nhat Hanh**
+> "Decide what your truth is. Then live it."  
+> — **Kamal Ravikant**
 
 ---
 
