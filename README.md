@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest miracle is to be alive."  
-> — **Thich Nhat Hanh**
+> "One loyal friend is worth ten thousand relatives."  
+> — **Euripides**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Decide what your truth is. Then live it."  
-> — **Kamal Ravikant**
+> "One loyal friend is worth ten thousand relatives."  
+> — **Euripides**
 
 ---
 
