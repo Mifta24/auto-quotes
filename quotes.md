@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How much pain they have cost us, the evils which have never happened."  
-> — **Thomas Jefferson**
+> "No one can confidently say that he will still be living tomorrow."  
+> — **Euripides**
 
 ---
 
