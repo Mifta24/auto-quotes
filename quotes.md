@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
+> — **Jon Kabat-Zinn**
 
 ---
 
