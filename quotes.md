@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Setting goals is the first step in turning the invisible into the visible."  
-> — **Tony Robbins**
+> "Boldness makes even the smallest animal dangerous."  
+> — **Robert Greene**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Till it has loved, no man or woman can become itself."  
-> — **Emily Dickinson**
+> "Boldness makes even the smallest animal dangerous."  
+> — **Robert Greene**
 
 ---
 
