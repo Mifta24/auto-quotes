@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Pleasure in the job puts perfection in the work."  
-> — **Aristotle**
+> "How much pain they have cost us, the evils which have never happened."  
+> — **Thomas Jefferson**
 
 ---
 

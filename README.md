@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Boldness makes even the smallest animal dangerous."  
-> — **Robert Greene**
+> "How much pain they have cost us, the evils which have never happened."  
+> — **Thomas Jefferson**
 
 ---
 
