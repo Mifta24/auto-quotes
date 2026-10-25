@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No one can confidently say that he will still be living tomorrow."  
-> — **Euripides**
+> "Embrace the life you have and stop wishing that you could be someone else."  
+> — **Joyce Meyer**
 
 ---
 

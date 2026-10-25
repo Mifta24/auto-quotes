@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "How much pain they have cost us, the evils which have never happened."  
-> — **Thomas Jefferson**
+> "Embrace the life you have and stop wishing that you could be someone else."  
+> — **Joyce Meyer**
 
 ---
 
