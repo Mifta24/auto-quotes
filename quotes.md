@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Boldness makes even the smallest animal dangerous."  
-> — **Robert Greene**
+> "Pleasure in the job puts perfection in the work."  
+> — **Aristotle**
 
 ---
 
