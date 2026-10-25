@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Embrace the life you have and stop wishing that you could be someone else."  
-> — **Joyce Meyer**
+> "A good salesman is like a good cook—he can create an appetite when the buyer isn't hungry."  
+> — **George Lorimer**
 
 ---
 
