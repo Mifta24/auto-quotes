@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A good salesman is like a good cook—he can create an appetite when the buyer isn't hungry."  
-> — **George Lorimer**
+> "We think too much and feel too little."  
+> — **Charlie Chaplin**
 
 ---
 

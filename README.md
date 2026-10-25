@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Embrace the life you have and stop wishing that you could be someone else."  
-> — **Joyce Meyer**
+> "We think too much and feel too little."  
+> — **Charlie Chaplin**
 
 ---
 
