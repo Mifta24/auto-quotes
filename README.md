@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them."  
-> — **Epictetus**
+> "Till it has loved, no man or woman can become itself."  
+> — **Emily Dickinson**
 
 ---
 
-_Last updated: 24 October 2026 ⏳_
+_Last updated: 25 October 2026 ⏳_
