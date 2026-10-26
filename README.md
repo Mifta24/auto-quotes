@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The single most powerful asset we all have is our mind."  
-> — **Robert Kiyosaki**
+> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
+> — **Dogen**
 
 ---
 

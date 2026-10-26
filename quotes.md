@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is during our darkest moments that we must focus to see the light."  
-> — **Aristotle**
+> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
+> — **Dogen**
 
 ---
 
