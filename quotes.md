@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many roads lead to the path, but basically there are only two: reason and practice."  
-> — **Bodhidharma**
+> "To forget the whole world is easy; to make the whole world forget you is hard."  
+> — **Zhuangzi**
 
 ---
 
