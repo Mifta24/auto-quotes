@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself."  
-> — **Jon Kabat-Zinn**
+> "The single most powerful asset we all have is our mind."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 25 October 2026 ⏳_
+_Last updated: 26 October 2026 ⏳_

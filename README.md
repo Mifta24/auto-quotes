@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We think too much and feel too little."  
-> — **Charlie Chaplin**
+> "The single most powerful asset we all have is our mind."  
+> — **Robert Kiyosaki**
 
 ---
 
-_Last updated: 25 October 2026 ⏳_
+_Last updated: 26 October 2026 ⏳_
