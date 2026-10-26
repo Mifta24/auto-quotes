@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "As soon as you truly commit to making something happen, the 'how' will reveal itself."  
-> — **Tony Robbins**
+> "Many roads lead to the path, but basically there are only two: reason and practice."  
+> — **Bodhidharma**
 
 ---
 
