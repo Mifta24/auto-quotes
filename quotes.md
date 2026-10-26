@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not follow the ideas of others, but learn to listen to the voice within yourself."  
-> — **Dogen**
+> "As soon as you truly commit to making something happen, the 'how' will reveal itself."  
+> — **Tony Robbins**
 
 ---
 
