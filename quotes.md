@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The single most powerful asset we all have is our mind."  
-> — **Robert Kiyosaki**
+> "It is during our darkest moments that we must focus to see the light."  
+> — **Aristotle**
 
 ---
 
