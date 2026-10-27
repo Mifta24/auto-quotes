@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only in the agony of parting do we look into the depths of love."  
-> — **George Eliot**
+> "It is our choices that show what we truly are, far more than our abilities."  
+> — **Albus Dumbledore**
 
 ---
 
