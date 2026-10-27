@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Human beings can alter their lives by altering their attitudes of mind."  
-> — **William James**
+> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
+> — **Ryan Holiday**
 
 ---
 

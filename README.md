@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I dream my painting and I paint my dream."  
-> — **Vincent van Gogh**
+> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
+> — **Ryan Holiday**
 
 ---
 
