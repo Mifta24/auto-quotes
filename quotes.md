@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
-> — **Ryan Holiday**
+> "The prettiest eyes have cried the most."  
+> — **Unknown**
 
 ---
 
