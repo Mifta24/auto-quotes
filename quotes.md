@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I dream my painting and I paint my dream."  
-> — **Vincent van Gogh**
+> "Human beings can alter their lives by altering their attitudes of mind."  
+> — **William James**
 
 ---
 
