@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The wise man reads both books and life itself."  
-> — **Lin Yutang**
+> "I dream my painting and I paint my dream."  
+> — **Vincent van Gogh**
 
 ---
 

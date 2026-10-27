@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The very essence of instinct is that it's followed independently of reason."  
-> — **Charles Darwin**
+> "I dream my painting and I paint my dream."  
+> — **Vincent van Gogh**
 
 ---
 
