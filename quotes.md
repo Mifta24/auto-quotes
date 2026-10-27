@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is our choices that show what we truly are, far more than our abilities."  
-> — **Albus Dumbledore**
+> "The wise man reads both books and life itself."  
+> — **Lin Yutang**
 
 ---
 

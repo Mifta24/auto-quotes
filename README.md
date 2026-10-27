@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Only in the agony of parting do we look into the depths of love."  
-> — **George Eliot**
+> "The wise man reads both books and life itself."  
+> — **Lin Yutang**
 
 ---
 
