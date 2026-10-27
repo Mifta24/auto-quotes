@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Many roads lead to the path, but basically there are only two: reason and practice."  
-> — **Bodhidharma**
+> "Only in the agony of parting do we look into the depths of love."  
+> — **George Eliot**
 
 ---
 
-_Last updated: 26 October 2026 ⏳_
+_Last updated: 27 October 2026 ⏳_
