@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There's no one to perform for. There is just work to be done and lessons to be learned, in all that is around us."  
-> — **Ryan Holiday**
+> "The harder you work, the harder it is to surrender."  
+> — **Vince Lombardi**
 
 ---
 
-_Last updated: 27 October 2026 ⏳_
+_Last updated: 28 October 2026 ⏳_
