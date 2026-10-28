@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
-> — **Nicolas Chamfort**
+> "Don't wait for the right opportunity: create it."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Turn your wounds into wisdom."  
-> — **Oprah Winfrey**
+> "Don't wait for the right opportunity: create it."  
+> — **George Bernard Shaw**
 
 ---
 
