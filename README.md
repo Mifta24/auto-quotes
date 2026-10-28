@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The harder you work, the harder it is to surrender."  
-> — **Vince Lombardi**
+> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live."  
+> — **Nicolas Chamfort**
 
 ---
 
