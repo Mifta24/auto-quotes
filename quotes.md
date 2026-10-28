@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The harder you work, the harder it is to surrender."  
-> — **Vince Lombardi**
+> "No kind action ever stops with itself. One kind action leads to another. Good example is followed."  
+> — **Amelia Earhart**
 
 ---
 
