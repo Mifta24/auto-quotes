@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't wait for the right opportunity: create it."  
-> — **George Bernard Shaw**
+> "Listen to what you know instead of what you fear."  
+> — **Richard Bach**
 
 ---
 
