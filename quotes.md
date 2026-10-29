@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Know yourself and you will win all battles."  
-> — **Sun Tzu**
+> "Fear is stupid. So are regrets."  
+> — **Marilyn Monroe**
 
 ---
 
