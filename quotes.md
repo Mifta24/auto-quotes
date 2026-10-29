@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Patience expands your options. If you insist on immediate gratification, your choices are severely limited."  
-> — **Ralph Marston**
+> "Knowing others is wisdom, knowing yourself is enlightenment."  
+> — **Lao Tzu**
 
 ---
 
