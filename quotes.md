@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be happy now, without reason - or you never will be at all."  
-> — **Dan Millman**
+> "I have never in my life learned anything from any man who agreed with me."  
+> — **Dudley Field Malone**
 
 ---
 
