@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Fear is stupid. So are regrets."  
-> — **Marilyn Monroe**
+> "Patience expands your options. If you insist on immediate gratification, your choices are severely limited."  
+> — **Ralph Marston**
 
 ---
 

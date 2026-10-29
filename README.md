@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Know yourself and you will win all battles."  
-> — **Sun Tzu**
+> "Patience expands your options. If you insist on immediate gratification, your choices are severely limited."  
+> — **Ralph Marston**
 
 ---
 
