@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Don't wait for the right opportunity: create it."  
-> — **George Bernard Shaw**
+> "Be happy now, without reason - or you never will be at all."  
+> — **Dan Millman**
 
 ---
 
-_Last updated: 28 October 2026 ⏳_
+_Last updated: 29 October 2026 ⏳_
