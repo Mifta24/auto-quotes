@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Be happy now, without reason - or you never will be at all."  
-> — **Dan Millman**
+> "Know yourself and you will win all battles."  
+> — **Sun Tzu**
 
 ---
 
