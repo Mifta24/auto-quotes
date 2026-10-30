@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult roads often lead to beautiful destinations."  
-> — **Unknown**
+> "Good entrepreneurs don't fail because they stay at it."  
+> — **Naval Ravikant**
 
 ---
 
