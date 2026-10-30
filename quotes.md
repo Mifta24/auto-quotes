@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is achieved and maintained by those who try and keep trying."  
-> — **W. Clement Stone**
+> "Difficult roads often lead to beautiful destinations."  
+> — **Unknown**
 
 ---
 
