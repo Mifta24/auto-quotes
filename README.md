@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Difficult roads often lead to beautiful destinations."  
-> — **Unknown**
+> "The best way out is always through."  
+> — **Robert Frost**
 
 ---
 
