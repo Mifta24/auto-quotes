@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the advantages of being disorganized is that one is always having surprising discoveries."  
-> — **A.A. Milne**
+> "The successful warrior is the average man, with laser-like focus."  
+> — **Bruce Lee**
 
 ---
 
