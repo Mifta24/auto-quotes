@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No matter what happens, always be yourself."  
-> — **Dale Carnegie**
+> "If you see someone without a smile give them one of yours."  
+> — **Unknown**
 
 ---
 
