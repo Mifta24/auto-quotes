@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The successful warrior is the average man, with laser-like focus."  
-> — **Bruce Lee**
+> "No man becomes rich unless he enriches others."  
+> — **Andrew Carnegie**
 
 ---
 

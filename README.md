@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the advantages of being disorganized is that one is always having surprising discoveries."  
-> — **A.A. Milne**
+> "No man becomes rich unless he enriches others."  
+> — **Andrew Carnegie**
 
 ---
 
