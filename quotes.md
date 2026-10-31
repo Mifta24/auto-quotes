@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you see someone without a smile give them one of yours."  
-> — **Unknown**
+> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."  
+> — **Steve Maraboli**
 
 ---
 
