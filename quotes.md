@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "By words the mind is winged."  
-> — **Aristophanes**
+> "No matter what happens, always be yourself."  
+> — **Dale Carnegie**
 
 ---
 

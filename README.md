@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "No man becomes rich unless he enriches others."  
-> — **Andrew Carnegie**
+> "No matter what happens, always be yourself."  
+> — **Dale Carnegie**
 
 ---
 
