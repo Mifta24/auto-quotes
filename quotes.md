@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
-> — **Rumi**
+> "Treat every moment as your last. It is not preparation for something else."  
+> — **Shunryu Suzuki**
 
 ---
 

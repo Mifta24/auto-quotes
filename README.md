@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must create our own world or we will die from inaction."  
-> — **Robert Greene**
+> "Treat every moment as your last. It is not preparation for something else."  
+> — **Shunryu Suzuki**
 
 ---
 
