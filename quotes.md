@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We must create our own world or we will die from inaction."  
-> — **Robert Greene**
+> "Take time like the river that never grows stale. Keep going and steady. No hurry, no rush."  
+> — **Rumi**
 
 ---
 
