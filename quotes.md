@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It may take some hard work. But the more you say no to the things that don't matter, the more you can say yes to the things that do."  
-> — **Ryan Holiday**
+> "Life doesn't get easier or more forgiving, we get stronger and more resilient."  
+> — **Steve Maraboli**
 
 ---
 
