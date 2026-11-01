@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on."  
-> — **Steve Maraboli**
+> "Be brave. Take risks. Nothing can substitute experience."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 31 October 2026 ⏳_
+_Last updated: 01 November 2026 ⏳_

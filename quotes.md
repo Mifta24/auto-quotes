@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The giving of love is an education in itself."  
-> — **Eleanor Roosevelt**
+> "Be brave. Take risks. Nothing can substitute experience."  
+> — **Paulo Coelho**
 
 ---
 
-_Last updated: 31 October 2026 ⏳_
+_Last updated: 01 November 2026 ⏳_
