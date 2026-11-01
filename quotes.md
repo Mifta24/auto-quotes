@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Treat every moment as your last. It is not preparation for something else."  
-> — **Shunryu Suzuki**
+> "How you think is as important as as what you think."  
+> — **Unknown**
 
 ---
 
