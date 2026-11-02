@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "There are no mistakes in life, only lessons."  
+> — **Robin Sharma**
 
 ---
 
