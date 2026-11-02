@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't have time to do it right, when will you have time to do it over?"  
-> — **John Wooden**
+> "Help others and give something back."  
+> — **Arnold Schwarzenegger**
 
 ---
 
