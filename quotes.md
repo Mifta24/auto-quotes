@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Help others and give something back."  
-> — **Arnold Schwarzenegger**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 

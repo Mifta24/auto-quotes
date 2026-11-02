@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't have time to do it right, when will you have time to do it over?"  
-> — **John Wooden**
+> "Courage is knowing what not to fear."  
+> — **Plato**
 
 ---
 
