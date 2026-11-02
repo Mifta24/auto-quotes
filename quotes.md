@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "How you think is as important as as what you think."  
-> — **Unknown**
+> "If you don't have time to do it right, when will you have time to do it over?"  
+> — **John Wooden**
 
 ---
 
-_Last updated: 01 November 2026 ⏳_
+_Last updated: 02 November 2026 ⏳_
