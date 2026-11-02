@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are no mistakes in life, only lessons."  
-> — **Robin Sharma**
+> "A journey of a thousand miles begins with a single step."  
+> — **Lao Tzu**
 
 ---
 
