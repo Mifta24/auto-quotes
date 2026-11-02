@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Courage is knowing what not to fear."  
-> — **Plato**
+> "Words have no power to impress the mind without the exquisite horror of their reality."  
+> — **Edgar Allan Poe**
 
 ---
 
