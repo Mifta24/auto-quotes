@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't everything, but wanting to win is."  
-> — **Vince Lombardi**
+> "One of the most difficult things is not to change society - but to change yourself."  
+> — **Nelson Mandela**
 
 ---
 
