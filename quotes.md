@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "One of the most difficult things is not to change society - but to change yourself."  
-> — **Nelson Mandela**
+> "The act of taking the first step is what separates the winners from the losers."  
+> — **Brian Tracy**
 
 ---
 

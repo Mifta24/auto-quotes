@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Winning isn't everything, but wanting to win is."  
-> — **Vince Lombardi**
+> "The act of taking the first step is what separates the winners from the losers."  
+> — **Brian Tracy**
 
 ---
 
