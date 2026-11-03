@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles begins with a single step."  
-> — **Lao Tzu**
+> "Winning isn't everything, but wanting to win is."  
+> — **Vince Lombardi**
 
 ---
 
-_Last updated: 02 November 2026 ⏳_
+_Last updated: 03 November 2026 ⏳_

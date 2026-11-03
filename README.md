@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "There are no mistakes in life, only lessons."  
-> — **Robin Sharma**
+> "Winning isn't everything, but wanting to win is."  
+> — **Vince Lombardi**
 
 ---
 
-_Last updated: 02 November 2026 ⏳_
+_Last updated: 03 November 2026 ⏳_
