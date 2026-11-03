@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The act of taking the first step is what separates the winners from the losers."  
-> — **Brian Tracy**
+> "The highest level of wisdom is when you not only accept but love adversity."  
+> — **Maxime Lagace**
 
 ---
 
