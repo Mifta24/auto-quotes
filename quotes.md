@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Correct what you can. Learn from what you can't."  
-> — **Toni Morrison**
+> "Always seek out the seed of triumph in every adversity."  
+> — **Og Mandino**
 
 ---
 

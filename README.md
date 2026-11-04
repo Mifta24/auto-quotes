@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
-> — **Rumi**
+> "Always seek out the seed of triumph in every adversity."  
+> — **Og Mandino**
 
 ---
 
