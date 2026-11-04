@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
-> — **Rumi**
+> "Correct what you can. Learn from what you can't."  
+> — **Toni Morrison**
 
 ---
 
