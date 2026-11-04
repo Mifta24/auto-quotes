@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "An un-examined life is not worth living."  
-> — **Socrates**
+> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
+> — **Rumi**
 
 ---
 

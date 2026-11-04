@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "Raise your words, not voice. It is rain that grows flowers, not thunder."  
+> — **Rumi**
 
 ---
 
