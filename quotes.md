@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Respect is earned by effort not age, all things age without effort."  
-> — **C. Sean McGee**
+> "An un-examined life is not worth living."  
+> — **Socrates**
 
 ---
 
