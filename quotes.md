@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Remain calm. Be kind."  
-> — **Colin Powell**
+> "We live only now. Everything else is either passed or is unknown."  
+> — **Marcus Aurelius**
 
 ---
 
