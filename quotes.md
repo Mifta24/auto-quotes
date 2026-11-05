@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear."  
-> — **Nelson Mandela**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 04 November 2026 ⏳_
+_Last updated: 05 November 2026 ⏳_

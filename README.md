@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Always seek out the seed of triumph in every adversity."  
-> — **Og Mandino**
+> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
+> — **Epictetus**
 
 ---
 
-_Last updated: 04 November 2026 ⏳_
+_Last updated: 05 November 2026 ⏳_
