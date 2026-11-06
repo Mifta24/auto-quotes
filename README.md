@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only time you run out of chances is when you stop taking them."  
-> — **Unknown**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 

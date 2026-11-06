@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you judge others, you do not define them, you define yourself."  
-> — **Earl Nightingale**
+> "Success is about doing the right thing, not about doing everything right."  
+> — **Gary Keller**
 
 ---
 
