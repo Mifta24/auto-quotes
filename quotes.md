@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The only time you run out of chances is when you stop taking them."  
-> — **Unknown**
+> "When you judge others, you do not define them, you define yourself."  
+> — **Earl Nightingale**
 
 ---
 
