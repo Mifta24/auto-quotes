@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control."  
-> — **Epictetus**
+> "Success is a consequence and must not be a goal."  
+> — **Gustave Flaubert**
 
 ---
 
-_Last updated: 05 November 2026 ⏳_
+_Last updated: 06 November 2026 ⏳_
