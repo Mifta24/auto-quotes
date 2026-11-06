@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "The purpose of life is to contribute in some way to making things better."  
+> — **Robert F. Kennedy**
 
 ---
 
