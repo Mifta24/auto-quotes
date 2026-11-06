@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The purpose of life is to contribute in some way to making things better."  
-> — **Robert F. Kennedy**
+> "The only time you run out of chances is when you stop taking them."  
+> — **Unknown**
 
 ---
 

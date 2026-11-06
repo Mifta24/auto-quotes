@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is a consequence and must not be a goal."  
-> — **Gustave Flaubert**
+> "The only time you run out of chances is when you stop taking them."  
+> — **Unknown**
 
 ---
 
