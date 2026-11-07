@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you judge another, you do not define them, you define yourself"  
-> — **Wayne Dyer**
+> "Confidence is like a dragon where, for every head cut off, two more heads grow back."  
+> — **Criss Jami**
 
 ---
 
