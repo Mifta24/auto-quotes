@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success is about doing the right thing, not about doing everything right."  
-> — **Gary Keller**
+> "To get angry is like to revenge yourself for the guilt of others."  
+> — **Jonathan Swift**
 
 ---
 
-_Last updated: 06 November 2026 ⏳_
+_Last updated: 07 November 2026 ⏳_
