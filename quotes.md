@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Confidence is like a dragon where, for every head cut off, two more heads grow back."  
-> — **Criss Jami**
+> "Work harder on yourself than you do on your job."  
+> — **Jim Rohn**
 
 ---
 
