@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "To get angry is like to revenge yourself for the guilt of others."  
-> — **Jonathan Swift**
+> "I defeat my enemies when I make them my friends."  
+> — **Dalai Lama**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A very little key will open a very heavy door."  
-> — **Charles Dickens**
+> "I defeat my enemies when I make them my friends."  
+> — **Dalai Lama**
 
 ---
 
