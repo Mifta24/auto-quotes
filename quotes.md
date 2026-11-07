@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I defeat my enemies when I make them my friends."  
-> — **Dalai Lama**
+> "The joy of life comes from our encounters with new experiences."  
+> — **Christopher McCandless**
 
 ---
 
