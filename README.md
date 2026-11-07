@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "I defeat my enemies when I make them my friends."  
-> — **Dalai Lama**
+> "When you judge another, you do not define them, you define yourself"  
+> — **Wayne Dyer**
 
 ---
 

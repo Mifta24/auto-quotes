@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The joy of life comes from our encounters with new experiences."  
-> — **Christopher McCandless**
+> "When you judge another, you do not define them, you define yourself"  
+> — **Wayne Dyer**
 
 ---
 
