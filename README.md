@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Better to have, and not need, than to need, and not have."  
-> — **Franz Kafka**
+> "Success is within the reach of just about everyone."  
+> — **Lolly Daskal**
 
 ---
 
