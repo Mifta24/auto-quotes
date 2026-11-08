@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The key to success is action."  
-> — **Brian Tracy**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, accept. If you want suffering, expect."  
-> — **Maxime Lagace**
+> "Concentrated power has always been the enemy of liberty."  
+> — **Ronald Reagan**
 
 ---
 
