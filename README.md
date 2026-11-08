@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Confidence is like a dragon where, for every head cut off, two more heads grow back."  
-> — **Criss Jami**
+> "Better to have, and not need, than to need, and not have."  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 07 November 2026 ⏳_
+_Last updated: 08 November 2026 ⏳_

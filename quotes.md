@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Work harder on yourself than you do on your job."  
-> — **Jim Rohn**
+> "Better to have, and not need, than to need, and not have."  
+> — **Franz Kafka**
 
 ---
 
-_Last updated: 07 November 2026 ⏳_
+_Last updated: 08 November 2026 ⏳_
