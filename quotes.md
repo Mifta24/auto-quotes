@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Concentrated power has always been the enemy of liberty."  
-> — **Ronald Reagan**
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
+> — **Roy T. Bennett**
 
 ---
 
