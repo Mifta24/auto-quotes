@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want peace, accept. If you want suffering, expect."  
-> — **Maxime Lagace**
+> "The key to success is action."  
+> — **Brian Tracy**
 
 ---
 
