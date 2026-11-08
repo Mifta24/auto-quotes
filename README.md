@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is within the reach of just about everyone."  
-> — **Lolly Daskal**
+> "If you want peace, accept. If you want suffering, expect."  
+> — **Maxime Lagace**
 
 ---
 

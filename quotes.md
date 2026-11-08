@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes."  
-> — **Voltaire**
+> "If you want peace, accept. If you want suffering, expect."  
+> — **Maxime Lagace**
 
 ---
 
