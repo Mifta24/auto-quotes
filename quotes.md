@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you don't have time to do it right, when will you have time to do it over?"  
-> — **John Wooden**
+> "If you want to keep your memories, you first have to live them."  
+> — **Bob Dylan**
 
 ---
 

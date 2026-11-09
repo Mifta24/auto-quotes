@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."  
-> — **Warren Buffett**
+> "If you want to keep your memories, you first have to live them."  
+> — **Bob Dylan**
 
 ---
 
