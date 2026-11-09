@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to keep your memories, you first have to live them."  
-> — **Bob Dylan**
+> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
+> — **Bhagavad Gita**
 
 ---
 
