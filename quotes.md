@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars."  
-> — **Oscar Wilde**
+> "The deeper the truth in a creative work, the longer it will live."  
+> — **Charlie Chaplin**
 
 ---
 
