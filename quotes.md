@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place."  
-> — **Bhagavad Gita**
+> "We are all in the gutter, but some of us are looking at the stars."  
+> — **Oscar Wilde**
 
 ---
 

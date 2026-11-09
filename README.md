@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you want to keep your memories, you first have to live them."  
-> — **Bob Dylan**
+> "We are all in the gutter, but some of us are looking at the stars."  
+> — **Oscar Wilde**
 
 ---
 
