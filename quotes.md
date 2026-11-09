@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."  
-> — **Roy T. Bennett**
+> "We don't have to be smarter than the rest. We have to be more disciplined than the rest."  
+> — **Warren Buffett**
 
 ---
 
-_Last updated: 08 November 2026 ⏳_
+_Last updated: 09 November 2026 ⏳_
