@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The deeper the truth in a creative work, the longer it will live."  
-> — **Charlie Chaplin**
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 09 November 2026 ⏳_
+_Last updated: 10 November 2026 ⏳_

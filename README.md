@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "We are all in the gutter, but some of us are looking at the stars."  
-> — **Oscar Wilde**
+> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
+> — **Roy T. Bennett**
 
 ---
 
-_Last updated: 09 November 2026 ⏳_
+_Last updated: 10 November 2026 ⏳_
