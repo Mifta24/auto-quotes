@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart."  
-> — **Roy T. Bennett**
+> "Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny."  
+> — **Jeff Booth**
 
 ---
 

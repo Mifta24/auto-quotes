@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greater the impact you want to make, the greater your influence needs to be."  
-> — **Lolly Daskal**
+> "Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny."  
+> — **Jeff Booth**
 
 ---
 
