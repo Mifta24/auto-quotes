@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations."  
-> — **Wayne Gretzky**
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
+> — **James Cameron**
 
 ---
 
-_Last updated: 10 November 2026 ⏳_
+_Last updated: 11 November 2026 ⏳_

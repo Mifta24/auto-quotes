@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny."  
-> — **Jeff Booth**
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
+> — **James Cameron**
 
 ---
 
-_Last updated: 10 November 2026 ⏳_
+_Last updated: 11 November 2026 ⏳_
