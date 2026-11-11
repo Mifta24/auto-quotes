@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't listen to the person who has the answers; listen to the person who has the questions."  
-> — **Albert Einstein**
+> "Nothing ever goes away until it has taught us what we need to know."  
+> — **Pema Chodron**
 
 ---
 
