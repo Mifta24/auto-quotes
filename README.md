@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."  
-> — **James Cameron**
+> "Don't listen to the person who has the answers; listen to the person who has the questions."  
+> — **Albert Einstein**
 
 ---
 

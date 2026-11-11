@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In the practice of tolerance, one's enemy is the best teacher."  
-> — **Dalai Lama**
+> "Don't listen to the person who has the answers; listen to the person who has the questions."  
+> — **Albert Einstein**
 
 ---
 
