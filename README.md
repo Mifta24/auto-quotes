@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Don't listen to the person who has the answers; listen to the person who has the questions."  
-> — **Albert Einstein**
+> "Who wishes to fight must first count the cost."  
+> — **Sun Tzu**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Nothing ever goes away until it has taught us what we need to know."  
-> — **Pema Chodron**
+> "Who wishes to fight must first count the cost."  
+> — **Sun Tzu**
 
 ---
 
