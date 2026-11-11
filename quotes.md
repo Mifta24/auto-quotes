@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Who wishes to fight must first count the cost."  
-> — **Sun Tzu**
+> "Sadness is but a wall between two gardens."  
+> — **Kahlil Gibran**
 
 ---
 
