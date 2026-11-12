@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who praises you is a thief. The one who criticizes you is your true friend."  
-> — **Seungsahn**
+> "Success does not consist in never making mistakes but in never making the same one a second time."  
+> — **George Bernard Shaw**
 
 ---
 

@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There exists only the present instant; a Now which always and without end is itself new."  
-> — **Meister Eckhart**
+> "Success does not consist in never making mistakes but in never making the same one a second time."  
+> — **George Bernard Shaw**
 
 ---
 
