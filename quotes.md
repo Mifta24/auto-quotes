@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The one who praises you is a thief. The one who criticizes you is your true friend."  
-> — **Seungsahn**
+> "There exists only the present instant; a Now which always and without end is itself new."  
+> — **Meister Eckhart**
 
 ---
 
