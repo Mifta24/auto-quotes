@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Who wishes to fight must first count the cost."  
-> — **Sun Tzu**
+> "The one who praises you is a thief. The one who criticizes you is your true friend."  
+> — **Seungsahn**
 
 ---
 
-_Last updated: 11 November 2026 ⏳_
+_Last updated: 12 November 2026 ⏳_
