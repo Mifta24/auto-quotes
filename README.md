@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
-> — **Norman Vincent Peale**
+> "If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear."  
+> — **Jon Kabat-Zinn**
 
 ---
 
