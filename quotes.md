@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
-> — **Norman Vincent Peale**
+> "You can have everything in life you want if you will just help enough other people get what they want."  
+> — **Zig Ziglar**
 
 ---
 
