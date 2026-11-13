@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The sun is new each day."  
-> — **Heraclitus**
+> "You don't need a weatherman to know which way the wind blows."  
+> — **Bob Dylan**
 
 ---
 
-_Last updated: 12 November 2026 ⏳_
+_Last updated: 13 November 2026 ⏳_

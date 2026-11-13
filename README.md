@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Success does not consist in never making mistakes but in never making the same one a second time."  
-> — **George Bernard Shaw**
+> "You don't need a weatherman to know which way the wind blows."  
+> — **Bob Dylan**
 
 ---
 
-_Last updated: 12 November 2026 ⏳_
+_Last updated: 13 November 2026 ⏳_
