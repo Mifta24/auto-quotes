@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need a weatherman to know which way the wind blows."  
-> — **Bob Dylan**
+> "Only those who dare to fail greatly can ever achieve greatly."  
+> — **Robert F. Kennedy**
 
 ---
 
