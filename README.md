@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need a weatherman to know which way the wind blows."  
-> — **Bob Dylan**
+> "Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can."  
+> — **Norman Vincent Peale**
 
 ---
 
