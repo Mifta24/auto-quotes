@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "He is richest who is content with the least, for content is the wealth of nature."  
-> — **Socrates**
+> "Work for something because it is good, not just because it stands a chance to succeed."  
+> — **Vaclav Havel**
 
 ---
 
