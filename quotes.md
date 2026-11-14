@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real learning comes about when the competitive spirit has ceased."  
-> — **Jiddu Krishnamurti**
+> "What would life be if we had no courage to attempt anything?"  
+> — **Vincent van Gogh**
 
 ---
 
