@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "Real learning comes about when the competitive spirit has ceased."  
+> — **Jiddu Krishnamurti**
 
 ---
 
