@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "To handle yourself, use your head; to handle others, use your heart."  
-> — **Eleanor Roosevelt**
+> "Change is inevitable but personal growth is a choice."  
+> — **Bob Proctor**
 
 ---
 
-_Last updated: 13 November 2026 ⏳_
+_Last updated: 14 November 2026 ⏳_
