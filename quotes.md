@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Change is inevitable but personal growth is a choice."  
-> — **Bob Proctor**
+> "There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them."  
+> — **Denis Waitley**
 
 ---
 
