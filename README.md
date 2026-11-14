@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Real learning comes about when the competitive spirit has ceased."  
-> — **Jiddu Krishnamurti**
+> "He is richest who is content with the least, for content is the wealth of nature."  
+> — **Socrates**
 
 ---
 

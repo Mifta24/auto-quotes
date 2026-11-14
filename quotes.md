@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What would life be if we had no courage to attempt anything?"  
-> — **Vincent van Gogh**
+> "He is richest who is content with the least, for content is the wealth of nature."  
+> — **Socrates**
 
 ---
 
