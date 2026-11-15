@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Always render more and better service than is expected of you, no matter what your task may be."  
-> — **Og Mandino**
+> "All our dreams can come true, if we have the courage to pursue them."  
+> — **Walt Disney**
 
 ---
 

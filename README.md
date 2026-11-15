@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Until you make the unconscious conscious, it will direct your life and you will call it fate."  
-> — **Carl Jung**
+> "All our dreams can come true, if we have the courage to pursue them."  
+> — **Walt Disney**
 
 ---
 
