@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Even though you are on the right track - you will get run over if you just sit there."  
-> — **Will Rogers**
+> "Until you make the unconscious conscious, it will direct your life and you will call it fate."  
+> — **Carl Jung**
 
 ---
 
