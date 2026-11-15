@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "All our dreams can come true, if we have the courage to pursue them."  
-> — **Walt Disney**
+> "Being kind is more important than being right."  
+> — **David Brinkley**
 
 ---
 
