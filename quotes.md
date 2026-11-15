@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Work for something because it is good, not just because it stands a chance to succeed."  
-> — **Vaclav Havel**
+> "Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit."  
+> — **Robin Sharma**
 
 ---
 
-_Last updated: 14 November 2026 ⏳_
+_Last updated: 15 November 2026 ⏳_
