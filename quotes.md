@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Until you make the unconscious conscious, it will direct your life and you will call it fate."  
-> — **Carl Jung**
+> "Always render more and better service than is expected of you, no matter what your task may be."  
+> — **Og Mandino**
 
 ---
 
