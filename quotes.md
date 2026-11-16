@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The way to move out of judgement is to move into gratitude."  
-> — **Neale Donald Walsch**
+> "Faith is taking the first step even when you don't see the whole staircase."  
+> — **Martin Luther King, Jr.**
 
 ---
 

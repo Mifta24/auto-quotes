@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Shoot for the moon. Even if you miss, you'll land among the stars."  
-> — **Norman Vincent Peale**
+> "Faith is taking the first step even when you don't see the whole staircase."  
+> — **Martin Luther King, Jr.**
 
 ---
 
