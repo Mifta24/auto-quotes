@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Being kind is more important than being right."  
-> — **David Brinkley**
+> "Shoot for the moon. Even if you miss, you'll land among the stars."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 15 November 2026 ⏳_
+_Last updated: 16 November 2026 ⏳_

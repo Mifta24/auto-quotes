@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "All our dreams can come true, if we have the courage to pursue them."  
-> — **Walt Disney**
+> "Shoot for the moon. Even if you miss, you'll land among the stars."  
+> — **Norman Vincent Peale**
 
 ---
 
-_Last updated: 15 November 2026 ⏳_
+_Last updated: 16 November 2026 ⏳_
