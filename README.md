@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith is taking the first step even when you don't see the whole staircase."  
-> — **Martin Luther King, Jr.**
+> "Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it."  
+> — **Robert Frost**
 
 ---
 

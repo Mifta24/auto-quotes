@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The majority of what you want will come from the minority of what you do."  
-> — **Gary Keller**
+> "Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it."  
+> — **Robert Frost**
 
 ---
 
