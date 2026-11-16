@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Shoot for the moon. Even if you miss, you'll land among the stars."  
-> — **Norman Vincent Peale**
+> "The way to move out of judgement is to move into gratitude."  
+> — **Neale Donald Walsch**
 
 ---
 
