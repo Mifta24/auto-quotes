@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Faith is taking the first step even when you don't see the whole staircase."  
-> — **Martin Luther King, Jr.**
+> "The majority of what you want will come from the minority of what you do."  
+> — **Gary Keller**
 
 ---
 
