@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Many roads lead to the path, but basically there are only two: reason and practice."  
-> — **Bodhidharma**
+> "We should not look back unless it is to derive useful lessons from past errors."  
+> — **George Washington**
 
 ---
 
