@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it."  
-> — **Robert Frost**
+> "Many roads lead to the path, but basically there are only two: reason and practice."  
+> — **Bodhidharma**
 
 ---
 
-_Last updated: 16 November 2026 ⏳_
+_Last updated: 17 November 2026 ⏳_
