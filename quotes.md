@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Success is an iceberg."  
-> — **Unknown**
+> "If anything is worth doing, do it with all your heart."  
+> — **Buddha**
 
 ---
 
