@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
-> — **Charles Dickens**
+> "When you want something in life, you just gotta reach out and grab it."  
+> — **Christopher McCandless**
 
 ---
 

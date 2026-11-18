@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone sees what you appear to be, few experience what you really are."  
-> — **Niccolo Machiavelli**
+> "When you want something in life, you just gotta reach out and grab it."  
+> — **Christopher McCandless**
 
 ---
 
