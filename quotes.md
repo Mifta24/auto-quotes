@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "When you want something in life, you just gotta reach out and grab it."  
-> — **Christopher McCandless**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
