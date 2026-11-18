@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty."  
-> — **Winston Churchill**
+> "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration."  
+> — **Nikola Tesla**
 
 ---
 
