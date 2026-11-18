@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty."  
+> — **Winston Churchill**
 
 ---
 
