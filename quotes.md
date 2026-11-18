@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "If anything is worth doing, do it with all your heart."  
-> — **Buddha**
+> "Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood."  
+> — **Charles Dickens**
 
 ---
 
-_Last updated: 17 November 2026 ⏳_
+_Last updated: 18 November 2026 ⏳_
