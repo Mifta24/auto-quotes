@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
-> — **Theodore Roosevelt**
+> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
+> — **Elvis Presley**
 
 ---
 
