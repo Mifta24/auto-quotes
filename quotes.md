@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you."  
-> — **Richard Bach**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 

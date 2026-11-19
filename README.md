@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty."  
-> — **Winston Churchill**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."  
+> — **Theodore Roosevelt**
 
 ---
 
-_Last updated: 18 November 2026 ⏳_
+_Last updated: 19 November 2026 ⏳_
