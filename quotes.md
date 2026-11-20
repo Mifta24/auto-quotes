@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing."  
-> — **Theodore Roosevelt**
+> "The greatest treasures are those invisible to the eye but found by the heart."  
+> — **Judy Garland**
 
 ---
 

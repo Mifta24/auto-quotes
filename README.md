@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it."  
-> — **Celestine Chua**
+> "The greatest treasures are those invisible to the eye but found by the heart."  
+> — **Judy Garland**
 
 ---
 
