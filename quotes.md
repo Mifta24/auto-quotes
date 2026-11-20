@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest treasures are those invisible to the eye but found by the heart."  
-> — **Judy Garland**
+> "What have you done today to make someone else happy?"  
+> — **Deepam Chaterjee**
 
 ---
 
