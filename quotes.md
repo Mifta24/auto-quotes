@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do."  
-> — **Elvis Presley**
+> "Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it."  
+> — **Celestine Chua**
 
 ---
 
-_Last updated: 19 November 2026 ⏳_
+_Last updated: 20 November 2026 ⏳_
