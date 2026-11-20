@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Forever is composed of now's."  
-> — **Emily Dickinson**
+> "Conscience is a dog that does not stop us from passing but that we cannot prevent from barking."  
+> — **Nicolas Chamfort**
 
 ---
 
