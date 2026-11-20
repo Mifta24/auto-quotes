@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest treasures are those invisible to the eye but found by the heart."  
-> — **Judy Garland**
+> "Forever is composed of now's."  
+> — **Emily Dickinson**
 
 ---
 

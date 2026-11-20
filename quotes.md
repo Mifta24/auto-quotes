@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "What have you done today to make someone else happy?"  
-> — **Deepam Chaterjee**
+> "Forever is composed of now's."  
+> — **Emily Dickinson**
 
 ---
 
