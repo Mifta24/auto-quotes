@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "You don't need to be better than anyone else, you just need to be better than you used to be."  
-> — **Wayne Dyer**
+> "The time is now, the place is here. Stay in the present."  
+> — **Dan Millman**
 
 ---
 
