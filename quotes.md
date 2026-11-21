@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The time is now, the place is here. Stay in the present."  
-> — **Dan Millman**
+> "I'm not afraid of death, but I'm in no hurry to die."  
+> — **Stephen Hawking**
 
 ---
 
