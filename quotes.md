@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Your home is where your thoughts find peace."  
-> — **Zen Proverb**
+> "Don't be afraid to see what you see."  
+> — **Ronald Reagan**
 
 ---
 

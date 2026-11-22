@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "A journey of a thousand miles must begin with a single step."  
-> — **Lao Tzu**
+> "Don't be afraid to see what you see."  
+> — **Ronald Reagan**
 
 ---
 
