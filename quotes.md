@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Friends ask you questions; enemies question you."  
-> — **Criss Jami**
+> "Your home is where your thoughts find peace."  
+> — **Zen Proverb**
 
 ---
 
