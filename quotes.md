@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "I'm not afraid of death, but I'm in no hurry to die."  
-> — **Stephen Hawking**
+> "A journey of a thousand miles must begin with a single step."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 21 November 2026 ⏳_
+_Last updated: 22 November 2026 ⏳_

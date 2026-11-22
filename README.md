@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The time is now, the place is here. Stay in the present."  
-> — **Dan Millman**
+> "A journey of a thousand miles must begin with a single step."  
+> — **Lao Tzu**
 
 ---
 
-_Last updated: 21 November 2026 ⏳_
+_Last updated: 22 November 2026 ⏳_
