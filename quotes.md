@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Unless you change how you are, you will always have what you got."  
-> — **Jim Rohn**
+> "Smell the cheese often so you know when it is getting old."  
+> — **Spencer Johnson**
 
 ---
 
