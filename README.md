@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is what we make out of what we have, not what we are given, that separates one person from another."  
-> — **Nelson Mandela**
+> "Unless you change how you are, you will always have what you got."  
+> — **Jim Rohn**
 
 ---
 

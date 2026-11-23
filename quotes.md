@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Desire for the fruits of work must never be your motive in working."  
-> — **Bhagavad Gita**
+> "Unless you change how you are, you will always have what you got."  
+> — **Jim Rohn**
 
 ---
 
