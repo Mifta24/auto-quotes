@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It is what we make out of what we have, not what we are given, that separates one person from another."  
-> — **Nelson Mandela**
+> "Desire for the fruits of work must never be your motive in working."  
+> — **Bhagavad Gita**
 
 ---
 
