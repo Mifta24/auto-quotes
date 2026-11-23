@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It's wise to tell the truth. It's even wiser to tell it kindly."  
-> — **Maxime Lagace**
+> "It is what we make out of what we have, not what we are given, that separates one person from another."  
+> — **Nelson Mandela**
 
 ---
 
-_Last updated: 22 November 2026 ⏳_
+_Last updated: 23 November 2026 ⏳_
