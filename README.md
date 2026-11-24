@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Unless you change how you are, you will always have what you got."  
-> — **Jim Rohn**
+> "Not until we are lost do we begin to understand ourselves."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 23 November 2026 ⏳_
+_Last updated: 24 November 2026 ⏳_

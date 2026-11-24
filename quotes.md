@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Smell the cheese often so you know when it is getting old."  
-> — **Spencer Johnson**
+> "Not until we are lost do we begin to understand ourselves."  
+> — **Henry David Thoreau**
 
 ---
 
-_Last updated: 23 November 2026 ⏳_
+_Last updated: 24 November 2026 ⏳_
