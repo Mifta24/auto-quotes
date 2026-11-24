@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not until we are lost do we begin to understand ourselves."  
-> — **Henry David Thoreau**
+> "Even a hare will bite when it is cornered."  
+> — **Chinese Proverb**
 
 ---
 

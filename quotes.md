@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Receive without complaint, Work with fate."  
-> — **Ming-Dao Deng**
+> "Even a hare will bite when it is cornered."  
+> — **Chinese Proverb**
 
 ---
 
