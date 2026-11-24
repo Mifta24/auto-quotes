@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Not until we are lost do we begin to understand ourselves."  
-> — **Henry David Thoreau**
+> "Receive without complaint, Work with fate."  
+> — **Ming-Dao Deng**
 
 ---
 
