@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Just because something isn't a lie does not mean that it isn't deceptive."  
-> — **Criss Jami**
+> "It is only depth of character that determines the profundity with which we face life."  
+> — **Ming-Dao Deng**
 
 ---
 
