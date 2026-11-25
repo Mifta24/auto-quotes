@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Do not try to be on the side of the majority, but live according to your inner laws."  
-> — **Marcus Aurelius**
+> "Just because something isn't a lie does not mean that it isn't deceptive."  
+> — **Criss Jami**
 
 ---
 
