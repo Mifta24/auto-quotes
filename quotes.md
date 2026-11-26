@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you can imagine is real."  
-> — **Pablo Picasso**
+> "There are two things a person should never be angry at, what they can help, and what they cannot."  
+> — **Plato**
 
 ---
 
