@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
-> — **Colin Powell**
+> "It takes 20 years to build a reputation and five minutes to ruin it."  
+> — **Warren Buffett**
 
 ---
 
