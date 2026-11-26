@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everything you can imagine is real."  
-> — **Pablo Picasso**
+> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
+> — **Colin Powell**
 
 ---
 

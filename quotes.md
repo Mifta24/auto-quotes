@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are two things a person should never be angry at, what they can help, and what they cannot."  
-> — **Plato**
+> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
+> — **Colin Powell**
 
 ---
 
