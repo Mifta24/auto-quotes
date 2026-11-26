@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It takes 20 years to build a reputation and five minutes to ruin it."  
-> — **Warren Buffett**
+> "Failure will never overtake me if my determination to succeed is strong enough."  
+> — **Og Mandino**
 
 ---
 

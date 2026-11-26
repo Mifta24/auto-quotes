@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "If you are going to achieve excellence in big things, you develop the habit in little matters."  
-> — **Colin Powell**
+> "Failure will never overtake me if my determination to succeed is strong enough."  
+> — **Og Mandino**
 
 ---
 
