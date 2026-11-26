@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Failure will never overtake me if my determination to succeed is strong enough."  
-> — **Og Mandino**
+> "Expectations ruin relationships."  
+> — **Neale Donald Walsch**
 
 ---
 
