@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "It is only depth of character that determines the profundity with which we face life."  
-> — **Ming-Dao Deng**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 25 November 2026 ⏳_
+_Last updated: 26 November 2026 ⏳_

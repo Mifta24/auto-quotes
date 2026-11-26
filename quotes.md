@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The greatest miracle is to be alive."  
-> — **Thich Nhat Hanh**
+> "Everything you can imagine is real."  
+> — **Pablo Picasso**
 
 ---
 
-_Last updated: 25 November 2026 ⏳_
+_Last updated: 26 November 2026 ⏳_
