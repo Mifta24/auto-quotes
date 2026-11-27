@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Expectations ruin relationships."  
-> — **Neale Donald Walsch**
+> "The greatest step towards a life of simplicity is to learn to let go."  
+> — **Steve Maraboli**
 
 ---
 
-_Last updated: 26 November 2026 ⏳_
+_Last updated: 27 November 2026 ⏳_

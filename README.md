@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "Failure will never overtake me if my determination to succeed is strong enough."  
-> — **Og Mandino**
+> "The greatest step towards a life of simplicity is to learn to let go."  
+> — **Steve Maraboli**
 
 ---
 
-_Last updated: 26 November 2026 ⏳_
+_Last updated: 27 November 2026 ⏳_
