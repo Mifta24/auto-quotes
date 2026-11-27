@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest step towards a life of simplicity is to learn to let go."  
-> — **Steve Maraboli**
+> "It doesn't matter how much you want. What really matters is how much you want it."  
+> — **Ralph Marston**
 
 ---
 
