@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The worst part of success is trying to find someone who is happy for you."  
-> — **Bette Midler**
+> "You must either modify your dreams or magnify your skills."  
+> — **Jim Rohn**
 
 ---
 
