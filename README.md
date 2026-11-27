@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "The greatest step towards a life of simplicity is to learn to let go."  
-> — **Steve Maraboli**
+> "The worst part of success is trying to find someone who is happy for you."  
+> — **Bette Midler**
 
 ---
 

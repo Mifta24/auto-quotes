@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "It doesn't matter how much you want. What really matters is how much you want it."  
-> — **Ralph Marston**
+> "The worst part of success is trying to find someone who is happy for you."  
+> — **Bette Midler**
 
 ---
 
