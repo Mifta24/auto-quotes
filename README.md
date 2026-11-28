@@ -1,8 +1,8 @@
 # 📜 Daily Quote
 
-> "The worst part of success is trying to find someone who is happy for you."  
-> — **Bette Midler**
+> "Man suffers only because he takes seriously what the gods made for fun."  
+> — **Alan Watts**
 
 ---
 
-_Last updated: 27 November 2026 ⏳_
+_Last updated: 28 November 2026 ⏳_
