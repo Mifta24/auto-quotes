@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man suffers only because he takes seriously what the gods made for fun."  
-> — **Alan Watts**
+> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
+> — **Jim Rohn**
 
 ---
 
