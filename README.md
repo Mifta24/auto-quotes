@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Man suffers only because he takes seriously what the gods made for fun."  
-> — **Alan Watts**
+> "There are more people who wish to be loved than there are who are willing to love."  
+> — **Nicolas Chamfort**
 
 ---
 

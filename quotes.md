@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "Everyone must choose one of two pains: The pain of discipline or the pain of regret."  
-> — **Jim Rohn**
+> "There are more people who wish to be loved than there are who are willing to love."  
+> — **Nicolas Chamfort**
 
 ---
 
