@@ -1,7 +1,7 @@
 # 📜 Daily Quote
 
-> "There are more people who wish to be loved than there are who are willing to love."  
-> — **Nicolas Chamfort**
+> "What's right is what's left if you do everything else wrong."  
+> — **Robin Williams**
 
 ---
 
